@@ -2405,3 +2405,174 @@ Elle a disparu dans l'obscurité.
 
 Je suis restée seule avec Charlotte. J'ai appelé les secours.
 
+
+### Chapitre 61
+
+Charlotte est survive.
+
+La balle n'a pas touché le cœur. L'opération a duré six heures. Six heures pendant lesquelles j'ai attendu dans un couloir blanc, à côté de Denise.
+
+Elle ne disait rien. Je ne disais rien.
+
+Quand le chirurgien est sorti, il a parlé de pronostic réservé. De surveillance. De psychiatrie.
+
+— Votre fille devra être évaluée, a-t-il dit à Denise.
+
+— Ce n'est pas ma fille, a-t-elle répondu.
+
+Le chirurgien a eu l'air décontenancé.
+
+— C'est la sienne, a-t-il dit en me désignant.
+
+Denise a hoché la tête.
+
+— Oui. C'est la sienne.
+
+---
+
+### Chapitre 62
+
+Je n'ai pas osé rentrer à la maison.
+
+Je suis restée à l'hôpital. J'ai dormi sur une chaise, réveillée par chaque bruit. Je rêvais de Charlotte debout dans l'eau noire, me demandant qui j'étais.
+
+Le deuxième jour, la police est venue.
+
+— Madame Vaillant ?
+
+— Oui.
+
+— Votre sœur est en garde à vue sous surveillance médicale. Nous aurions besoin de votre témoignage.
+
+— D'accord.
+
+— Et de celui de l'enfant.
+
+— Malo ne parle pas.
+
+— Il a parlé à l'infirmière ce matin. Il a dit votre nom.
+
+J'ai senti quelque chose se dénouer dans ma poitrine.
+
+— Mon nom ?
+
+— Clémence. Il a dit : « Clémence m'a sauvée. »
+
+---
+
+### Chapitre 63
+
+Malo a parlé.
+
+D'abord quelques mots. Puis des phrases. Puis un récit.
+
+Il a parlé de sa maman qui venait la nuit. De la dame qui avait son visage. De la voiture. De la villa.
+
+Et il a parlé de l'accident.
+
+— Maman et papa se disputaient. Maman a poussé papa. Papi Gilles était là. Il a ramené papa dans la maison.
+
+— Paul n'est pas mort dans l'accident ? ai-je demandé.
+
+— Non. Il est mort après. La dame m'a dit qu'il fallait pas le dire.
+
+J'ai compris. Paul avait été tué dans la maison. Puis on l'avait mis dans la voiture. Et on avait envoyé Ariane s'écraser contre un arbre, le visage détruit, vêtue des bijoux de Charlotte.
+
+Charlotte avait organisé son propre meurtre.
+
+---
+
+### Chapitre 64
+
+Trois semaines plus tard, Charlotte a été transférée dans un hôpital psychiatrique.
+
+Avant son départ, elle a demandé à me voir.
+
+Je n'aurais pas dû accepter. Je l'ai fait.
+
+Elle était attachée au lit. Pale. Mince. Triste.
+
+— Tu as gagné, a-t-elle dit.
+
+— Je n'ai pas joué.
+
+— C'est pour ça que tu as gagné.
+
+Elle a essayé de lever la main, mais les sangles l'en empêchaient.
+
+— Clémence. Tu sais pourquoi je t'ai choisie ?
+
+— Parce que je ressemblais à ta vie.
+
+— Non. Parce que tu ne voulais pas la mienne. Tu étais la seule à ne pas vouloir être moi.
+
+J'ai attendu.
+
+— Je t'ai regardée toute ta vie. Et je t'ai enviée. Pas pour ce que tu avais. Pour ce que tu n'avais pas peur de perdre.
+
+— Tu as tout perdu, Charlotte.
+
+— Oui. Et c'est bien. Parce que maintenant, je n'ai plus à être quelqu'un.
+
+Elle s'est tournée vers la fenêtre.
+
+— Prends soin de Malo. Pas pour moi. Pour toi.
+
+---
+
+### Chapitre 65
+
+Je suis rentrée à la maison un dimanche matin.
+
+Malo était dans le jardin avec Denise. Il m'a vue arriver. Il a couru.
+
+— Clémence !
+
+Je l'ai pris dans mes bras.
+
+— Tu vas rester ? a-t-il demandé.
+
+— Oui.
+
+— Pour toujours ?
+
+J'ai regardé la maison. La maison de Charlotte. La maison que j'avais un jour redoutée.
+
+— Pour toujours, ai-je dit.
+
+Denise m'a regardée avec des yeux rouges.
+
+— Tu vas garder la maison ?
+
+— Non. On va la vendre. On va partir ailleurs. Loin de Kerfany.
+
+— Et ton travail ?
+
+— Il y a des bibliothèques partout.
+
+Malo a ri.
+
+— Moi je veux une maison avec un arbre.
+
+— Alors on cherchera une maison avec un arbre.
+
+Le soir, j'ai ouvert le journal de Charlotte pour la dernière fois.
+
+*« Un jour, quelqu'un me regardera et me verra. Pas Charlotte. Pas une remplaçante. Juste moi. »*
+
+J'ai fermé le carnet. Je l'ai posé dans une boîte.
+
+Puis je suis allée dans le salon. J'ai regardé mon reflet dans la fenêtre.
+
+Clémence Barreau. Tante. Tutrice. Survivante.
+
+Et quelque part, dans un hôpital, ma sœur. Celle qui avait voulu devenir moi. Celle qui m'avait fait devenir quelqu'un d'autre.
+
+La ligne entre elles s'était effacée.
+
+Mais je savais encore qui j'étais.
+
+C'était suffisant.
+
+C'était tout.
+
