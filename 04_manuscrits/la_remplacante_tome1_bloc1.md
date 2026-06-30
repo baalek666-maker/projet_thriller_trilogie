@@ -393,3 +393,464 @@ Un verre plein. Condensation sur les parois. Et sur la table, une trace humide e
 Trop petite pour être la mienne.
 
 ---
+
+### Chapitre 11
+
+J'ai passé la nuit sur le canapé du salon, les yeux fixés sur le verre d'eau.
+
+Personne n'est venu. Aucun bruit. Juste le réfrigérateur qui ronronnait par intermittence, comme un animal qui se réveille et se rendort.
+
+Au petit matin, j'ai emporté le verre à la cuisine. Je l'ai lavé. J'ai effacé la trace de main sur la table avec mon pyjama. Puis j'ai fait semblant que rien ne s'était passé.
+
+C'est comme ça qu'on devient fou, je pense. On efface les preuves avant même de savoir ce qu'elles signifient.
+
+Malo est descendu à sept heures. Il avait le regard clair, comme si la nuit ne l'avait pas affecté. Il s'est assis à sa place, a ouvert son cartable, et a sorti un carnet.
+
+— Tu dessines ? ai-je demandé.
+
+Il a hoché la tête.
+
+— Tu peux me montrer ?
+
+Il a fermé le carnet.
+
+J'ai préparé des céréales. Les céréales que ma mère avait apportées. Malo les a mangées sans un mot. J'ai mangé avec lui, sans faim.
+
+— Aujourd'hui, on doit aller à l'école, ai-je dit.
+
+Il a levé les yeux. Pour la première fois, il a semblé inquiet.
+
+— Tout le monde sait ?
+
+— Oui. Pour papa et maman.
+
+Il a baissé la tête.
+
+— Ils vont me demander des trucs.
+
+— Tu n'es pas obligé de répondre.
+
+— Maman disait toujours qu'il fallait répondre aux gens. Que c'était impoli de rester silencieux.
+
+J'ai serré ma cuillère.
+
+— Ta maman n'est plus là. Maintenant, c'est moi qui décide.
+
+Il m'a regardée. Pas avec gratitude. Avec quelque chose qui ressemblait à de la méfiance.
+
+— Ce n'est pas toi qui décides, a-t-il murmuré. C'est elle.
+
+---
+
+### Chapitre 12
+
+J'ai raccompagné Malo à l'école. L'institutrice, Madame Rivet, m'a accueillie avec un sourire de circonstance.
+
+— Madame Barreau. Je suis désolée pour votre sœur.
+
+— Merci.
+
+— Malo va bien, dans l'ensemble. Il ne parle pas beaucoup, mais ses résultats sont bons.
+
+— Il a parlé ce matin.
+
+Elle a paru surprise.
+
+— Vraiment ? Qu'a-t-il dit ?
+
+J'ai hésité.
+
+— Rien d'important.
+
+Quand je suis revenue à la maison, j'ai fait quelque chose que je n'aurais pas dû faire. J'ai ouvert l'armoire de Charlotte. Vraiment ouvert. Pas seulement touché une robe.
+
+J'ai sorti chaque cintre. J'ai regardé les étiquettes. Taille 38. Taille 38. Taille 38. Taille 38.
+
+Puis, au fond, j'ai trouvé un sac en papier kraft. Dedans, il y avait des vêtements pliés soigneusement. Une robe noire. Un jean. Un pull gris. Taille 40.
+
+Mes vêtements.
+
+Mes vêtements à moi.
+
+Je les ai reconnus. La robe noire que j'avais perdue il y a deux ans. Le jean que je croyais avoir donné à Emmaüs. Le pull gris que ma mère m'avait offert pour mes trente ans et que je n'avais jamais aimé.
+
+Ils étaient là. Dans l'armoire de Charlotte.
+
+Et ils étaient propres. Repassés.
+
+---
+
+### Chapitre 13
+
+J'ai appelé Lucie.
+
+Elle a décroché à la troisième sonnerie.
+
+— Clémence ? Ça va ?
+
+— Non.
+
+J'ai tout dit. Presque tout. Les vêtements, le verre d'eau, la main trop petite, la phrase de Malo. Elle m'a écoutée sans m'interrompre.
+
+— Tu devrais partir de cette maison, a-t-elle dit quand j'ai fini.
+
+— Je ne peux pas. Malo est sous ma responsabilité.
+
+— Ce n'est pas ton enfant.
+
+— Si. Légalement.
+
+— Légalement, oui. Moralement…
+
+— Lucie.
+
+Elle a soupiré.
+
+— Cette histoire est glauque. Les vêtements de Charlotte te vont. Elle a les tiens. Son fils te regarde comme si tu étais sa mère. Son amie te dit que tu es là pour la remplacer. Tu ne vois pas ?
+
+— Je vois quoi ?
+
+— Qu'on t'emmène quelque part. Que quelqu'un veut que tu deviennes Charlotte.
+
+J'ai regardé la robe noire posée sur le lit.
+
+— C'est ridicule, ai-je dit. Personne ne peut devenir quelqu'un d'autre.
+
+— Tu le ferais très bien, Clémence. Tu as toujours été capable de disparaitre.
+
+— Qu'est-ce que tu racontes ?
+
+— Rien. Excuse-moi. Je suis inquiète, c'est tout.
+
+On s'est raccrochées. Je n'ai pas dit à Lucie que, pendant quelques secondes, j'avais regardé ma robe noire et que j'avais eu envie de l'enfiler.
+
+---
+
+### Chapitre 14
+
+La nuit suivante, j'ai refait le même rêve.
+
+L'escalier. Charlotte en jaune. La chute.
+
+Mais cette fois, quand je me suis penchée au-dessus de la rampe, elle était allongée en bas et elle souriait.
+
+— Tu vois ? a-t-elle dit. Tu ne t'en souviens même pas.
+
+Je me suis réveillée en sueur.
+
+Trois heures vingt-trois. Encore.
+
+J'ai allumé la lampe de chevet. Le cadre photo était remis debout.
+
+Je l'avais pourtant laissé face contre table.
+
+J'ai regardé Charlotte, Paul et Malo sur la plage. Puis j'ai regardé plus attentivement.
+
+Charlotte ne tenait pas Malo par la main.
+
+Elle le tenait par le poignet. Pas affectueusement. Fermement.
+
+Et Malo ne souriait pas. Il regardait l'objectif avec cette expression que je commençais à connaître. Vide. Polie. Effrayée.
+
+J'ai reposé le cadre. J'ai vérifié sous le lit. Dans l'armoire. Derrière les rideaux.
+
+Rien.
+
+Je suis redescendue. La cuisine était propre. Pas de verre. Pas de trace.
+
+J'ai ouvert le réfrigérateur pour boire quelque chose. Les lasagnes d'Inès étaient rangées sur l'étagère du milieu. À côté, une assiette avec un morceau de gâteau.
+
+Un gâteau que je n'avais pas préparé.
+
+Une bouchée avait été prise.
+
+---
+
+### Chapitre 15
+
+Inès est revenue le lendemain. J'aurais dû attendre, mais je n'ai pas pu.
+
+— C'est toi qui as laissé le gâteau ?
+
+Elle a cligné des yeux.
+
+— Quel gâteau ?
+
+— Dans le frigo. Un morceau de gâteau sur une assiette.
+
+— Non. J'ai laissé les plats dans le congélateur.
+
+J'ai senti mon sang se glacer.
+
+— Quelqu'un est entré dans la maison, ai-je dit.
+
+— Clémence…
+
+— Je ne plaisante pas. Un verre d'eau, des vêtements, maintenant un gâteau. Quelqu'un vient ici la nuit.
+
+Inès m'a prise par les épaules. Elle m'a forcée à m'asseoir.
+
+— Respire. Tu as traversé beaucoup de choses. C'est normal d'être anxieuse.
+
+— Je ne suis pas anxieuse. Je suis terrifiée.
+
+Elle a souri. Ce sourire de nouveau.
+
+— Tu sais, quand Charlotte est arrivée ici, elle a eu du mal aussi. Elle disait que la maison était trop grande. Qu'elle entendait des bruits la nuit.
+
+— Charlotte entendait des bruits ?
+
+— Paul la croyait parano. Mais elle avait raison. C'était les canalisations.
+
+— Les canalisations ne boivent pas un verre d'eau.
+
+Inès a hoché la tête.
+
+— Non. Écoute. Je vais t'aider à installer des caméras. L'application est déjà sur le téléphone de Charlotte. Tu pourras surveiller la maison depuis ton lit.
+
+— Le téléphone de Charlotte ?
+
+Elle a eu un rire nerveux.
+
+— Son ancien téléphone, je veux dire. Celui que Paul utilisait maintenant.
+
+J'ai regardé Inès. Très longtemps.
+
+— Tu connais beaucoup de choses sur cette famille.
+
+— J'étais sa meilleure amie.
+
+— Tu es toujours sa meilleure amie.
+
+Elle a détourné les yeux.
+
+---
+
+### Chapitre 16
+
+Inès a installé les caméras dans l'après-midi.
+
+Trois au total. Une dans le salon, une dans la cuisine, une dans le hall d'entrée. Elle m'a montré l'application sur le téléphone de Charlotte.
+
+— Tu les actives quand tu veux. Même à distance.
+
+— Elles enregistrent tout le temps ?
+
+— Non. Tu actives la détection de mouvement. Sinon la batterie fond.
+
+— Merci.
+
+— N'hésite pas à m'appeler.
+
+Elle est partie. J'ai regardé les petites caméras noires, discrètes, fixes.
+
+Elles me rassuraient autant qu'elles m'inquiétaient. Parce que si quelqu'un entrait, je le verrais. Mais aussi parce que si quelqu'un entrait, je le verrais.
+
+J'ai passé la soirée avec Malo. On a regardé un dessin animé. Il s'est endormi sur le canapé. Je l'ai porté dans sa chambre. Il pesait presque rien. Un petit corps sans défense.
+
+Je suis allée dans ma chambre. J'ai activé les caméras. J'ai mis le téléphone sur la table de nuit.
+
+Puis je me suis endormie.
+
+---
+
+### Chapitre 17
+
+Le lendemain matin, l'application avait enregistré quelque chose.
+
+Trois heures vingt-trois.
+
+Toujours cette heure.
+
+La détection de mouvement dans le salon.
+
+J'ai ouvert la vidéo. La qualité n'était pas bonne. L'image en noir et blanc, granuleuse.
+
+On voyait le canapé. Le bras de canapé. La table basse.
+
+Puis une silhouette.
+
+Une femme.
+
+Elle est passée devant la caméra. Juste devant. Elle portait une robe longue, sombre. Ses cheveux tombaient devant son visage.
+
+Elle a posé quelque chose sur la table. Le gâteau, peut-être. Ou le verre.
+
+Puis elle s'est arrêtée. Elle a levé la tête.
+
+Vers la caméra.
+
+Comme si elle savait qu'elle était filmée.
+
+La vidéo s'est arrêtée.
+
+J'ai regardé encore. Encore. La silhouette était floue, irréelle. On aurait dit un fantôme. Mais les fantômes ne laissent pas de gâteau dans le frigo.
+
+J'ai envoyé la vidéo à Inès.
+
+Elle a répondu cinq minutes plus tard.
+
+*« C'est toi, Clémence. Tu as dû te lever sans t'en souvenir. »*
+
+J'ai regardé mes mains. Propres. Pas de farine. Pas d'odeur de gâteau.
+
+J'ai répondu : *« Ce n'est pas moi. »*
+
+Elle a répondu : *« Alors qui ? »*
+
+J'ai regardé la vidéo une dernière fois. La femme avait la même taille que moi. La même démarche. La même façon de baisser légèrement la tête quand elle marchait.
+
+Comme Charlotte.
+
+---
+
+### Chapitre 18
+
+J'ai décidé d'en savoir plus sur ma sœur.
+
+Pas sur Charlotte la mère, Charlotte la femme parfaite. Charlotte l'adulte. J'ai voulu remonter plus loin. L'adolescence. L'enfance.
+
+J'ai appelé ma mère.
+
+— Il faut qu'on parle, ai-je dit.
+
+— De quoi ?
+
+— De Charlotte. De nous. De ce qui s'est passé.
+
+Elle a ri. Un rire sec, cassé.
+
+— Il ne s'est rien passé. Vous étiez des enfants normales.
+
+— Je me souviens de l'escalier.
+
+Silence.
+
+— Quel escalier ? a-t-elle dit enfin.
+
+— Celui de la maison. Charlotte est tombée. Je crois que c'est ma faute.
+
+— Tu te souviens mal.
+
+— Maman…
+
+— Tu t'es toujours souvenu mal des choses, Clémence. C'est pour ça que Charlotte était la forte.
+
+Elle a raccroché.
+
+Je suis restée avec le téléphone contre l'oreille, écoutant la tonalité.
+
+*Tu t'es toujours souvenu mal des choses.*
+
+C'était peut-être vrai. J'avais passé ma vie à douter de mes souvenirs. À me demander si ce que je voyais était réel, si ce que je ressentais était justifié.
+
+C'est comme ça qu'on vous rend fou. Pas en vous mentant. En vous disant que vous mentez à vous-même.
+
+---
+
+### Chapitre 19
+
+Le voisin m'attendait devant la maison.
+
+Gilles Marchetti. Soixante ans environ, petit, nerveux, avec des mains qui tremblaient légèrement.
+
+— Madame Barreau ? a-t-il dit.
+
+— Oui.
+
+— Je suis le voisin. Gilles.
+
+— Je sais.
+
+Il a regardé autour de lui, comme s'il craignait d'être écouté.
+
+— Je voulais vous dire quelque chose. Sur votre sœur.
+
+Mon cœur s'est mis à battre plus fort.
+
+— Quoi ?
+
+— Je l'ai vue. Après l'accident.
+
+— Vous avez vu Charlotte ?
+
+— Oui. Dans la rue. Devant chez vous. La nuit après l'accident.
+
+— Vous êtes sûr ?
+
+— Je sais ce que j'ai vu. Votre sœur. Ses cheveux. Sa démarche. Elle a levé les yeux vers ma fenêtre. Puis elle est partie en voiture.
+
+— Vous avez dit à la police ?
+
+— Bien sûr. Ils m'ont dit que je confondais avec quelqu'un. Ou que je rêvais.
+
+Il a baissé la voix.
+
+— Mais je ne rêvais pas. Et ce n'était pas quelqu'un d'autre.
+
+— Pourquoi vous me dites ça ?
+
+Il a hésité.
+
+— Parce que depuis que vous êtes là, elle revient.
+
+— Qui ?
+
+— Votre sœur. Je l'ai vue hier soir. Elle regardait par la fenêtre du salon.
+
+---
+
+### Chapitre 20
+
+J'ai passé l'après-midi à regarder les vidéos de surveillance.
+
+Encore et encore.
+
+La silhouette dans le salon. La robe sombre. Les cheveux devant le visage.
+
+Je me suis levée. Je suis allée dans l'armoire de Charlotte. J'ai pris la robe bleue. Celle qui m'allait exactement.
+
+Je me suis regardée dans le miroir.
+
+Charlotte me regardait en retour.
+
+Pas tout à fait. Mes yeux étaient plus petits. Ma bouche plus fine. Mais avec la robe, avec les cheveux détachés, avec la lumière tamisée de la chambre…
+
+J'ai enlevé la robe. Je l'ai jetée sur le lit.
+
+Puis je suis allée chercher mes propres vêtements dans ma valise. J'ai enfilé un jean et un pull noir. J'ai noué mes cheveux en chignon.
+
+Quand je suis redescendue, Malo était dans le salon. Il m'a regardée.
+
+— Tu n'es pas maman, a-t-il dit.
+
+— Je sais. Je suis tata Clémence.
+
+— Tu ne ressembles pas à tata Clémence.
+
+— À qui je ressemble ?
+
+Il a baissé les yeux.
+
+— À personne. Tu ressembles à la maison.
+
+J'ai voulu lui demander ce qu'il voulait dire. Mais il est remonté dans sa chambre.
+
+J'ai sorti les poubelles. Dehors, le soir tombait. Le lotissement était silencieux. Les maisons modernes alignées comme des dents blanches.
+
+J'ai jeté le sac dans la benne. En me relevant, j'ai vu Gilles Marchetti à sa fenêtre.
+
+Il me faisait signe.
+
+Pas un signe amical. Un signe urgent.
+
+Il pointait du doigt la maison derrière moi.
+
+Je me suis retournée.
+
+À la fenêtre du salon, quelqu'un me regardait.
+
+Une femme en robe bleue.
+
+Puis la lumière s'est éteinte.
+
