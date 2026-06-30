@@ -1782,3 +1782,194 @@ Il a baissé la voix.
 
 — Celle qui a le même visage qu'elle.
 
+
+---
+
+### Chapitre 28
+
+Denise m'a appelée le samedi matin.
+
+— Viens me voir, a-t-elle dit. Sans le petit.
+
+— Pourquoi ?
+
+— Parce qu'il y a des choses que tu dois savoir sur ta sœur. Et que personne d'autre ne te dira.
+
+J'ai confié Malo à Inès pour la journée. Elle a accepté sans poser de questions.
+
+La maison de Denise était la même qu'à mon arrivée. Propre, froide, sans âme. Une maison de retraite avant l'heure.
+
+Elle m'a fait entrer dans le salon et m'a servi un café que je ne voulais pas.
+
+— Tu as trouvé le carnet, a-t-elle dit.
+
+Ce n'était pas une question.
+
+— Comment tu le sais ?
+
+— Charlotte m'en avait parlé. Elle avait un jour. Si quelque chose lui arrivait, je devais te guider.
+
+— Te guider vers quoi ?
+
+— Vers la vérité.
+
+Denise a posé sa tasse.
+
+— Charlotte et toi, vous n'avez pas toujours été proches. Tu le sais. Mais ce que tu ignores, c'est pourquoi.
+
+— Parce qu'elle était plus forte. Plus belle. Plus aimée.
+
+— Non. Parce qu'elle te haïssait.
+
+J'ai sursauté.
+
+— Te haïssait d'une haine pure, a continué Denise. Parce que tu es née deux minutes avant elle. Parce que tu étais la première. Parce que tout le monde t'a toujours regardée avec un peu plus d'amour.
+
+— Ce n'est pas vrai.
+
+— Si. Même ton père. Quand il rentrait du travail, il demandait : « Où est Clémence ? » Jamais Charlotte. Toujours toi.
+
+J'ai senti des larmes me brûler les yeux.
+
+— Elle voulait te ressembler. Te remplacer. T'effacer. Depuis l'enfance.
+
+---
+
+### Chapitre 29
+
+Denise a sorti une boîte en fer de sous le canapé.
+
+Dedans, des dessins d'enfants. Des cahiers. Des photos.
+
+— Regarde, a-t-elle dit.
+
+Elle m'a tendu un dessin. Deux petites filles, côte à côte. L'une souriait. L'autre avait le visage griffé au stylo.
+
+— Charlotte a fait ça à cinq ans. Elle griffait ton visage sur toutes les photos de famille.
+
+— Je ne savais pas.
+
+— Bien sûr que non. On te protégeait. Tu étais la sensible, la fragile. Elle était la dure.
+
+Denise a fouillé dans la boîte.
+
+— Elle a commencé à t'imiter très tôt. Tes vêtements, tes mots, tes goûts. À douze ans, elle a demandé à porter des lunettes alors qu'elle voyait parfaitement.
+
+— Pourquoi ?
+
+— Parce que tu portais des lunettes. Elle voulait que les gens vous confondent.
+
+J'ai pris une photo. Nous avions quatorze ans. Même coupe de cheveux. Même pull. Même posture.
+
+Je n'arrivais pas à me reconnaître.
+
+— L'accident de l'escalier, ai-je dit à voix basse. Quand elle est tombée.
+
+Denise a pâli.
+
+— Oui.
+
+— Ce n'était pas un accident, n'est-ce pas ?
+
+Elle a regardé ailleurs.
+
+— Clémence…
+
+— Dis-moi.
+
+— Vous vous disputiez. Vous étiez en haut de l'escalier. Charlotte t'a dit qu'elle allait te remplacer. Que personne ne ferait la différence.
+
+— Et alors ?
+
+— Et alors tu l'as poussée.
+
+Le silence a explosé dans la pièce.
+
+— Non, ai-je murmuré.
+
+— Tu l'as poussée et elle est tombée. Douze marches. Elle s'est cassé le bras. Elle a dit à tout le monde que c'était un accident.
+
+— Je ne me souviens pas.
+
+— Tu t'es effacée. Comme toujours.
+
+---
+
+### Chapitre 30
+
+Je suis rentrée à Kerfany le soir même.
+
+J'ai cherché dans la maison. Partout. Sous les lits, dans les placards, derrière les cadres.
+
+Il devait y avoir autre chose. Une preuve. Un message.
+
+J'ai trouvé les lettres dans le bureau.
+
+Au fond du tiroir de gauche, cachées sous un faux fond. Trois enveloppes. Pas d'adresse d'expéditeur. Juste un tampon de Rennes.
+
+La première lettre était datée de l'année précédente.
+
+*« Ma chère Charlotte, je comprends ta douleur. Être celle qu'on a rejetée n'est jamais facile. Mais tu dois savoir que tu n'es pas seule. Nous existons. Les Doubles. Nous pouvons t'aider à devenir celle que tu aurais dû être. »*
+
+La deuxième, six mois plus tard.
+
+*« Le plan avance. Ta sœur est observée. Elle est faible, seule, sans attaches. Elle sera une remplaçante idéale. Quand tu seras prête, nous interviendrons. »*
+
+La troisième, datée d'un mois avant l'accident.
+
+*« Ariane est formée. Elle est prête à mourir à ta place. Toi, tu pourras reprendre la vie de Clémence. Patience. Le jour approche. »*
+
+Ariane.
+
+Le nom dansait devant mes yeux.
+
+La femme de l'accident. La femme brûlée.
+
+Ce n'était pas Charlotte qui était morte.
+
+C'était Ariane.
+
+---
+
+### Chapitre 31
+
+J'ai cherché Ariane sur Internet.
+
+Aucun résultat. Pas de compte social. Pas de photo. Pas de trace.
+
+Puis je suis tombée sur un article. Un article de journal local, publié six mois avant la mort de Charlotte.
+
+*« Disparition inquiétante à Rennes. Ariane Lemoine, 34 ans, n'a pas donné signe de vie depuis trois semaines. La jeune femme, sans famille proche, avait quitté son appartement sans prévenir. »*
+
+Ariane Lemoine.
+
+Lemoine.
+
+Le nom de Gilles.
+
+Je suis sortie de la maison en courant.
+
+Gilles n'était pas chez lui. Sa voiture était partie. Son chien aboyait derrière la porte.
+
+Je suis rentrée, essoufflée, le cœur battant.
+
+Et c'est alors que je l'ai vue.
+
+Elle était debout dans le couloir.
+
+Une femme. Blonde. Portant une robe bleue que je connaissais. Une robe qui m'allait à moi aussi.
+
+Elle me regardait.
+
+Elle avait mon visage.
+
+— Bonjour, Clémence, a-t-elle dit.
+
+Sa voix était comme la mienne. Presque.
+
+— Tu dois être Ariane, ai-je réussi à dire.
+
+Elle a souri.
+
+— Pas encore. Pour l'instant, je suis toi.
+
