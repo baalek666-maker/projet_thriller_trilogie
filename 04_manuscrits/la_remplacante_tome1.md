@@ -376,3 +376,264 @@ Je ne voulais pas ressembler à Charlotte.
 
 Mais j'avais bien l'impression qu'elle avait prévu que je n'aie pas le choix.
 
+
+---
+
+### Chapitre 7
+
+Le soir des funérailles, Denise m'a préparé une chambre.
+
+Pas ma chambre d'enfant. Celle-ci avait été transformée en bureau après mon départ. Elle m'a donné la chambre d'amis, au bout du couloir. Une pièce trop propre, trop neutre, avec des serviettes pliées en triangle sur le lit et une photo de bateaux au mur.
+
+J'ai posé mon sac sur la chaise. J'ai entendu Denise monter l'escalier derrière moi.
+
+— Tu restes combien de temps ? a-t-elle demandé.
+
+— Je ne sais pas.
+
+— Il faut que tu saches.
+
+— Pourquoi ?
+
+Elle est restée dans l'embrasure de la porte, les bras croisés.
+
+— Parce que je ne veux pas que tu fasses comme d'habitude. Que tu arrives, que tu observes, que tu juges, et que tu repartes avant d'avoir pris une seule décision.
+
+— J'ai pris une décision. J'ai signé les papiers.
+
+— Signer, ce n'est pas décider. C'est obéir.
+
+J'ai retiré mon pull.
+
+— Je vais prendre Malo, maman. Je vais m'occuper de lui.
+
+— Pendant un an.
+
+— Pendant un an.
+
+— Et après ?
+
+— Après, on verra.
+
+Denise a fait un pas vers moi.
+
+— Non. Après, si tu le laisses, c'est moi qui le prendrai.
+
+Je me suis figée.
+
+— Tu veux dire…
+
+— Je veux dire que je te connais, Clémence. Je sais comment tu fonctionnes. Tu vas tenir six mois, peut-être huit. Puis tu vas trouver une excuse. Le travail. La fatigue. Ta liberté. Et tu vas revenir à ta petite vie tranquille en laissant cet enfant derrière toi.
+
+— Je ne ferais jamais ça.
+
+— Charlotte non plus n'aurait jamais dû mourir. Pourtant.
+
+Sa voix s'était durcie.
+
+— Ecoute-moi bien. Si tu ne tiens pas ton engagement, si tu abandonnes Malo avant la fin de l'année, je porterai plainte. J'obtiendrai la garde. Et je m'assurerai que tu ne le revoies plus jamais.
+
+— Tu me menaces ?
+
+— Je te préviens.
+
+Elle a fermé la porte sans bruit.
+
+Je suis restée debout dans la chambre d'amis, à regarder les serviettes pliées en triangle. La lumière de la lampe de chevet était trop jaune, trop douce. L'odeur du savon à linge me donnait la nausée.
+
+Ma mère venait de me dire, en substance, que j'étais incapable d'aimer.
+
+Peut-être avait-elle raison.
+
+---
+
+### Chapitre 8
+
+Paul m'a trouvée sur la plage, le lendemain matin.
+
+Je dormais mal. Très mal. J'avais fini par me lever à six heures, enfiler mes baskets, et marcher jusqu'à la mer. L'aube était couleur d'acier. Les vagues s'écrasaient sans bruit sur le sable humide.
+
+— Tu as pris du café ? a-t-il demandé.
+
+— Non.
+
+— Moi non plus.
+
+Il était venu à pied. Il portait un long manteau beige et des chaussures trop élégantes pour la plage. Derrière lui, la maison de Charlotte se découpait au sommet de la falaise. Une maison moderne, en bois et en verre, avec de larges baies qui donnaient sur l'océan.
+
+— Charlotte a construit cette maison il y a quatre ans, a-t-il dit sans que je demande. Elle a tout conçu. L'emplacement, les matériaux, la lumière. Même les poignées de porte.
+
+— C'était son genre.
+
+— Oui.
+
+Il a sorti un paquet de cigarettes de sa poche. Je ne savais pas qu'il fumait.
+
+— Je ne viens pas t'embêter, a-t-il dit en allumant. Mais il faut qu'on parle logistique.
+
+— Je sais. La maison. Les papiers. L'école.
+
+— Non. Je veux parler de Malo.
+
+J'ai attendu.
+
+— Il n'a pas parlé depuis la mort de Charlotte. Pas un mot. Les médecins disent que c'est un choc. Un refus. Rien d'organique.
+
+— Combien de temps ça peut durer ?
+
+— Des semaines. Des mois. Des années, peut-être.
+
+— Et toi ?
+
+Il a recraché la fumée.
+
+— Moi, je repars à Rennes la semaine prochaine. J'ai un projet. Un immeuble. Je ne peux pas l'interrompre.
+
+— Tu quittes ton fils ?
+
+— Je te l'ai dit. Ce n'est pas mon fils. Pas vraiment.
+
+— C'est quand même ta responsabilité.
+
+— Ma responsabilité, je l'assume. C'est pour ça que je te demande de t'installer dans la maison. Un an. Pour Malo. Pas pour Charlotte. Pas pour moi.
+
+J'ai regardé la maison.
+
+— Je n'ai pas le droit de refuser, de toute façon.
+
+— Tu as toujours le droit de refuser.
+
+— Ta mère me menace de porter plainte.
+
+Il a écrasé sa cigarette dans le sable.
+
+— Ma mère menace beaucoup. Elle aime le contrôle. Comme Charlotte.
+
+— Tu penses que je devrais refuser ?
+
+Il a mis longtemps à répondre.
+
+— Non. Je pense que tu es la seule à pouvoir le faire.
+
+Sa phrase m'a fait froid dans le dos.
+
+Pas parce qu'elle était gentille. Parce qu'elle ressemblait à quelque chose que Charlotte aurait pu écrire.
+
+---
+
+### Chapitre 9
+
+La remplaçante est arrivée mardi.
+
+Je l'ai vue pour la première fois dans l'allée de la maison. Elle gara son petit 4×4 rouge devant le portail, sortit avec un sourire qui semblait peser cinq kilos, et s'avança vers moi avec des talons qui n'avaient rien à faire sur un chemin de gravier.
+
+— Tu dois être Clémence, a-t-elle dit. Moi, c'est Inès.
+
+Elle a posé deux grands sacs de courses sur le sol.
+
+— Inès ?
+
+— Inès Morvan. L'amie de Charlotte. Enfin, une de ses amies. La meilleure, dirais-je, mais je suis un peu partial.
+
+Elle a ri. Un rire harmonieux, presque trop.
+
+— Charlotte m'a parlé de toi. Beaucoup, même. Tu sais, vers la fin.
+
+— Elle t'a parlé de moi ?
+
+— Tout le temps.
+
+J'ai senti une vague de malaise me traverser. Lucie m'avait dit la même chose. Charlotte, qui parlait de moi. Charlotte, qui pensait à moi. Depuis combien de temps ?
+
+— Tu viens de loin ? ai-je demandé, par politesse.
+
+— De Rennes. Je t'apporte des affaires. Des vêtements de Charlotte. Je me suis dit que tu préférerais ne pas fouiller tout de suite dans ses placards.
+
+Elle a repris ses sacs et est entrée dans la maison sans que je l'invite.
+
+L'intérieur était encore plus intimidant que l'extérieur. Des baies vitrées sur l'océan, un sol en béton ciré, des meubles bas et sobres. Tout était beau. Tout disait : *Charlotte a vécu ici.*
+
+Inès a posé les sacs sur la cuisine centrale.
+
+— Tu vois ce qu'elle a fait, a-t-elle dit. Une vraie pépite.
+
+— Oui.
+
+— Tu ne vas pas t'en sortir seule, tu sais. Une maison comme ça, un enfant qui ne parle pas, Paul qui disparaît. Il te faut de l'aide.
+
+— Je me débrouille.
+
+— Tout le monde dit ça. Puis un jour, ils craquent.
+
+Elle s'est approchée de moi et m'a pris par les épaules.
+
+— Charlotte savait que tu étais la seule. La seule à pouvoir la remplacer. Tu lui ressembles tellement.
+
+J'ai reculé.
+
+— Je ne lui ressemble pas.
+
+— Tu ne le penses pas, peut-être. Mais quand on te regarde de profil, avec le même maquillage, les mêmes vêtements… on pourrait confondre.
+
+Son regard s'est attardé sur mon visage.
+
+— Encore un peu d'entraînement, et ce sera parfait.
+
+---
+
+### Chapitre 10
+
+J'ai accepté.
+
+Je ne sais pas exactement à quel moment. Peut-être quand Inès m'a regardée comme si j'étais déjà Charlotte. Peut-être quand Paul m'a dit que j'étais la seule. Peut-être quand j'ai vu Malo, assis sur les marches de la maison, à me regarder porter mes affaires dans le hall.
+
+Il ne m'a pas aidée. Il n'a pas bougé. Mais ses yeux m'ont suivie.
+
+J'ai posé ma valise dans la chambre d'amis.
+
+Celle-ci était différente de l'autre maison. Plus grande, plus froide. Des murs blancs, un grand lit avec une tête de lit en lin, une armoire coulissante en chêne. Et une fenêtre qui donnait sur la mer.
+
+Je suis restée longtemps devant la fenêtre.
+
+En bas, Paul chargait ses valises dans sa voiture. Il partait le soir même. Un an, m'avait-il dit. Il reviendrait pour les anniversaires, peut-être. Pour les rendez-vous médicaux. Pour les signatures.
+
+Malo était assis à côté de lui, immobile.
+
+Je suis descendue.
+
+Paul m'a tendu un trousseau de clés.
+
+— C'est tout, a-t-il dit. Alarme, garage, appartement de Rennes.
+
+— Tu me laisses les clés de ton appartement ?
+
+— C'était l'appartement de Charlotte. Elle a laissé des affaires. Tu auras besoin de papiers.
+
+Il a serré Malo contre lui. L'enfant n'a pas réagi.
+
+— Prends soin de lui, a murmuré Paul. Même si tu ne l'aimes pas encore.
+
+Il est parti sans se retourner.
+
+Malo et moi sommes restés sur le seuil.
+
+Le vent de mer soulevait ses petits cheveux blonds. Il regardait la voiture de Paul s'éloigner jusqu'à ce qu'elle disparaisse au tournant.
+
+— Tu veux entrer ? ai-je demandé.
+
+Il n'a pas répondu.
+
+— On va se débrouiller, toi et moi.
+
+Rien.
+
+J'ai tendu la main.
+
+Il l'a contemplée un moment. Puis il s'est levé tout seul et est rentré dans la maison.
+
+Sans me toucher.
+
+J'ai baissé les yeux.
+
+Ma main, toujours vide, portait les empreintes de personnes qui n'étaient pas là.
+
