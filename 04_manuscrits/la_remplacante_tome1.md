@@ -2071,3 +2071,337 @@ Elle n'a pas couru derrière nous.
 
 Pas cette fois.
 
+
+### Chapitre 51
+
+Je suis rentrée à Kerfany avec Malo endormi sur le siège arrière.
+
+J'ai appelé Lucie.
+
+— C'est fini. En partie.
+
+— Qu'est-ce que tu racontes ?
+
+— Je t'expliquerai demain.
+
+J'ai raccroché. Je ne savais pas quoi dire. Ariane était blessée, pas morte. Charlotte était peut-être vivante. Et moi, je venais de poignarder quelqu'un.
+
+Même si c'était en légitime défense.
+
+Même si cette personne avait mon visage.
+
+J'ai couché Malo dans son lit. Il s'est réveillé un instant.
+
+— Elle va revenir ? a-t-il demandé.
+
+— Non.
+
+— Elle a dit que maman allait revenir.
+
+J'ai serré sa main.
+
+— Maman ne reviendra pas comme ça, Malo. Elle reviendra comme elle doit revenir. Si elle revient.
+
+Il a fermé les yeux.
+
+Je suis restée à le regarder dormir jusqu'à l'aube.
+
+---
+
+### Chapitre 52
+
+Lucie est arrivée à huit heures.
+
+Elle a vu le sang sur ma manche.
+
+— Clémence, il faut appeler la police.
+
+— Non.
+
+— Il y a une femme blessée dans une villa.
+
+— Elle m'a enlevé mon neveu. Elle avait mon visage. La police ne me croira pas.
+
+— Et si elle meurt ?
+
+— Elle ne mourra pas. Elle est trop forte pour ça.
+
+Lucie a posé sa main sur mon épaule.
+
+— Tu ne vas pas bien.
+
+— Non. Mais Malo est en vie.
+
+Elle m'a regardée.
+
+— Que veux-tu faire ?
+
+— Trouver Charlotte. Vraiment. Pas son fantôme. Pas sa remplaçante. Elle.
+
+— Et si elle ne veut pas être trouvée ?
+
+— Alors je la forcerai à me dire pourquoi.
+
+---
+
+### Chapitre 53
+
+J'ai retourné la chambre de Charlotte.
+
+Cette fois, méthodiquement. Chaque tiroir. Chaque recoin. Chaque double fond.
+
+J'ai trouvé un téléphone. Pas celui de Paul. Un autre. Ancien. Éteint.
+
+Je l'ai chargé.
+
+Quand il s'est allumé, une seule conversation apparaissait.
+
+Charlotte → **Maman.**
+
+Pas Denise. Un autre numéro.
+
+Les messages étaient courts.
+
+*« Elle est là. »*
+*« Elle commence à ressembler à moi. »*
+*« Encore quelques semaines. »*
+*« Tu seras fière de moi, maman. »*
+
+La dernière date d'avant-hier.
+
+Charlotte était vivante. Et elle parlait à sa mère biologique.
+
+---
+
+### Chapitre 54
+
+J'ai composé le numéro.
+
+Une femne a décroché.
+
+— Charlotte ?
+
+— Non, ai-je dit. C'est Clémence.
+
+Silence.
+
+— Je sais qui vous êtes. Je sais que Charlotte est vivante. Je sais que vous êtes sa mère biologique.
+
+La femme a respiré fort.
+
+— Vous n'avez pas le droit d'appeler ce numéro.
+
+— Ma sœur a tenté de me voler mon identité. Elle a kidnappé mon neveu. Elle a peut-être tué son mari. J'ai le droit de beaucoup de choses.
+
+— Charlotte est malade.
+
+— Charlotte est dangereuse.
+
+— Elle a passé sa vie à ne pas être aimée. À votre place, elle aurait tout fait pour être vous.
+
+— Ce n'est pas une excuse.
+
+— Non. Ce n'est pas une excuse. C'est une explication.
+
+Elle a raccroché.
+
+---
+
+### Chapitre 55
+
+J'ai reçu un message de Charlotte.
+
+Pas un appel. Un texto.
+
+*« Ne va pas chez elle. Elle ne peut rien pour toi. Viens seule. Plage de Kerfany. Ce soir, minuit. »*
+
+Je l'ai montré à Lucie.
+
+— C'est un piège.
+
+— Je sais.
+
+— Tu vas y aller quand même.
+
+— Oui.
+
+— Je viens avec toi.
+
+— Non. Elle a dit seule.
+
+— Clémence, elle est folle.
+
+— Elle est ma sœur.
+
+Lucie a fermé les yeux.
+
+— C'est exactement le problème.
+
+---
+
+### Chapitre 56
+
+J'ai confié Malo à Denise.
+
+Elle a vu mon visage et n'a rien demandé.
+
+— Tu vas la voir.
+
+— Oui.
+
+— Elle te fera du mal.
+
+— Peut-être.
+
+— Pourquoi tu vas alors ?
+
+— Parce que si je ne vais pas, elle reviendra. Et la prochaine fois, je ne pourrai pas la stopper.
+
+Denise a serré Malo contre elle.
+
+— Tu es plus forte qu'elle, Clémence. Tu l'as toujours été.
+
+— Elle ne le sait pas.
+
+— Si. C'est pour ça qu'elle te voulait.
+
+---
+
+### Chapitre 57
+
+La plage de Kerfany était déserte à minuit.
+
+La mer était noire. Le ciel couvert. Pas de lune.
+
+J'ai marché sur le sable. Le vent me giflait le visage.
+
+Je l'ai vue au loin. Debout au bord de l'eau.
+
+Elle portait une robe blanche. Ses cheveux blonds flottaient.
+
+Charlotte.
+
+Pas Ariane. Pas une imitatrice. Elle.
+
+Elle s'est retournée quand je me suis approchée.
+
+— Tu es venue, a-t-elle dit.
+
+— Où est la vraie Charlotte ?
+
+Elle a ri.
+
+— Je suis la vraie.
+
+— Non. La vraie Charlotte est morte. Ou cachée. Toi, tu es la remplaçante.
+
+— Et toi ? Qui es-tu ?
+
+— Clémence.
+
+— Es-tu sûre ?
+
+Elle a fait un pas vers moi.
+
+— Tu as passé des semaines à dormir dans mon lit, à porter mes vêtements, à aimer mon fils. Tu n'es plus Clémence. Tu es ce que je t'ai faite devenir.
+
+---
+
+### Chapitre 58
+
+J'ai voulu reculer. Le sable m'aspirait.
+
+— Pourquoi ? ai-je demandé.
+
+— Parce que je ne pouvais plus vivre ma vie. Paul me surveillait. Il avait découvert Les Doubles. Il voulait m'enfermer.
+
+— Alors tu l'as tué.
+
+— Non. Ariane l'a poussé dans l'escalier. Sur mon ordre.
+
+Elle l'a dit sans émotion.
+
+— Et l'accident ?
+
+— J'avais besoin de disparaître. Ariane voulait devenir moi. Je lui ai laissé croire que c'était possible.
+
+— Tu l'as envoyée à la mort.
+
+— Elle est morte en croyant devenir quelqu'un d'aimé.
+
+J'ai senti la haine monter.
+
+— Et Malo ?
+
+— Malo est à moi.
+
+— Non. Malo est sous ma protection.
+
+— Tu ne peux pas le protéger éternellement. Tu es faible, Clémence. Tu l'as toujours été.
+
+---
+
+### Chapitre 59
+
+Charlotte a sorti un pistolet de sa poche.
+
+Un petit pistolet noir. Argenté.
+
+— Ne bouge pas.
+
+— Tu vas me tuer ?
+
+— Je vais te rendre invisible. Comme tu l'as toujours été.
+
+Elle a levé l'arme.
+
+— Adieu, Clémence.
+
+J'ai fermé les yeux.
+
+Le coup est parti.
+
+Mais pas sur moi.
+
+Charlotte s'est effondrée sur le sable.
+
+Derrière elle, Ariane. Le bras en sang. Le visage défiguré par la douleur.
+
+Elle tenait une arme.
+
+— Personne ne prend ma place, a-t-elle soufflé.
+
+---
+
+### Chapitre 60
+
+Ariane a lâché le pistolet.
+
+Elle s'est approchée de Charlotte. Elle s'est accroupie.
+
+— Tu m'as dit que j'aurais ta vie. Tu m'as dit que je serais aimée.
+
+Charlotte respirait avec peine.
+
+— Je… je t'ai…
+
+— Tu m'as menti. Comme tu mens tout le monde.
+
+Ariane a levé la tête vers moi.
+
+— Appelle les secours. Elle n'est pas encore morte.
+
+— Pourquoi tu m'as sauvée ? ai-je demandé.
+
+— Parce que tu es la seule qui n'a jamais voulu être quelqu'un d'autre.
+
+Elle s'est levée. Elle a commencé à s'éloigner.
+
+— Ariane !
+
+— Dis à Malo que sa maman l'aime. Même si elle ne sait pas comment.
+
+Elle a disparu dans l'obscurité.
+
+Je suis restée seule avec Charlotte. J'ai appelé les secours.
+
