@@ -1309,3 +1309,239 @@ Je suis restée avec la poubelle à la main, le cœur battant.
 
 Presque.
 
+
+---
+
+### Chapitre 20
+
+Le téléphone a sonné à trois heures du matin.
+
+J'ai sursauté, le cœur déjà dans la gorge. J'avais dormi par à-coups, hantée par l'escalier de pierre et le sang sur le carrelage.
+
+J'ai attrapé mon téléphone sur la table de chevet. Numéro inconnu.
+
+J'ai hésité.
+
+Puis j'ai décroché.
+
+— Allô ?
+
+Silence.
+
+— Allô ? ai-je répété.
+
+Une respiration. Lente. Profonde.
+
+Puis une voix.
+
+— Tu n'aurais pas dû lire la lettre.
+
+J'ai senti la terreur me saisir.
+
+— Qui est à l'appareil ?
+
+— Tu sais qui.
+
+La voix était faible, comme filtrée par du coton. Mais le timbre… le timbre me glaçait.
+
+— Charlotte ?
+
+— Tu n'aurais pas dû lire la lettre, a répété la voix. Maintenant, tu es dans le jeu.
+
+— Quel jeu ?
+
+— Le jeu où tu deviens moi. Ou où tu meurs à ma place.
+
+J'ai serré le téléphone contre mon oreille.
+
+— Tu n'es pas morte.
+
+La voix a ri. Un rire à peine audible.
+
+— Personne ne meurt vraiment, Clémence. Pas quand on a un double.
+
+— Arrête. Arrête ces conneries.
+
+— Regarde dans le tiroir du bureau. Le petit tiroir de droite. Tu verras ce que je t'ai laissé.
+
+La communication a été coupée.
+
+Je suis restée immobile, le téléphone à la main. Mes doigts tremblaient.
+
+En bas, dans la maison, j'ai entendu Malo. Un cri étouffé. Un cauchemar.
+
+J'ai couru dans sa chambre.
+
+Il était assis dans son lit, les yeux écarquillés, le souffle court. Quand il m'a vue, il a tendu les bras.
+
+Pour la première fois, il m'a laissé le prendre contre lui.
+
+J'ai répété des mots doux, sans savoir ce que je disais. Il s'est endormi contre moi, peu à peu.
+
+Mais moi, je regardais la porte du couloir.
+
+Et je pensais au tiroir du bureau.
+
+---
+
+### Chapitre 21
+
+Le lendemain matin, j'ai ouvert le tiroir.
+
+Je savais que je ne devais pas. Après un appel anonyme, après une nuit sans sommeil, après un petit garçon qui avait sangloté dans mes bras, je savais que la chose intelligente était de prévenir la police.
+
+Mais je n'ai pas pu m'empêcher.
+
+Le tiroir de droite du bureau. Celui que j'avais ouvert la veille sans y prêter attention.
+
+Dedans, il y avait un carnet. Noir, avec un fermoir en cuivre usé.
+
+J'ai soulevé le fermoir.
+
+La première page portait une date. Il y avait trois ans.
+
+*« Aujourd'hui, Clémence est venue au mariage d'Émilie. Elle portait une robe bleue trop grande. Elle était pâle. Elle a refusé de danser. Elle a regardé Paul tout le soir. Elle est repartie avant le gâteau. »*
+
+J'ai tourné la page.
+
+*« Clémence a déménagé à Rennes. Un appartement dans le quartier Sainte-Anne. Elle a une plante sur le balcon. Elle l'a appelée Marcel. »*
+
+Encore une page.
+
+*« Clémence a commencé à travailler à la médiathèque de Rennes. Elle a coupé ses cheveux. C'est mieux. Elle ressemble moins à nous. »*
+
+Le carnet entier était consacré à moi.
+
+Des photos. Des adresses. Des horaires. Des observations.
+
+*« Clémence prend le bus 12 le matin. Elle lit du Temps qu'elle ne finit jamais. »*
+*« Clémence a un collègue, Lucien. Elle ne l'aime pas. »*
+*« Clémence a rencontré un homme, Théo, en novembre. Relation de trois semaines. Elle l'a quitté. »*
+
+J'ai tourné les pages de plus en plus vite.
+
+Puis je suis tombée sur une page différente.
+
+*« Le Plan. »*
+
+Sous le titre, une liste.
+
+*1. Organiser la disparition.*
+*2. Former une remplaçante.*
+*3. Lui apprendre à être moi.*
+*4. La substituer.*
+*5. Effacer mes traces.*
+*6. Reprendre ma vie sous son nom.*
+
+J'ai lâché le carnet.
+
+Charlotte avait tout organisé. Ma surveillance. Ma venue. La tutelle. Tout.
+
+Elle ne voulait pas que je m'occupe de Malo.
+
+Elle voulait que je devienne elle.
+
+---
+
+### Chapitre 22
+
+J'ai appelé Lucie à midi.
+
+Lucie était ma collègue de la bibliothèque de Rennes. Elle était un peu folle, beaucoup trop bavarde, et elle connaissait tout le monde. Si quelque chose d'étrange se tramait dans la région, Lucie le savait.
+
+— Clémence ? a-t-elle dit en décrochant. Tu es vivante ? On dirait que tu as disparu.
+
+— Je suis à Kerfany. Je m'occupe de mon neveu.
+
+— Ah oui. J'ai entendu parler pour ta sœur. Mes condoléances.
+
+J'ai hésité.
+
+— Lucie, tu connais un truc qui s'appelle les Doubles ?
+
+Le silence a duré trois secondes.
+
+— Pourquoi tu me demandes ça ?
+
+— Parce que Charlotte y était liée.
+
+— Comment tu sais ?
+
+J'ai senti mon pouls s'accélérer.
+
+— Je ne sais pas grand-chose. Juste un nom. Faustine.
+
+— Merde. Clémence, écoute-moi. Les Doubles, ce n'est pas une légende. C'est un groupe. Une communauté, dirais-je. Des gens qui croient que tout individu mérite un double. Quelqu'un qui peut prendre sa place quand la vie devient trop lourde.
+
+— Quand la vie devient trop lourde ?
+
+— Quand ils veulent disparaître. Mourir socialement sans mourir physiquement. Laisser quelqu'un d'autre porter leurs dettes, leurs échecs, leurs erreurs.
+
+— Et la personne qu'on laisse derrière ?
+
+— Elle continue la vie. Elle devient vous.
+
+J'ai serré le téléphone.
+
+— QuiFaustine ?
+
+— Une initiatrice. Elle repère les gens. Les doubleurs, comme elle dit. Ceux qui ont le bon physique, le bon profil psychologique. Elle les forme.
+
+— Elle forme des sosies ?
+
+— Elle forme des remplaçants.
+
+— Lucie, il faut que je la trouve.
+
+— Pourquoi ?
+
+— Parce que je crois que Charlotte n'est pas morte. Et que quelqu'un veut que je la remplace pour de bon.
+
+Lucie a respiré fort.
+
+— Tu es sûre que tu veux savoir ? Parce que si elle t'a choisie, c'est que tu remplis les conditions. Tu es proche d'elle. Tu lui ressembles. Et tu es seule.
+
+— C'est exactement ce qui m'effraie.
+
+— Je vais te donner son adresse. Mais Clémence…
+
+— Oui ?
+
+— Méfie-toi des gens qui disent vouloir t'aider à trouver la vérité. Ils veulent souvent t'entraîner dedans.
+
+---
+
+### Chapitre 23
+
+Je suis partie pour Rennes le mardi matin.
+
+J'avais confié Malo à Inès pour la journée. Elle avait insisté pour le prendre.
+
+— Tu as besoin de temps pour toi, avait-elle dit. Ne t'inquiète pas. Je connais les rituels.
+
+Je conduisais la voiture de Charlotte. Une Volvo noire, impeccable, qui sentait encore son parfum.
+
+J'avais mis le pull bleu marine. J'avais pris le carnet. J'avais vérifié dix fois l'adresse de Lucie.
+
+Rennes m'a parue étrangère.
+
+Après une semaine à Kerfany, je ne savais plus vivre en ville. Les klaxons, les passages piétons, les regards croisés. Tout me semblait hostile.
+
+J'ai garé la voiture près de la gare et j'ai marché jusqu'à l'adresse.
+
+Rue du Chapitre, au-dessus d'une librairie ancienne. Une porte verte avec une sonnette en laiton.
+
+J'ai sonné.
+
+Une femme a ouvert. Jeune, les cheveux rasés, des tatouages aux mains.
+
+— Faustine ? ai-je demandé.
+
+— Oui.
+
+— Je suis Clémence Barreau. La sœur de Charlotte Vaillant.
+
+Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas.
+
+— Ah, a-t-elle dit enfin. La remplaçante.
+
