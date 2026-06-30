@@ -1734,3 +1734,340 @@ Un passeport. À ma photo. Au nom de Charlotte Vaillant.
 
 — Tu es morte, Clémence. Tu es morte dans un accident il y a des mois. Et moi, je suis enfin rentrée chez moi.
 
+
+### Chapitre 41
+
+La femme qui me ressemblait ne bougeait pas.
+
+Elle me regardait comme si elle me connaissait depuis toujours. Comme si c'était moi l'intruse.
+
+— Où est Malo ? ai-je répété.
+
+— En sécurité.
+
+— Si tu lui as fait du mal…
+
+— Je ne lui ferais jamais de mal. C'est mon fils.
+
+Sa voix avait un accent bizarre. Comme Charlotte imitant ma voix.
+
+— Tu n'es pas Charlotte.
+
+— Non, a-t-elle dit calmement. Je suis la nouvelle Charlotte.
+
+Elle a fait un pas vers moi.
+
+— Ton frère connaît ton nom, Clémence. Demain, ton nom sera sur la tombe. Et personne ne viendra vérifier.
+
+J'ai regardé autour de moi. Il y avait une lampe sur la table de nuit. Je l'ai saisie.
+
+— Ne approche pas.
+
+Elle a souri.
+
+— Exactement ce qu'aurait fait Charlotte.
+
+J'ai frappé.
+
+La lampe l'a effleurée. Elle a esquivé. Elle m'a poussée. Je suis tombée contre le mur.
+
+Quand j'ai rouvert les yeux, elle était partie.
+
+---
+
+### Chapitre 42
+
+J'ai couru dans toute la maison.
+
+Rien. Pas de femme. Pas de Malo.
+
+J'ai appelé Denise. Trois fois. Elle a décroché.
+
+— Maman, Malo est chez toi ?
+
+— Quoi ? Non. Pourquoi ?
+
+J'ai raccroché sans répondre.
+
+Puis j'ai appelé l'école. Madame Rivet était là.
+
+— Malo Vaillant est parti à l'heure habituelle. Sa mère est venue le chercher.
+
+— Sa mère ?
+
+— Madame Vaillant. Une femme blonde. Elle avait les papiers.
+
+J'ai senti le sang quitter mon visage.
+
+— Ce n'était pas moi.
+
+— Comment ?
+
+— Ce n'était pas moi ! ai-je hurlé.
+
+J'ai raccroché. J'ai pris mes clés. Je suis partie.
+
+---
+
+### Chapitre 43
+
+Je n'avais aucune idée de où chercher.
+
+J'ai conduit vers Rennes. Vers l'appartement de Faustine. Peut-être qu'elle saurait.
+
+La porte était ouverte.
+
+Trop ouverte.
+
+J'ai poussé.
+
+L'appartement avait été saccagé. Cartons renversés. Meubles brisés. Sur le mur, écrit au rouge à lèvres :
+
+*« Ne cherche pas. Elle est à sa place. »*
+
+Sur le sol, un bracelet. Un camélia.
+
+La bague du corps dans l'accident.
+
+J'ai appelé Faustine. Pas de réponse.
+
+J'ai fouillé dans les débris. J'ai trouvé un téléphone. Un vieux portable. Il fonctionnait encore.
+
+Dans les messages, un nom revenait constamment.
+
+**Ariane.**
+
+Et une adresse. Kerfany. La maison voisine. Celle de Gilles.
+
+---
+
+### Chapitre 44
+
+Gilles ouvrait sa porte quand je suis arrivée.
+
+— Vous avez pris Malo.
+
+— Quoi ?
+
+— Votre femme. Ariane. Elle a pris mon neveu.
+
+Il a pâli.
+
+— Ariane n'est pas ma femme.
+
+— Qui c'est ?
+
+Il m'a fait entrer. Il tremblait.
+
+— Ariane était… une amie de Charlotte. Elles se connaissaient dans Les Doubles. Ariane voulait devenir Charlotte. Charlotte le savait.
+
+— Et elle a laissé faire ?
+
+— Non. Elle l'a manipulée. Elle lui a promis sa place. En échange, Ariane devait disparaître après avoir pris l'identité de Charlotte.
+
+— Le corps dans l'accident.
+
+— Oui. Charlotte a organisé sa propre mort. Ariane est morte à sa place.
+
+— Mais pourquoi elle a pris Malo ?
+
+— Parce qu'elle veut finir le plan. Devenir Charlotte pour de vrai. Et pour ça, elle a besoin de tout ce qui appartenait à Charlotte.
+
+— Y compris son fils.
+
+Gilles a baissé la tête.
+
+— Y compris toi, a-t-il murmuré.
+
+---
+
+### Chapitre 45
+
+Gilles m'a parlé de l'endroit.
+
+— Il y a une maison. Sur la côte, entre Kerfany et Beg Meil. Une ancienne villa de famille. Charlotte y allait enfant.
+
+— Ma famille n'a jamais eu de maison ici.
+
+— Pas votre famille. L'autre.
+
+— Quelle autre ?
+
+— Les Lemoine. La famille biologique de Charlotte.
+
+Je ne comprenais plus.
+
+— Charlotte était adoptée ?
+
+— Non. Échangée. À la naissance. Vos parents avaient perdu un bébé. On leur en a donné un autre. Charlotte venait d'ailleurs.
+
+J'ai reculé.
+
+— C'est faux.
+
+— C'est pour ça qu'elle ne se sentait jamais à sa place. Ce n'était pas chez elle. Elle voulait redevenir celle qu'elle aurait dû être.
+
+— Et qui c'était ?
+
+— Toi, a dit Gilles. Elle voulait redevenir toi.
+
+---
+
+### Chapitre 46
+
+J'ai conduit jusqu'à la villa.
+
+Route étroite. Pins. Mer au loin. La maison apparaissait au détour d'un virage.
+
+Blanche. Volets bleus. Abandonnée.
+
+Pas tout à fait.
+
+Une lumière au premier étage.
+
+J'ai garé la voiture plus loin. J'ai continué à pied.
+
+La porte n'était pas fermée à clé.
+
+J'ai poussé doucement.
+
+L'intérieur sentait le sel et le renfermé. Des meubles recouverts de draps blancs. Au mur, des photos jaunies.
+
+Une famille que je ne connaissais pas.
+
+Et au milieu, une photo encadrée.
+
+Deux bébés. L'un blotti contre l'autre.
+
+Sur le cadre, une date. Notre date de naissance.
+
+Mais deux bébés.
+
+---
+
+### Chapitre 47
+
+J'ai monté l'escalier.
+
+Chaque marche craquait sous mon poids. J'avais peur que le bruit me trahisse.
+
+Au premier étage, un couloir. Trois portes.
+
+La première : une chambre vide.
+
+La deuxième : une salle de bain.
+
+La troisième : fermée.
+
+J'ai écouté. Une voix. Ariane. Elle parlait doucement.
+
+— Maman va revenir. Elle a juste un peu de travail.
+
+J'ai ouvert la porte.
+
+Ariane était assise sur le lit. Malo dormait à côté d'elle. Elle le caressait.
+
+— Tu es courageuse, a-t-elle dit sans se retourner. Charlotte avait raison.
+
+— Laisse-le partir.
+
+— Je ne peux pas. Il est à moi maintenant.
+
+Elle s'est levée. Elle avait toujours mon visage.
+
+— Tu sais ce qui est drôle ? Charlotte voulait ta vie. Moi, je veux la sienne. Et toi, tu n'en as plus aucune.
+
+---
+
+### Chapitre 48
+
+J'ai courbu vers Malo.
+
+Ariane m'a barré le passage.
+
+— Il faut d'abord que tu me tues, a-t-elle dit. Comme Charlotte a tué Paul.
+
+— Charlotte n'a pas tué Paul.
+
+— Si. Elle l'a poussé dans l'escalier. Elle voulait qu'il meure pour pouvoir partir avec Malo. Mais il a survécu. Alors elle a monté l'accident.
+
+— C'est faux.
+
+— C'est ce qu'elle m'a dit. Juste avant de m'envoyer à ma mort.
+
+Elle a ri.
+
+— Mais je ne suis pas morte, Clémence. J'ai survécu. J'ai brûlé, j'ai souffert, j'ai guéri. Et maintenant, c'est mon tour.
+
+Elle a sorti un couteau de derrière son dos.
+
+— Charlotte m'a promis que je vivrais sa vie. Toi, tu as pris ma place. Je vais la reprendre.
+
+---
+
+### Chapitre 49
+
+J'ai attrapé le premier objet à portée de main.
+
+Un vase. Je l'ai jeté vers elle.
+
+Elle a esquivé. Le vase s'est brisé contre le mur.
+
+Malo a sursauté. Il a ouvert les yeux.
+
+— Clémence ! a-t-il crié.
+
+— Cours ! ai-je hurlé.
+
+Ariane s'est jetée sur moi. Le couteau a effleuré mon bras. J'ai poussé un cri.
+
+Nous sommes tombées par terre. Elle au-dessus de moi. Le couteau entre nous.
+
+— Tu as perdu, a-t-elle soufflé.
+
+— Pas encore.
+
+J'ai donné un coup de genou. Elle a basculé. J'ai roulé sur le côté. J'ai saisi le couteau.
+
+Elle s'est redressée. Elle a vu la lame entre ses mains.
+
+— Tu ne peux pas me tuer, a-t-elle dit. Tu ne sais pas laquelle de nous est la vraie.
+
+— Si, ai-je dit.
+
+Et j'ai frappé.
+
+---
+
+### Chapitre 50
+
+Je n'ai pas tué Ariane.
+
+J'ai frappé son épaule. Assez pour la faire tomber. Assez pour qu'elle lâche sa rage.
+
+Elle s'est effondrée sur le lit en sanglotant.
+
+— Elle m'a promis. Elle m'a promis que je serais aimée.
+
+J'ai pris Malo dans mes bras. Il tremblait.
+
+— On y va, ai-je murmuré.
+
+— C'est vraiment toi ? a-t-il demandé.
+
+— Oui.
+
+— Comment tu sais ?
+
+— Parce que j'ai peur. Et je t'aime. Les autres n'ont que la peur.
+
+Nous sommes sortis de la villa. La pluie commençait à tomber.
+
+Dans la voiture, Malo s'est endormi contre moi.
+
+J'ai regardé la maison dans le rétroviseur. Une femme à la fenêtre. Ariane. Elle me regardait partir.
+
+Elle n'a pas couru derrière nous.
+
+Pas cette fois.
+
