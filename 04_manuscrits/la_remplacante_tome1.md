@@ -1545,3 +1545,240 @@ Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas.
 
 — Ah, a-t-elle dit enfin. La remplaçante.
 
+
+---
+
+### Chapitre 24
+
+Faustine m'a fait entrer.
+
+L'appartement était sombre, encombré de livres et de plantes. Une odeur de thé froid et d'encens. Des tapis partout, même dans la cuisine.
+
+Elle m'a fait asseoir sur un canapé bas.
+
+— Tu veux boire quelque chose ?
+
+— Non.
+
+— Dommage. J'ai un excellent rooibos.
+
+— Je ne suis pas là pour boire.
+
+Elle s'est assise en face de moi, les jambes croisées.
+
+— Charlotte m'a parlé de toi. Avant l'accident.
+
+— Qu'est-ce qu'elle t'a dit ?
+
+— Que tu étais parfaite.
+
+J'ai senti ma gorge se serrer.
+
+— Parfaite pour quoi ?
+
+— Pour la remplacer.
+
+Faustine a posé ses coudes sur ses genoux.
+
+— Les Doubles, ce n'est pas un culte. C'est un service. Des gens veulent disparaître. Mourir sans mourir. Ils paient pour ça. Beaucoup.
+
+— Et la personne qui les remplace ?
+
+— Elle est choisie. Volontaire ou non. Elle apprend. Elle s'entraîne. Et un jour, elle prend la place.
+
+— Charlotte voulait que je sois elle.
+
+— Charlotte voulait que tu sois sa version améliorée. Plus discrète, plus douce, plus facile à contrôler.
+
+— Contrôler ?
+
+— Tout le monde veut contrôler son double. C'est le rêve de l'original : être deux endroits à la fois, sans assumer les conséquences.
+
+J'ai sorti le carnet.
+
+— Elle m'a surveillée pendant des années.
+
+— C'est la première étape. Observer. Comprendre les gestes, les intonations, les peurs. Pour pouvoir les imiter.
+
+— Et si je refuse ?
+
+Faustine a souri.
+
+— Tu as déjà commencé. Tu portes ses vêtements. Tu dors dans sa maison. Tu élèves son fils.
+
+— Parce qu'on m'y a forcée.
+
+— Personne ne force qui que ce soit à devenir un double. On vous pousse. Vous marchez.
+
+— Je ne marcherai pas.
+
+— C'est ce que disent toutes les remplaçantes. Au début.
+
+---
+
+### Chapitre 25
+
+Quand je suis rentrée, j'ai cherché la garde-robe.
+
+Faustine m'avait donné un indice.
+
+*« Regarde derrière le miroir de la chambre principale. Charlotte avait tout préparé. »*
+
+J'ai grimpé l'escalier. Malo dormait déjà, chez Inès. La maison était silencieuse.
+
+Dans la chambre principale, j'ai poussé le grand miroir en pied.
+
+Derrière, une porte discrète, presque invisible dans le lambris.
+
+J'ai ouvert.
+
+Une seconde garde-robe.
+
+Plus petite que la première. Mais plus terrifiante.
+
+Des vêtements suspendus. Des vêtements neufs, sans étiquette. Tous à ma taille. Tous dans le style de Charlotte.
+
+Mais ce n'était pas tout.
+
+Sur les étagères, il y avait des perruques. Des perruques blondes, comme les cheveux de Charlotte. Des lentilles de contact. Des produits de maquillage.
+
+Et des papiers.
+
+Des passeports.
+
+J'ai pris le premier. Photo de Charlotte. Nom : Clémence Barreau.
+
+J'ai pris le deuxième. Photo de moi. Nom : Charlotte Vaillant.
+
+J'ai lâché les passeports.
+
+Charlotte avait préparé un échange total. Elle allait devenir moi. Et j'allais devenir elle.
+
+Pour toujours.
+
+---
+
+### Chapitre 26
+
+Inès a installé les nouvelles caméras le lendemain.
+
+— C'est temporaire, a-t-elle dit. Jusqu'à ce que tu te sentes en sécurité.
+
+— Je ne me sens pas en sécurité.
+
+— C'est normal. Ça prend du temps.
+
+Elle a placé une caméra dans le couloir, une dans le salon, une devant la porte d'entrée.
+
+— Tu as déjà regardé les enregistrements ? ai-je demandé.
+
+— Non. C'est privé.
+
+— Même si c'est toi qui les as installés ?
+
+— Surtout si c'est moi qui les ai installés.
+
+Elle est partie peu après.
+
+Cette nuit-là, j'ai regardé les enregistrements.
+
+Rien de spécial pendant des heures. La maison dormait. Les images en noir et blanc défilaient, hypnotiques.
+
+Puis, à 3h23, j'ai vu quelque chose.
+
+Une silhouette dans le jardin.
+
+Une femme. Une femme en robe sombre, debout près de la baie vitrée.
+
+Elle regardait à l'intérieur.
+
+Je me suis penchée sur l'écran.
+
+Elle portait une longue robe noire. Ses cheveux étaient attachés en arrière. Son visage était dans l'ombre.
+
+Elle a levé la main. Elle a posé la paume contre la vitre.
+
+Comme si elle attendait qu'on lui ouvre.
+
+Comme si elle connaissait la maison par cœur.
+
+Puis elle est partie. Sans se presser. Sans se retourner.
+
+J'ai regardé l'heure.
+
+3h23.
+
+J'ai enregistré la vidéo. J'ai regardé encore et encore.
+
+À chaque fois, la même chose.
+
+La femme en robe noire.
+
+Et sa main contre la vitre.
+
+---
+
+### Chapitre 27
+
+Malo m'a regardée différemment le lendemain.
+
+Nous prenions le petit déjeuner. J'avais essayé de faire des crêpes, mieux que la première fois. Elles étaient presque réussies.
+
+Il a regardé son assiette.
+
+— Tu as changé, a-t-il dit.
+
+— Comment ?
+
+— Tu parles comme elle.
+
+— Comme maman ?
+
+Il a hoché la tête.
+
+— Tu dis les mêmes mots. Tu fais les mêmes bruits avec la cuillère.
+
+J'ai regardé la cuillère dans ma main.
+
+Je l'avais posée contre la tasse de la même façon que Charlotte. Sans m'en rendre compte.
+
+— Je ne fais pas exprès, ai-je dit.
+
+— C'est comme si elle était revenue.
+
+Sa voix était calme, sans émotion.
+
+— Tu aimerais ça ? ai-je demandé.
+
+Il a réfléchi.
+
+— Non.
+
+— Pourquoi ?
+
+— Parce que maman avait peur. Elle regardait la porte tout le temps. Elle dormait pas. Elle criait dans la nuit.
+
+J'ai senti un frisson me parcourir.
+
+— Elle criait quoi ?
+
+— Elle disait : « Elle va me reprendre. Elle va me reprendre. »
+
+— Qui ?
+
+— Je sais pas.
+
+Malo a enfin regardé ses crêpes.
+
+— Je veux pas qu'elle revienne, a-t-il dit.
+
+— Maman ?
+
+— Non. L'autre.
+
+— Quelle autre ?
+
+Il a baissé la voix.
+
+— Celle qui a le même visage qu'elle.
+
