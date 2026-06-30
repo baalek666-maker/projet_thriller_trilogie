@@ -211,3 +211,168 @@ J'ai regardé ma mère.
 
 — Non, a-t-elle dit vite. Mais je savais qu'elle préparait quelque chose. Charlotte préparait toujours quelque chose.
 
+
+---
+
+### Chapitre 4
+
+Les funérailles ont lieu le samedi matin.
+
+Il pleut. Pas une pluie bretonne habituelle, fine et tenace. Une pluie drue, presque agressive, comme si le ciel voulait empêcher les gens de venir.
+
+Ils sont venus quand même.
+
+Tout le village, à peu près. Les amis de Charlotte, qui la connaissaient depuis l'école. Les collègues de Paul. Des voisins. Des gens que je n'avais jamais vus et qui me regardaient avec une curiosité polie.
+
+Je les détestais déjà.
+
+J'étais assise au premier rang, à côté de Denise. Ma mère pleurait sans bruit, le mouchoir serré contre les lèvres. Ses larmes étaient propres, contrôlées. Elle avait toujours pleuré ainsi, même quand nous étions enfants. Une chorégraphie du deuil.
+
+Paul était à ma gauche.
+
+Il ne pleurait pas. Il regardait le cercueil avec une intensité étrange, comme s'il attendait qu'il s'ouvre. Son costume noir lui allait bien. Trop bien. Charlotte avait dû le choisir.
+
+— Tu as vu Malo ? a murmuré Denise.
+
+J'ai regardé autour de moi.
+
+L'enfant était assis au bout du banc, les pieds pendant dans le vide. Il portait un petit costume sombre qui le faisait paraître encore plus fragile. Il ne bougeait pas. Il ne regardait pas le cercueil. Il fixait ses chaussures, ou quelque chose devant ses chaussures.
+
+— Il ne parle plus, a dit Denise. Depuis qu'ils l'ont retrouvé.
+
+— Retrouvé ?
+
+— Dans la maison, le matin de l'accident. Paul était en déplacement. Charlotte… avait confié Malo à une voisine. Apparemment elle est revenue le chercher dans la nuit. Le lendemain, la voisine l'a retrouvé seul dans sa chambre. Il n'a pas dit un mot depuis.
+
+J'ai observé le petit garçon.
+
+Il avait les cheveux blonds de Charlotte, mais coupés court, en bataille. Ses mains reposaient sur ses genoux, ouvertes, comme s'il attendait qu'on les tienne.
+
+— Bonjour Malo, ai-je dit en me penchant.
+
+Il n'a pas levé les yeux.
+
+— Je suis Clémence. Ta tante.
+
+Rien.
+
+J'ai tendu la main. Il ne l'a pas prise. Il ne l'a pas non plus repoussée. Il a simplement continué à regarder devant lui.
+
+— Laisse-le, a dit Paul sans me regarder. Il ne parle à personne.
+
+— Même à toi ?
+
+— Surtout pas à moi.
+
+Le prêtre a commencé à parler. Des mots doux, convenus. Une vie fauchée trop tôt. Une mère aimante. Une femme généreuse.
+
+J'ai pensé à la lettre. *Si tu lis cette lettre, c'est que je suis morte.* Qui écrit ce genre de chose ?
+
+Quand on a descendu le cercueil, quelqu'un a sangloté derrière moi. Je me suis retournée. Une femme aux cheveux roux, le visage caché par un chapeau noir. Elle a croisé mon regard une seconde. Puis elle a baissé les yeux.
+
+Je ne savais pas qui c'était.
+
+Mais elle m'a regardée comme si elle me connaissait.
+
+---
+
+### Chapitre 5
+
+Le notaire nous a reçus lundi après-midi.
+
+Maison Daoulas, 4 rue de l'Église. Un bureau de notaire exactement comme on s'y attend : boiseries sombres, tapis épais, odeur de vieux papier et d'eau de toilette masculine.
+
+Denise, Paul et moi étions assis devant le bureau. Malo était resté avec une voisine.
+
+Maître Nourry portait des lunettes à monture dorée. Il avait l'air fatigué, comme s'il avait déjà fait ce discours cent fois ce mois-ci.
+
+— Madame Vaillant a rédigé son testament il y a un an, a-t-il commencé. Elle a tout prévu avec une… précision remarquable.
+
+Il a ouvert un classeur.
+
+— Concernant la tutelle de son fils, Malo Vaillant, elle désigne sa sœur, madame Clémence Barreau, comme tutrice unique et légale.
+
+J'ai senti le regard de Denise se poser sur moi. Lourd. Accusateur.
+
+— Concernant le patrimoine immobilier, la maison de famille située à Kerfany-Plage est mise à disposition de madame Barreau pour une durée d'un an à compter de ce jour, le temps qu'elle assume la tutelle et l'éducation de l'enfant. Passé ce délai, si madame Barreau ne souhaite pas conserver l'enfant à sa charge, la maison sera revendue et les fonds reversés à l'Assistance publique.
+
+— Elle me l'a mise sous le nez, ai-je murmuré.
+
+— Pardon ? a dit le notaire.
+
+— Rien.
+
+Paul, lui, était resté de marbre.
+
+— Concernant les autres biens, a continué Maître Nourry, monsieur Vaillant conserve l'appartement de Rennes et ses revenus professionnels. Madame Barreau percevra une allocation mensuelle de 1 200 euros pour les frais liés à l'éducation de Malo, versée sur un compte dédié.
+
+— Et si je refuse ? ai-je demandé.
+
+Le notaire a retiré ses lunettes.
+
+— Vous pouvez refuser. Dans ce cas, la tutelle sera confiée au juge des enfants. Probablement une famille d'accueil, dans un premier temps.
+
+J'ai regardé Paul.
+
+— Tu ne veux pas de lui ?
+
+— Ce n'est pas mon fils, a-t-il dit.
+
+La pièce est devenue silencieuse.
+
+— Pardon ?
+
+— Biologiquement, oui. Légalement, oui. Mais Charlotte et moi… nous n'étions plus ensemble. Pas vraiment. Elle m'a demandé de rester pour les apparences. J'ai accepté pour Malo.
+
+— Tu acceptes de le laisser partir ?
+
+Paul a enfin tourné la tête vers moi.
+
+— Je n'ai jamais été son père, Clémence. Pas au sens où ça compte.
+
+J'ai regardé le classeur.
+
+*« Tu ne m'as pas vue depuis trois ans. »*
+
+Charlotte m'avait piégée. Avec une maison, un enfant, un an d'engagement. Elle savait que je ne pourrais pas refuser. Pas si l'autre option était l'abandon.
+
+— Donnez-moi les papiers, ai-je dit.
+
+---
+
+### Chapitre 6
+
+J'ai signé.
+
+Je ne sais pas pourquoi j'ai signé aussi vite. Par orgueil. Par culpabilité. Parce que Denise me regardait comme si elle attendait que je flanche.
+
+En sortant du cabinet, la pluie s'était arrêtée. L'air sentait la mer et l'algue. Kerfany-Plage était à dix minutes.
+
+Je suis allée marcher sur la plage.
+
+Il y avait du vent. Pas de touristes. Juste quelques chiens et un couple qui regardait les vagues de loin. J'ai marché jusqu'à ce que mes chaussures soient pleines de sable.
+
+Je ne voulais pas ressembler à Charlotte.
+
+C'était ma seule certitude. Ma seule règle. Ne pas être cette femme aux dents parfaites, aux rires faciles, aux projets ambitieux. Celle qui faisait de la voile, du yoga, du bénévolat. Celle qui postait des photos de gâteaux parfaitement dorés sur Instagram.
+
+Moi, j'étais celle qui rangeait les livres. Celle qui mangeait des pâtes devant la télé. Celle qui avait une plante sur son balcon et qui l'avait appelée Marcel.
+
+Charlotte m'avait toujours intimidée. Pas par méchanceté. Par excès. Elle était trop. Trop belle, trop sûre, trop présente. Quand elle entrait dans une pièce, les murs semblaient se rapprocher.
+
+Et maintenant, elle voulait que je devienne elle.
+
+Une tutrice, oui. Une mère de substitution, peut-être. Mais les vêtements dans l'armoire, la maison, la durée d'un an… tout ça sentait la mise en scène.
+
+Je me suis assise sur un rocher.
+
+La mer était grise, immense, indifférente.
+
+Quelque part derrière moi, dans le village, il y avait une maison pleine de vêtements à ma taille. Un petit garçon qui ne parlait pas. Un beau-frère froid. Une mère hostile.
+
+Et une sœur morte qui continuait de tirer les ficelles.
+
+Je ne voulais pas ressembler à Charlotte.
+
+Mais j'avais bien l'impression qu'elle avait prévu que je n'aie pas le choix.
+
