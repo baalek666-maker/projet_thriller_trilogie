@@ -637,3 +637,271 @@ J'ai baissé les yeux.
 
 Ma main, toujours vide, portait les empreintes de personnes qui n'étaient pas là.
 
+
+---
+
+### Chapitre 11
+
+La première nuit dans la maison de Charlotte, je n'ai pas dormi.
+
+Ce n'était pas le bruit. Il n'y en avait presque pas. Juste le vent contre les vitres, le cliquetis occasionnel du chauffage, le tic-tac d'une horloge que je n'arrivais pas à localiser.
+
+C'était le silence.
+
+Le silence d'une maison qui n'est pas la mienne. Le silence d'une vie qui ne m'appartient pas. Le silence de Charlotte, partout.
+
+J'ai arpenté les pièces une à une, sans allumer. La lune entrait par les grandes baies et dessinait des rectangles blancs sur le sol. Je reconnaissais les meubles sans les avoir vus le jour : le canapé bas, la table basse en marbre, la bibliothèque avec ses livres rangés par couleur.
+
+Charlotte rangeait ses livres par couleur.
+
+Moi, je les rangeais par cote.
+
+Dans la cuisine, j'ai ouvert le réfrigérateur. Il était plein. Inès avait fait les courses, ou peut-être quelqu'un d'autre. Yaourts bio, légumes sans pesticide, jus de betterave pressé à froid. Rien que je savais manger.
+
+J'ai pris une pomme.
+
+Elle était parfaite. Rouge uniforme, sans une tache. Quand je l'ai croquée, elle était sucrée à l'excès.
+
+Je suis montée à l'étage. Malo dormait dans la chambre à côté de la mienne. La porte était entrouverte. J'ai jeté un œil à l'intérieur.
+
+Il dormait sur le côté, recroquevillé, les genoux contre la poitrine. Il tenait une couverture entre ses doigts, comme un doudou.
+
+J'ai retenu mon souffle.
+
+Il ressemblait tellement à Charlotte. Pas seulement les cheveux. La façon dont il dormait. Le pli de ses paupières. L'arrondi de son menton.
+
+J'ai fermé la porte très doucement.
+
+Dans le couloir, il y avait des cadres. Des photos de Charlotte et Paul. De Charlotte et Malo. De Charlotte seule, souriante, triomphante.
+
+Aucune de moi.
+
+Je suis entrée dans ma chambre et j'ai fermé la porte à clé.
+
+La serrure a cliqué avec un bruit sec.
+
+J'ai regretté aussitôt. Comme si quelqu'un avait pu m'entendre.
+
+Comme si quelqu'un m'écoutait.
+
+---
+
+### Chapitre 12
+
+Le lendemain, j'ai ouvert l'armoire de Charlotte.
+
+Je ne sais pas pourquoi. Curiosité malsaine, sans doute. Ou besoin de comprendre ce qu'elle m'avait préparé.
+
+L'armoire coulissante occupait tout un mur de la chambre principale. Celle qui avait été la chambre de Charlotte et Paul. Je n'avais pas osé y dormir. J'avais choisi la chambre d'amis, plus petite, plus neutre.
+
+Mais l'armoire, je l'ai ouverte.
+
+Le premier coup d'œil m'a coupé le souffle.
+
+Des rangées de vêtements. Robes, blouses, pantalons, manteaux. Tous soigneusement rangés par couleur, comme les livres. Du blanc au noir, en passant par le bleu, le rose, le beige.
+
+Et sur chaque cintre, une étiquette.
+
+J'ai plissé les yeux. Je me suis approchée.
+
+Sur la robe noire, une étiquette blanche avec un mot écrit à la main : *Clémence.*
+
+Sur le pantalon gris : *Clémence.*
+
+Sur le manteau beige : *Clémence.*
+
+Sur le pull bleu marine : *Clémence.*
+
+Sur la blouse ivoire : *Clémence.*
+
+J'ai reculé.
+
+Je suis retombée sur le lit.
+
+Elle avait étiqueté ses vêtements à mon nom. Charlotte avait choisi, parmi toutes ses affaires, celles qui m'iraient. Qui me transformeraient en elle.
+
+Je suis restée assise un long moment à regarder ces étiquettes.
+
+Puis, lentement, j'ai pris la robe noire.
+
+Je l'ai tenue contre moi. Elle était lourde, de bonne qualité. J'ai regardé l'étiquette de taille. Un 38.
+
+Ma taille.
+
+J'ai pris le pantalon gris. Un 38.
+
+Le manteau beige. Un 38.
+
+Tout était ma taille.
+
+Je me suis levée et je me suis approchée du miroir en pied. J'ai mis la robe noire devant moi. Le reflet m'a fait l'effet d'un choc.
+
+Parce que, pendant une demi-seconde, j'ai cru voir Charlotte.
+
+
+---
+
+### Chapitre 13
+
+Malo a parlé pour la première fois le mercredi matin.
+
+Nous étions dans la cuisine. Je préparais du pain grillé, parce que c'était la seule chose que je savais faire. Malo était assis sur un tabouret haut, les jambes pendantes, à regarder les céréales que je lui avais versées sans qu'il les touche.
+
+Il ne mangeait presque pas. Il ne dormait pas bien. Il ne pleurait pas non plus.
+
+Il était là, simplement. Comme un petit fantôme en pyjama bleu.
+
+— Tu veux du beurre sur ton pain ? ai-je demandé.
+
+Il n'a pas répondu.
+
+— De la confiture ?
+
+Rien.
+
+J'ai posé mon couteau.
+
+— Malo, il faut que tu manges. Juste un peu.
+
+Il a regardé son assiette.
+
+— Maman mangeait pas le matin, a-t-il dit.
+
+Sa voix était si faible que j'ai failli ne pas l'entendre.
+
+J'ai retenu mon souffle.
+
+— Quoi ?
+
+Il a levé les yeux vers moi.
+
+— Maman mangeait pas le matin. Elle buvait du café noir. Elle disait que le petit déjeuner c'était pour les enfants et les vaches.
+
+J'ai souri malgré moi.
+
+— Ça, c'est bien elle.
+
+— Tu la connaissais ?
+
+— C'était ma sœur.
+
+Il a hoché la tête, comme si cette information le rassurait.
+
+— Tu vas devenir maman, maintenant ? a-t-il demandé.
+
+La question m'a transpercée.
+
+Je me suis assise en face de lui.
+
+— Non. Je vais m'occuper de toi. C'est différent.
+
+— Comment ?
+
+— Une maman, c'est… c'est ta maman. Moi, je suis ta tante. Je suis là pour t'aider. Pour qu'elle te manque moins.
+
+Il a réfléchi un moment.
+
+— Elle me manque quand même.
+
+— Je sais.
+
+— Tu vas partir aussi ?
+
+— Non.
+
+— Promis ?
+
+J'ai hésité une seconde.
+
+— Promis.
+
+Il a baissé les yeux. Puis, lentement, il a pris une bouchée de pain.
+
+J'ai senti mes yeux se remplir de larmes. Je me suis levée pour ne pas qu'il les voie.
+
+Dans l'évier, j'ai laissé couler l'eau. J'ai regardé par la fenêtre.
+
+La mer était là, immense, grise. Dehors, un homme passait avec un chien. Il a levé la tête vers la maison.
+
+C'était le voisin, je crois. Gilles. Celui que Paul m'avait présenté brièvement. Grand, maigre, avec des lunettes rondes et une allure de retraité quelconque.
+
+Il m'a regardée longtemps.
+
+Puis il a soulevé sa main et m'a saluée.
+
+Comme si je connaissais déjà.
+
+---
+
+### Chapitre 14
+
+Cette nuit-là, j'ai fait le rêve pour la première fois.
+
+Il commence toujours de la même façon. Je suis en haut d'un escalier. Un escalier de pierre, avec une rampe en bois usé. En bas, il y a du carrelage. Blanc et noir. Comme dans la maison de mon enfance.
+
+Quelqu'un est derrière moi.
+
+Je ne vois pas qui. Mais je sais que c'est Charlotte. Ou peut-être moi. Ou peut-être une autre version de moi.
+
+— Clémence, dit la voix.
+
+Je me retourne.
+
+L'escalier devient très haut. Beaucoup plus haut que dans la réalité. Les marches se rétrécissent. Le vide s'ouvre sous moi.
+
+— Tu m'as poussée, dit la voix.
+
+— Non.
+
+— Si. Tu m'as poussée. Tu voulais ma place.
+
+Je veux courir. Je ne peux pas. Mes pieds sont collés au sol.
+
+— Je ne voulais pas, dis-je.
+
+— Alors pourquoi tu as souri ?
+
+Je regarde en bas.
+
+Charlotte est allongée sur le carrelage. Elle me regarde. Elle sourit. Il y a du sang autour de sa tête. Beaucoup de sang.
+
+— Tu es moi, dit-elle.
+
+— Non.
+
+— Tu es moi et je suis toi. C'est pour ça que personne ne nous a jamais différenciées.
+
+Je tombe.
+
+Ou plutôt, c'est l'escalier qui tombe. Les marches se dérobent sous mes pieds. Je bascule en arrière. Le vide m'engloutit.
+
+Et juste avant de me réveiller, je vois Charlotte debout en haut de l'escalier. Elle me regarde tomber. Elle ne tend pas la main.
+
+Elle sourit.
+
+Je me suis réveillée en sursaut.
+
+La chambre était noire. Le coeur battait à cent à l'heure. J'avais les draps trempés.
+
+J'ai regardé l'heure. Quatre heures du matin.
+
+J'ai allumé la lampe de chevet. J'ai pris un verre d'eau. Mes mains tremblaient.
+
+En bas, dans la maison silencieuse, j'ai cru entendre un bruit.
+
+Un grincement.
+
+Comme quelqu'un qui monte l'escalier.
+
+J'ai retenu mon souffle.
+
+J'ai attendu.
+
+Rien.
+
+Juste le vent. Juste la maison qui vieillit.
+
+Je me suis rallongée.
+
+Mais je n'ai plus fermé l'œil.
+
