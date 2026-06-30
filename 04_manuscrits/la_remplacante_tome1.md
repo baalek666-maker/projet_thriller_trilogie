@@ -2371,3 +2371,194 @@ Elle a hoché la tête.
 
 — Comme toujours.
 
+
+---
+
+### Chapitre 40
+
+Charlotte a survécu.
+
+L'opération a duré six heures. La balle avait traversé l'épaule et perforé un poumon. Les médecins disaient que c'était limite.
+
+Je suis restée à l'hôpital jusqu'à l'aube.
+
+Inès avait emmené Malo. Elle m'a envoyé un message : *« Il dort. On est chez moi. »*
+
+J'ai regardé par la fenêtre du couloir. Le ciel devenait rose au-dessus de la baie.
+
+Une infirmière est passée.
+
+— Vous êtes la sœur ?
+
+— Oui.
+
+— Elle a repris conscience un instant. Elle a demandé après vous.
+
+— Après moi ?
+
+— Elle a dit : « Dis-lui que je suis désolée. »
+
+Je n'ai pas su quoi répondre.
+
+Désolée.
+
+Le mot me paraissait ridicule. Trop petit pour tout ce qu'elle avait fait.
+
+Mais c'était peut-être le seul mot qu'elle avait trouvé.
+
+---
+
+### Chapitre 41
+
+La police m'a interrogée pendant deux heures.
+
+Un inspecteur sec, nommé Le Goff, prenait des notes sans jamais me regarder.
+
+— Vous êtes allée seule à la maison.
+
+— Oui.
+
+— Vous saviez que l'enfant était enlevé.
+
+— Oui.
+
+— Vous n'avez pas appelé la police.
+
+— J'avais peur pour lui.
+
+— Vous avez trouvé une femme blessée par balle. Et une autre armée d'un pistolet.
+
+— Oui.
+
+L'inspecteur a levé les yeux.
+
+— Vous savez que votre sœur est en état d'arrestation ? Même à l'hôpital.
+
+— Je sais.
+
+— Et l'autre femme, Ariane Lemoine, refuse de parler.
+
+— Elle est folle.
+
+— Peut-être. Mais elle a des papiers soigneusement préparés. Des fausses identités. Des documents qui la désignent comme vous.
+
+J'ai serré les poings.
+
+— Elle voulait prendre ma place.
+
+— Nous l'avons compris. Mais ce qui m'intéresse, c'est de savoir si votre sœur est la seule responsable. Ou si vous étiez dans le coup.
+
+— Moi ?
+
+— Vous héritez de l'enfant. Vous emménagez dans la maison. Vous portez ses vêtements.
+
+— Parce qu'on m'y a forcée.
+
+— C'est votre version.
+
+J'ai regardé l'inspecteur droit dans les yeux.
+
+— Ma version, c'est que j'ai failli mourir. Et que j'ai sauvé un enfant. C'est suffisant ?
+
+---
+
+### Chapitre 42
+
+Denise est venue me voir à l'hôpital.
+
+Elle avait vieilli de dix ans en une nuit.
+
+— Charlotte m'a tout dit, a-t-elle annoncé.
+
+— Quoi ?
+
+— Elle a repris conscience il y a une heure. Elle m'a demandée. On a parlé.
+
+— De quoi ?
+
+Denise s'est assise à côté de moi. Elle a pris mes mains dans les siennes.
+
+— De l'accident. De l'escalier. De ce que tu as fait.
+
+J'ai retiré mes mains.
+
+— Je n'ai rien fait.
+
+— Clémence. Écoute-moi.
+
+— Je n'ai rien fait !
+
+— Tu l'as poussée. Tu sais que tu l'as poussée. Tu l'as oublié, mais ton corps s'en souvient.
+
+J'ai senti la pièce tourner.
+
+— Ce n'est pas vrai.
+
+— Charlotte te menaçait. Elle disait qu'elle allait te remplacer. Que tes parents préféreraient elle à toi. Tu as eu peur. Tu l'as repoussée.
+
+— Je ne me souviens pas.
+
+— C'est pour ça que tu as oublié. Parce que tu ne pouvais pas supporter de te souvenir.
+
+J'ai mis ma tête dans mes mains.
+
+— Toutes ces années, ai-je murmuré. J'ai cru que j'étais la gentille.
+
+— Tu l'étais. Tu es encore. Mais personne n'est entièrement innocent.
+
+---
+
+### Chapitre 43
+
+Quand je suis rentrée chez Inès, Malo m'attendait.
+
+Il était assis sur le canapé, enveloppé dans une couverture. Il a levé les yeux quand je suis entrée.
+
+— Elle va vivre ? a-t-il demandé.
+
+— Oui.
+
+— Elle va partir en prison ?
+
+— Je ne sais pas.
+
+Il a hoché la tête.
+
+Puis il a dit quelque chose que je n'attendais pas.
+
+— Je veux rester avec toi.
+
+J'ai senti mon cœur se fendre.
+
+— Tu es sûr ?
+
+— Tu n'es pas maman. Mais tu sens bon. Tu sens la bibliothèque. Et tu me parles pas comme si j'étais bébé.
+
+J'ai souri, malgré les larmes.
+
+— D'accord. On reste ensemble.
+
+— On part ? a-t-il demandé.
+
+— Tu veux partir ?
+
+— Cette maison est triste. Tout le monde est triste ici.
+
+Il avait raison.
+
+Kerfany portait le poids de Charlotte. De Paul. De la maison aux mille espions.
+
+— On part, ai-je dit.
+
+— Où ?
+
+— Ailleurs. Loin d'ici.
+
+— Et maman ?
+
+— On ira la voir. Quand elle ira mieux.
+
+Il a hoché la tête et s'est blotti contre moi.
+
+Pour la première fois depuis des jours, il m'a fait confiance.
+
