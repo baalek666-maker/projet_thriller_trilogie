@@ -905,3 +905,407 @@ Je me suis rallongée.
 
 Mais je n'ai plus fermé l'œil.
 
+
+---
+
+### Chapitre 15
+
+Inès est revenue le jeudi.
+
+Elle est entrée dans la maison comme si elle en avait les clés depuis toujours. Ce qui était probablement le cas.
+
+— Alors ? Comment ça se passe ? a-t-elle demandé en posant un sac de pâtisseries sur la table.
+
+— Ça va.
+
+— « Ça va » est le mot le plus inquiétant de la langue française. Personne ne dit « ça va » quand ça va vraiment.
+
+J'ai haussé les épaules.
+
+— Malo mange un peu. Il dort mal. Il ne parle pas beaucoup.
+
+— Il a parlé à toi ?
+
+— Un peu.
+
+— C'est déjà énorme. Charlotte avait beaucoup de mal avec lui aussi, tu sais.
+
+J'ai regardé Inès.
+
+— Qu'est-ce que tu veux dire ?
+
+— Rien de grave. Juste que Malo est un enfant… sensible. Il réagit aux tensions. Il sent quand quelque chose ne va pas. Charlotte le disait souvent : il était comme un radar émotionnel.
+
+Elle s'est approchée de la baie vitrée.
+
+— Tu as vu la vue ?
+
+— J'ai vu.
+
+— Magnifique, non ?
+
+— Oui.
+
+— Charlotte passait des heures ici. Elle disait que la mer était son médecin.
+
+Inès s'est tournée vers moi.
+
+— Viens, je vais te montrer quelque chose.
+
+Elle m'a entraînée dans le bureau, une petite pièce au fond du couloir. Sur le mur, un grand écran plat. Sous l'écran, un boîtier noir avec des voyants lumineux.
+
+— C'est le système de vidéosurveillance.
+
+— Charlotte filmait sa maison ?
+
+— Pas pour espionner. Pour la sécurité. Elle avait eu une intrusion, il y a deux ans. Un type qui rodait autour de la propriété. Depuis, elle a tout sécurisé.
+
+Inès a allumé l'écran. L'image s'est divisée en plusieurs cases. L'entrée. Le jardin. Le salon. La cuisine. L'allée.
+
+— Il y a des caméras partout ?
+
+— Presque. Pas dans les chambres, bien sûr. Charlotte n'était pas folle.
+
+Elle a souri.
+
+— Tu peux consulter les enregistrements depuis ton téléphone. Je vais t'installer l'application.
+
+— Ce n'est pas nécessaire.
+
+— Si. Si tu pars quelques heures, si Malo reste avec une baby-sitter, tu dois pouvoir vérifier.
+
+Elle a pris mon téléphone sur le bureau et a commencé à installer l'application.
+
+— Tu sais, a-t-elle dit sans me regarder, Charlotte me parlait souvent de toi. Elle disait que tu étais la seule personne de la famille à ne pas être complètement folle.
+
+— C'est un compliment ?
+
+— De sa part, oui.
+
+Elle m'a rendu mon téléphone.
+
+— Voilà. Tu es connectée.
+
+J'ai regardé l'écran. Quatre caméras. Ma nouvelle maison. Sous surveillance.
+
+— Merci, ai-je dit.
+
+— De rien. C'est normal. Tu es la famille, maintenant.
+
+Son sourire s'est élargi.
+
+— Enfin, presque.
+
+---
+
+### Chapitre 16
+
+Inès m'a laissé une liste.
+
+Pas une liste de courses. Une liste de rituels.
+
+*Rituels de Malo (établis par Charlotte)*, avait-elle écrit en haut de la feuille.
+
+Je l'ai lue à la cuisine, une main autour d'une tasse de thé froid.
+
+*1. Lever : 7h30 précises. Ne pas devancer. Ne pas retarder.*
+*2. Petit déjeuner : pain grillé, beurre demi-sel, confiture abricot maison. Jus de pomme pressé. Pas de céréales.*
+*3. Habillage : vêtements choisis la veille, pliés sur la chaise. Malo s'habille seul.*
+*4. Départ école : 8h20. Embrasser maman au portail. Dire « je t'aime ».*
+*5. Retour : goûter à 16h30. Lait tiède, quatre madeleines. Puis devoirs.*
+*6. Dîner : 19h. Manger ensemble à table. Pas devant la télé.*
+*7. Bain : 20h. Mousse hypoallergénique uniquement. Deux histoires maximum.*
+*8. Coucher : 21h. Veilleuse allumée. Porte entrouverte.*
+
+Je suis restée un moment à regarder cette liste.
+
+Charlotte avait tout calculé. Chaque minute de la journée de son fils. Pas un espace pour l'improvisation. Pas un trou pour l'affection spontanée.
+
+Malo est apparu dans l'encadrement de la porte.
+
+— Tu as faim ? ai-je demandé.
+
+Il a hoché la tête.
+
+— Tu veux quoi ?
+
+— Des crêpes.
+
+— Des crêpes ?
+
+— Oui.
+
+J'ai regardé la liste. *Pain grillé, beurre demi-sel, confiture abricot maison.*
+
+— On n'a pas de crêpes.
+
+— On peut en faire.
+
+— Je ne sais pas faire des crêpes.
+
+Il a baissé les yeux.
+
+— Maman savait.
+
+J'ai senti une piqûre au cœur.
+
+— D'accord, ai-je dit. On va essayer.
+
+J'ai cherché la recette sur mon téléphone. Farine, œufs, lait, sucre, beurre fondu. J'ai tout mélangé dans un saladier. La pâte était trop épaisse. J'ai ajouté du lait. Trop liquide. J'ai rajouté de la farine.
+
+Malo me regardait faire, sérieux.
+
+— C'est pas comme ça que faisait maman, a-t-il dit.
+
+— Je sais. Mais c'est comme ça que je fais, moi.
+
+J'ai versé une louche de pâte dans la poêle. Elle a brûlé légèrement sur les bords.
+
+Quand j'ai servi la première crêpe, elle était marron d'un côté, pâle de l'autre. Malo l'a regardée.
+
+— Elle est pas belle, a-t-il dit.
+
+— Non.
+
+— Elle a bon goût ?
+
+— Goûte.
+
+Il a pris un morceau. Il a mâché lentement.
+
+— C'est pas pareil, a-t-il dit.
+
+— C'est différent.
+
+— C'est pas mauvais.
+
+C'était le plus beau compliment qu'il pouvait me faire.
+
+Nous avons mangé nos crêpes ratées à la cuisine, face à la mer. Malo a fini par sourire une fois. Juste une fois.
+
+Ça m'a suffi.
+
+
+---
+
+### Chapitre 17
+
+Le vendredi, j'ai découvert le mur.
+
+Pas dans la maison principale. Dans l'annexe, au fond du jardin. Une petite construction en bois que Charlotte utilisait comme bureau. Paul m'avait donné les clés sans me dire ce qu'il y avait dedans.
+
+J'ai ouvert la porte.
+
+L'odeur m'a frappée en premier. De l'encens. Un parfum boisé, froid, que je n'ai jamais su identifier.
+
+Puis j'ai vu le mur.
+
+Tout le mur du fond était couvert de photos. Des centaines. Peut-être des milliers. Des photos de Charlotte, de Paul, de Malo. Des photos de famille. Des photos de vacances. Des photos de fêtes.
+
+Et des photos de moi.
+
+Je me suis approchée, le cœur battant.
+
+Il y avait des photos de moi que je ne connaissais pas. Moi à la bibliothèque, en train de ranger des livres. Moi sur mon balcon, en train d'arroser Marcel. Moi dans la rue, devant chez moi.
+
+Charlotte m'avait prise en photo sans que je le sache.
+
+Certaines photos étaient anciennes. Moi à l'université. Moi à un mariage, je ne savais plus lequel. Moi adolescente, sur une plage.
+
+Elle m'avait surveillée pendant des années.
+
+J'ai remarqué autre chose. Sur chaque photo, mon visage avait été entouré d'un cercle rouge. Et à côté, des notes manuscrites.
+
+*« Cheveux à couper. »*
+*« Maquillage trop discret. »*
+*« Port plus droit. »*
+*« Ne ressemble pas encore. »*
+
+Je me suis reculée.
+
+Le mur entier était un projet. Un projet de transformation. Charlotte m'étudiait, me découpait, me corrigeait. Comme un tailleur qui prépare une robe sur un mannequin.
+
+Sur un tableau en liège, à droite, il y avait des coupures de presse. Des articles sur des jumeaux. Des jumeaux identiques. Des jumeaux qui échangent leur vie. Des histoires de substitution.
+
+Et au centre, une grande feuille avec un titre.
+
+*« Le Plan. »*
+
+J'ai voulu la lire. Mes mains tremblaient trop.
+
+À ce moment-là, mon téléphone a vibré.
+
+J'ai sursauté.
+
+Un message d'Inès : *« Tu as trouvé le bureau ? »*
+
+Je n'avais parlé à personne du bureau.
+
+---
+
+### Chapitre 18
+
+Je suis rentrée en courant à la maison.
+
+Inès était dans la cuisine, en train de faire du thé. Comme si de rien n'était.
+
+— Comment es-tu entrée ? ai-je demandé.
+
+— J'ai un double des clés. Charlotte me l'avait donné.
+
+— Tu m'espionnes ?
+
+— Je t'observe. C'est différent.
+
+Elle a versé l'eau bouillante dans deux tasses.
+
+— Assieds-toi, Clémence.
+
+— Je préfère rester debout.
+
+— Comme tu veux.
+
+Elle a posé une tasse devant elle.
+
+— Tu as vu le mur.
+
+Ce n'était pas une question.
+
+— Pourquoi ? ai-je demandé. Pourquoi elle faisait ça ?
+
+Inès a soupiré.
+
+— Charlotte était malade, Clémence.
+
+— Malade ?
+
+— Pas physiquement. Dans la tête. Elle avait une obsession. Depuis toujours, je crois.
+
+— Quelle obsession ?
+
+— Vous. Toi et elle. Le fait que vous soyez identiques. Que personne ne puisse vous distinguer.
+
+J'ai secoué la tête.
+
+— On n'était pas identiques. On se ressemblait, c'est tout.
+
+— Pour elle, c'était la même chose.
+
+Inès a bu une gorgée de thé.
+
+— Elle te voyait comme une version inachevée d'elle-même. Toi, tu t'effaçais. Tu te cachais dans les bibliothèques. Elle voulait te révéler. Te montrer ce que tu pouvais devenir.
+
+— En me copiant sur elle ?
+
+— En te libérant.
+
+J'ai éclaté de rire. Un rire amer.
+
+— Me libérer ? Elle m'a piégée avec un enfant et une maison.
+
+— C'était le seul moyen de t'obliger à venir.
+
+— Tu trouves ça normal ?
+
+— Non. Mais je trouve ça… cohérent. Avec elle.
+
+Elle s'est levée.
+
+— Charlotte savait qu'elle allait mourir. Pas à cause de l'accident. Elle ne savait pas comment. Mais elle savait qu'elle n'aurait pas le temps de finir. Alors elle a tout préparé pour que tu puisses la remplacer.
+
+— Je ne veux pas la remplacer.
+
+— Peut-être. Mais tu ne peux pas non plus rester celle que tu étais. Pas maintenant.
+
+Elle est passée devant moi.
+
+— Regarde-toi, Clémence. Tu portes déjà ses vêtements.
+
+J'ai baissé les yeux.
+
+J'avais mis ce matin-là le pull bleu marine de Charlotte. Celui avec l'étiquette à mon nom.
+
+---
+
+### Chapitre 19
+
+Le voisin m'a interceptée le samedi.
+
+Je sortais les poubelles. Un geste banal, presque réconfortant. La maison de Charlotte sentait toujours un peu trop bon. J'avais besoin d'air, même l'air chargé de sel de Kerfany.
+
+— Madame Vaillant ?
+
+J'ai relevé la tête.
+
+Un homme se tenait de l'autre côté de la haie. Grand, mince, des lunettes rondes, un chien berger à ses côtés.
+
+— Non, ai-je dit. Clémence Barreau. La sœur de Charlotte.
+
+— Ah. Pardon. Vous vous ressemblez tellement.
+
+Il a souri. Un sourire un peu triste.
+
+— Gilles Lemoine. Votre voisin. Enfin, celui d'à côté.
+
+— Enchantée.
+
+— Je suis désolé pour votre sœur. C'était une femme remarquable.
+
+— Vous la connaissiez bien ?
+
+Il a hésité.
+
+— Assez. Nous parlions de temps en temps. De la mer. Des tempêtes. Des bateaux. Elle aimait beaucoup les bateaux.
+
+— Oui.
+
+Le chien a reniflé ma main. Je l'ai laissé faire.
+
+— Vous êtes venue pour le petit, j'imagine.
+
+— Oui.
+
+— C'est un bon enfant. Très silencieux. Comme sa mère.
+
+J'ai regardé Gilles.
+
+— Silencieux ? Charlotte ?
+
+— Oh, elle parlait. Beaucoup même. Mais elle disait rarement ce qu'elle pensait vraiment. Elle cachait toujours quelque chose derrière son sourire.
+
+Il a baissé la voix.
+
+— C'est pour ça que je ne suis pas sûr qu'elle soit morte.
+
+J'ai senti mon sang se figer.
+
+— Pardon ?
+
+— Je sais, ça paraît fou. Mais la veille de l'accident, je l'ai vue. Elle était sur la terrasse. Très tard. Elle regardait la maison. Pas vers la mer. Vers la maison.
+
+— Elle vivait ici. C'est normal.
+
+— Non. Elle était… différente. Comme si elle attendait quelque chose. Ou quelqu'un.
+
+— Vous avez dit ça à la police ?
+
+— Ils m'ont écouté. Ils ont noté. Puis ils m'ont expliqué que les radios dentaires confirmaient l'identité du corps.
+
+Il a haussé les épaules.
+
+— La science, c'est la science. Mais les gens, parfois, ils changent de peau.
+
+Son regard s'est posé sur moi.
+
+— Vous savez, quand on a des jumeaux, on ne sait jamais vraiment qui est qui.
+
+— Nous ne sommes pas jumelles.
+
+— Non. Mais presque.
+
+Il a sifflé son chien et s'est éloigné.
+
+Je suis restée avec la poubelle à la main, le cœur battant.
+
+Presque.
+
