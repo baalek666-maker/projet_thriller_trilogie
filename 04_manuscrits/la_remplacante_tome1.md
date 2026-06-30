@@ -2562,3 +2562,166 @@ Il a hoché la tête et s'est blotti contre moi.
 
 Pour la première fois depuis des jours, il m'a fait confiance.
 
+
+---
+
+### Chapitre 44
+
+Je suis allée voir Charlotte le lendemain.
+
+Elle était dans une chambre individuelle. Un policier était posté devant la porte. Il m'a laissé entrer après avoir vérifié mon identité.
+
+Charlotte était assise dans le lit, le bras en écharpe. Elle avait les cheveux tirés en arrière. Sans maquillage, elle me ressemblait encore plus.
+
+— Tu es venue, a-t-elle dit.
+
+— Oui.
+
+— Pourquoi ?
+
+— Parce que je n'ai pas fini de te connaître.
+
+Elle a souri. Un sourire triste.
+
+— Tu sais, quand on était petites, j'aurais tout donné pour que tu viennes me voir.
+
+— Je sais.
+
+— Maintenant que tu es là, je ne sais plus quoi dire.
+
+Je me suis assise sur le bord du lit.
+
+— Dis-moi la vérité. Juste une fois.
+
+Elle a fermé les yeux.
+
+— Je voulais ta vie. Pas parce qu'elle était meilleure. Parce que c'était la tienne.
+
+— Tu avais la tienne.
+
+— Non. J'avais une vie que tout le monde m'avait imposée. Paul, Malo, cette maison, ces dettes. Je voulais être libre.
+
+— En m'enfermant à ma place ?
+
+— Oui.
+
+— C'est égoïste.
+
+— Très.
+
+— Pourquoi Malo ?
+
+— Parce que c'était la seule chose que j'avais faite de bien. Et je ne savais pas quoi en faire.
+
+---
+
+### Chapitre 45
+
+— Qu'est-ce qui va se passer maintenant ? ai-je demandé.
+
+— L'inspecteur Le Goff va m'inculper. Et Ariane aussi. Paul, c'est elle qui l'a tué. Pas moi.
+
+— Mais c'est toi qui lui as donné l'idée.
+
+— Oui.
+
+— Et Ariane ?
+
+— Elle était folle amoureuse de moi. Ou de l'idée que je lui donnais. Elle aurait fait n'importe quoi.
+
+J'ai regardé Charlotte.
+
+— Tu ne mérites pas qu'elle t'ait sauvée.
+
+— Probablement pas.
+
+— Mais tu ne mérites pas non plus que je t'abandonne.
+
+Elle a ouvert les yeux.
+
+— Qu'est-ce que tu dis ?
+
+— Je vais partir avec Malo. Loin d'ici. Mais je reviendrai te voir.
+
+— Pourquoi ?
+
+— Parce que tu es ma sœur. Et parce que Malo a besoin de savoir d'où il vient.
+
+— Même si c'est laid ?
+
+— Surtout si c'est laid.
+
+Elle a tendu la main. Je l'ai prise.
+
+Ses doigts étaient froids. Mais pour la première fois depuis des années, le contact n'était pas une menace.
+
+---
+
+### Chapitre 46
+
+Le départ a eu lieu trois jours plus tard.
+
+J'ai vendu la voiture de Charlotte. J'ai donné les vêtements aux associations. J'ai emporté peu de choses.
+
+Le carnet. La photo de nous deux enfants. La lettre bleue.
+
+Et Malo.
+
+Nous sommes montés dans le train direction Nantes. Pas trop loin, pas trop près.
+
+Inès est venue nous dire au revoir sur le quai.
+
+— Tu vas t'en sortir, a-t-elle dit.
+
+— J'espère.
+
+— Si tu as besoin de quoi que ce soit…
+
+— Je sais.
+
+Elle a embrassé Malo sur le front.
+
+— Sois sage. Et parle. La vie est trop courte pour rester silencieux.
+
+Malo a hoché la tête.
+
+Le train s'est mis en marche. J'ai regardé Kerfany s'éloigner par la fenêtre.
+
+La mer brillait un dernier coup, puis a disparu.
+
+---
+
+### Chapitre 47
+
+Nantes, un mois plus tard.
+
+Nous avons trouvé un petit appartement près d'une bibliothèque. J'ai repris un travail à mi-temps. Malo est entré dans une nouvelle école.
+
+Il parle davantage. Pas beaucoup. Mais davantage.
+
+Hier, il m'a demandé : « Est-ce que maman est une méchante ? »
+
+— Non, ai-je répondu. Elle est blessée.
+
+— Et toi ?
+
+— Moi aussi. Mais on guérit.
+
+Il a semblé satisfait de la réponse.
+
+Charlotte est transférée dans un centre psychiatrique judiciaire la semaine prochaine. Je l'irai voir. Je lui raconterai Malo. Je lui dirai qu'il dessine. Qu'il aime les livres sur les baleines. Qu'il commence à rire.
+
+Elle ne pourra pas le voir grandir. Mais elle saura qu'il grandit.
+
+Et moi ?
+
+J'ai regardé mon reflet dans la vitre du métro ce matin. Je ne sais toujours pas très bien qui je suis.
+
+Mais pour la première fois, je ne cherche plus à ressembler à Charlotte.
+
+Je ressemble à quelqu'un qui a survécu.
+
+C'est déjà ça.
+
+FIN DU TOME 1
+
