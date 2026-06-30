@@ -1973,3 +1973,208 @@ Elle a souri.
 
 — Pas encore. Pour l'instant, je suis toi.
 
+
+---
+
+### Chapitre 32
+
+— Que fais-tu ici ? ai-je demandé.
+
+Ariane a fait un pas vers moi. Ses cheveux blonds, trop blonds, brillaient sous la lumière du couloir.
+
+— Je viens voir mon fils.
+
+— Malo n'est pas ton fils.
+
+— Il est celui que Charlotte m'a confié. Elle m'a choisie pour le protéger.
+
+— Tu es folle.
+
+Elle a souri.
+
+— C'est ce que disent les gens quand ils ne comprennent pas. Charlotte n'était pas folle. Elle était lucide. Elle savait que le monde ne lui devait rien. Alors elle a décidé de prendre.
+
+— Prendre quoi ?
+
+— Ta vie. Elle la méritait plus que toi.
+
+J'ai senti la colère me submerger.
+
+— Elle est morte, ai-je dit. Elle est morte dans un accident.
+
+— Charlotte n'est pas morte. Ariane est morte.
+
+— C'est toi, Ariane.
+
+Elle a ri.
+
+— Non. Je suis celle qui va prendre la place de Charlotte. Comme elle voulait prendre la tienne. On est toutes des chaînons.
+
+— Où est Charlotte ?
+
+— Partout. Nulle part. Elle regarde.
+
+Ariane a tendu la main. Elle a touché ma joue.
+
+— Tu as peur. C'est normal. Tu sens que tu vas disparaître.
+
+J'ai reculé.
+
+— Sors de ma maison.
+
+— Ce n'est pas ta maison. C'est la sienne. Et bientôt, ce sera la mienne.
+
+Elle est sortie par la porte de derrière. Sans se presser. Comme si la maison lui appartenait.
+
+---
+
+### Chapitre 33
+
+Malo a disparu le lendemain.
+
+Je l'avais laissé jouer dans le jardin pendant cinq minutes. Cinq minutes pendant lesquelles j'ai répondu à un coup de téléphone. Un appel sans interlocuteur. Juste une respiration.
+
+Quand je suis sortie, le jardin était vide.
+
+— Malo ! ai-je crié.
+
+Rien.
+
+J'ai couru jusqu'à la plage. Jusqu'à la route. Jusqu'à chez Gilles. Personne.
+
+Je suis rentrée. Sur la table de la cuisine, un papier.
+
+*« Si tu veux le revoir, viens seule. Pas la police. Sinon, il finira comme Paul. »*
+
+Paul.
+
+Le mari de Charlotte.
+
+J'ai senti mes jambes se dérober sous moi.
+
+Je me suis assise par terre, le papier à la main.
+
+Paul n'était pas mort d'un accident cardiaque comme tout le monde le disait.
+
+Il avait été tué.
+
+Et maintenant, c'était au tour de Malo.
+
+J'ai appelé Inès. Pas la police. Inès.
+
+— Il a disparu, ai-je dit.
+
+— Je sais. J'ai vu la vidéo.
+
+— Tu as vu qui ?
+
+— Une femme. Blonde. Elle l'a pris par la main. Il est parti avec elle.
+
+— Pourquoi il est parti ?
+
+— Parce qu'elle avait ton visage, Clémence. Elle lui a dit que c'était maman.
+
+---
+
+### Chapitre 34
+
+Inès m'a interdit d'appeler la police.
+
+— Si elle sait que la police est là, elle tuera Malo. Tu le sais.
+
+— Et si je ne fais rien ?
+
+— Alors elle le tuera quand même. Ou elle le transformera.
+
+— En quoi ?
+
+— En elle. En Charlotte. En un petit être qu'on pourra exhiber en disant : « Regardez, c'est l'enfant de Charlotte Vaillant. »
+
+J'ai regardé Inès.
+
+— Tu la connaissais ? Ariane ?
+
+— Je savais qu'elle existait. Charlotte m'en avait parlé vaguement. Une remplaçante de secours.
+
+— De secours ?
+
+— Si tu refusais, elle prendrait ta place. Si Charlotte mourait vraiment, elle prendrait la sienne.
+
+— Et toi, dans tout ça ?
+
+Inès a baissé les yeux.
+
+— J'étais celle qui devait surveiller. M'assurer que le plan fonctionne. M'occuper des détails.
+
+— Pourquoi tu m'aides ?
+
+— Parce que le plan a dérapé. Charlotte est devenue folle. Ariane est devenue dangereuse. Et Malo… Malo n'a rien demandé.
+
+Elle m'a tendu une adresse.
+
+— Une maison isolée. Sur la côte. C'est là qu'elles se réunissaient.
+
+— Elles ?
+
+— Charlotte et Ariane. Avant l'accident.
+
+J'ai pris le papier.
+
+— Je vais y aller.
+
+— Seule ?
+
+— Oui.
+
+— Prends ça.
+
+Elle m'a donné un couteau. Petit, tranchant.
+
+— Tu ne l'utiliseras peut-être pas. Mais il vaut mieux l'avoir.
+
+---
+
+### Chapitre 35
+
+La maison était à vingt minutes de Kerfany.
+
+Une bâtisse grise, perchée sur une falaise. Les fenêtres étaient closes. L'herbe autour était haute, morte.
+
+J'ai garé la voiture à distance.
+
+J'ai marché jusqu'à la maison en me baissant derrière les rochers. Le vent m'empêchait d'entendre quoi que ce soit.
+
+Par une fenêtre, j'ai regardé à l'intérieur.
+
+Ariane était assise à une table. Devant elle, Malo. Il ne bougeait pas. Il la regardait avec des yeux vides.
+
+Elle lui parlait doucement.
+
+— Maman va revenir, disait-elle. Maman va tout arranger.
+
+Je me suis retenue de hurler.
+
+J'ai fait le tour de la maison. La porte de derrière était fermée mais la serrure était vieille. Je l'ai forcée avec le couteau d'Inès.
+
+J'ai pénétré dans la cuisine.
+
+Sur la table, des papiers. Des photos de moi. Des plans de la maison de Charlotte. Et un passeport au nom de Clémence Barreau, avec la photo d'Ariane.
+
+Elle allait vraiment le faire.
+
+Elle allait devenir moi.
+
+J'ai entendu un bruit à l'étage.
+
+J'ai levé les yeux.
+
+Quelqu'un marchait.
+
+Pas Ariane. Elle était au salon avec Malo.
+
+Une autre personne.
+
+J'ai serré le couteau.
+
+— Charlotte ? ai-je murmuré.
+
