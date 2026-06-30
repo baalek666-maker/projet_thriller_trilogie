@@ -2178,3 +2178,196 @@ J'ai serré le couteau.
 
 — Charlotte ? ai-je murmuré.
 
+
+---
+
+### Chapitre 36
+
+Charlotte est apparue dans l'encadrement de la porte.
+
+Elle était différente. Plus mince. Plus pâle. Des cernes profonds sous les yeux. Mais c'était elle.
+
+Vraiment elle.
+
+— Clémence, a-t-elle dit.
+
+Sa voix m'a transpercée.
+
+— Tu es vivante.
+
+— Évidemment.
+
+Elle est descendue les deux marches du seuil.
+
+— Tu pensais vraiment qu'Ariane pouvait me remplacer ? Elle était bonne. Mais pas aussi bonne que moi.
+
+— Pourquoi ? ai-je demandé. Pourquoi tout ça ?
+
+— Parce que je t'ai assez regardée, Clémence. Toute ma vie, je t'ai regardée. Tu avais tout. La tendresse. La solitude choisie. La vie calme. Et moi, j'avais le bruit, les dettes, un mari qui me trompait, un enfant que je ne comprenais pas.
+
+— Alors tu voulais ma vie ?
+
+— Je voulais ta paix. Et j'allais l'avoir.
+
+Elle s'est approchée d'Ariane.
+
+— Tu as failli, a-t-elle dit à la fausse blonde. Tu étais censée être discrète. Laisser Clémence s'installer. Puis disparaître.
+
+Ariane s'est levée.
+
+— Je ne suis pas ton chien, Charlotte.
+
+— Si. Tu l'es. Tu as toujours été.
+
+— J'ai donné ma vie pour toi.
+
+— Pas encore.
+
+---
+
+### Chapitre 37
+
+Malo s'est levé à son tour.
+
+Il est venu vers moi. Pas vers Charlotte. Pas vers Ariane. Vers moi.
+
+— Clémence, a-t-il dit.
+
+Charlotte a vu le mouvement.
+
+— Reste là, Malo.
+
+Il a continué.
+
+— Je t'ai dit de rester là !
+
+Sa voix a explosé. Le même ton que dans mes cauchemars.
+
+Malo s'est figé.
+
+— Viens, ai-je dit doucement.
+
+Il a fait un pas.
+
+Ariane a bougé. Elle a sorti quelque chose de sa poche. Un pistolet.
+
+— Personne ne bouge, a-t-elle dit.
+
+— Ariane, range ça, a ordonné Charlotte.
+
+— Non. C'est fini. Je ne suis plus ta double. Je suis celle qui décide maintenant.
+
+Elle a levé l'arme.
+
+Elle la pointait vers moi.
+
+— Toi, tu vas disparaître. Charlotte reprendra sa place. Moi, je prendrai la sienne. Et le petit ira avec qui je veux.
+
+— Tu ne feras pas ça, a dit Charlotte.
+
+— Pourquoi ? Parce que tu me l'interdis ?
+
+— Parce que tu ne sais pas comment finir.
+
+Ariane a ri.
+
+— Moi, je sais très bien finir.
+
+---
+
+### Chapitre 38
+
+Le coup de feu a ébréché le silence.
+
+Je me suis baissée instinctivement. Malo s'est accroché à mes jambes.
+
+Quand j'ai relevé les yeux, Charlotte était par terre.
+
+Ariane l'avait tirée.
+
+— Non ! ai-je hurlé.
+
+Ariane a braqué l'arme vers nous.
+
+— Toi, viens ici.
+
+J'ai serré Malo contre moi.
+
+— Laisse-le partir. Fais ce que tu veux de moi, mais laisse-le partir.
+
+— Il me connaît comme sa mère. Il reste.
+
+Malo a levé la tête.
+
+— Tu n'es pas maman, a-t-il dit.
+
+Ariane a froncé les sourcils.
+
+— Quoi ?
+
+— Maman, elle sentait la vanille. Toi, tu sens le feu.
+
+Pour un enfant, c'était la chose la plus précise qu'il ait dite depuis des jours.
+
+Ariane a hésité une fraction de seconde.
+
+C'était assez.
+
+J'ai chargée.
+
+Je l'ai percutée de tout mon poids. Le pistolet a glissé sur le carrelage. Nous sommes tombées ensemble. Elle a crié, m'a griffé le visage.
+
+J'ai trouvé le pistolet avant elle.
+
+Je l'ai braqué sur elle.
+
+— Ne bouge pas.
+
+Elle a souri, le souffle court.
+
+— Tu ne sais pas tirer.
+
+— Tu ne sais pas ce dont je suis capable.
+
+---
+
+### Chapitre 39
+
+J'ai appelé les secours.
+
+Puis j'ai retenu la pression sur la plaie de Charlotte. Le sang coulait entre mes doigts. Elle était pâle. Très pâle.
+
+— Tu vas t'en sortir, ai-je dit.
+
+— Pourquoi tu fais ça ? a-t-elle murmuré.
+
+— Parce que tu es ma sœur.
+
+— Je ne mérite pas…
+
+— Chut.
+
+Malo était assis dans un coin, les genoux contre la poitrine. Il ne pleurait pas. Il regardait.
+
+— Maman va s'en sortir, ai-je dit.
+
+Je ne savais pas si c'était vrai.
+
+Les pompiers sont arrivés dix minutes plus tard. Ils ont emmené Charlotte. La police a emmené Ariane.
+
+Moi, je suis restée avec Malo sur le pas de la porte, regardant les gyrophares déchirer la nuit.
+
+Inès est arrivée peu après.
+
+— Tu l'as trouvé, a-t-elle dit.
+
+— Oui.
+
+— Et Charlotte ?
+
+— Entre la vie et la mort.
+
+Elle a hoché la tête.
+
+— Comme toujours.
+
