@@ -854,3 +854,440 @@ Une femme en robe bleue.
 
 Puis la lumière s'est éteinte.
 
+
+### Chapitre 21
+
+J'ai couru jusqu'à la porte d'entrée.
+
+La main posée sur la poignée, j'ai hésité. Ce que j'allais trouver de l'autre côté pouvait être n'importe quoi. Charlotte. Une inconnue. Un reflet.
+
+J'ai ouvert.
+
+Le salon était vide.
+
+Les rideaux étaient tirés. La lumière de la rue passait à travers les fentes. Rien ne bougeait. Pas de femme en robe bleue. Pas d'odeur. Pas de trace.
+
+J'ai avancé. Le cœur cognait sous ma gorge.
+
+— Qui est là ? ai-je crié.
+
+Aucune réponse.
+
+J'ai vérifié la cuisine. La salle à manger. Les toilettes. L'escalier. Chaque marche me semblait plus longue que la précédente.
+
+Malo dormait dans sa chambre, les bras autour d'un ours en peluche. Je suis restée un moment sur le seuil, à écouter sa respiration.
+
+Dans ma chambre, le lit était fait. Le cadre photo était redevenu droit. Et sur l'oreiller, quelqu'un avait posé une mèche de cheveux blonds.
+
+Pas des cheveux coupés. Arrachés.
+
+J'ai refermé la porte. Je suis allée dans la salle de bain. Je me suis regardée.
+
+Moi, Clémence. Trente-huit ans. Bibliothécaire. Solitaire. Veilleuse.
+
+Sauf que dans le miroir de Charlotte, je ne me reconnaissais plus.
+
+---
+
+### Chapitre 22
+
+Paul est mort, et pourtant j'avais l'impression qu'il était partout.
+
+Sa trousse de toilette dans la salle de bain. Son parfum dans l'air. Sa voix dans la sonnerie de l'interphone, quand je décrochais par erreur.
+
+Je n'avais pas fait le deuil de Paul parce que je ne l'avais jamais vraiment connu. Et pourtant, je partageais son lit.
+
+Cette nuit-là, j'ai ouvert son tiroir de chevet.
+
+Des officières. Des papiers. Un carnet. Je l'ai feuilleté.
+
+Notes de chantier. Chiffres de devis. Et, à la fin, des pages barrées de mots.
+
+*Elle me regarde.*
+*Elle sait que je sais.*
+*Elle ne me laissera pas partir.*
+
+Je ne savais pas qui était cette « elle ». Charlotte ? Ou quelqu'un d'autre ?
+
+En dessous, une photo froissée. Paul et Inès, bras dessus bras dessous, devant un restaurant.
+
+J'ai refermé le carnet. Je l'ai reposé exactement comme je l'avais trouvé.
+
+---
+
+### Chapitre 23
+
+Le lendemain, j'ai menti à l'école.
+
+J'ai dit à Madame Rivet que Malo avait rendez-vous chez le pédiatre. Puis je l'ai emmené avec moi.
+
+— Où on va ? a-t-il demandé dans la voiture.
+
+— On va voir quelqu'un.
+
+— Qui ?
+
+— Quelqu'un qui connaissait bien ta maman.
+
+Nous sommes allés chez Gilles Marchetti.
+
+Il habitait dans la maison en face, de l'autre côté de la rue. Celle avec les volets toujours fermés.
+
+Il a ouvert avant que je sonne.
+
+— Je vous attendais, a-t-il dit.
+
+— Comment ?
+
+— Vous êtes venue pour savoir ce que j'ai vu.
+
+Malo s'est caché derrière moi. Gilles a baissé les yeux.
+
+— Il peut rester dans le salon. J'ai des biscuits.
+
+Malo n'a pas bougé.
+
+— Racontez-moi, ai-je dit.
+
+Gilles m'a fait entrer dans une cuisine qui sentait le tabac froid. Il a posé une tasse de café devant moi.
+
+— Votre sœur venait ici. Avant l'accident.
+
+— Ici ?
+
+— Oui. Elle frappait à ma fenêtre la nuit. Elle disait que Paul la surveillait. Qu'elle avait peur.
+
+— Peur de quoi ?
+
+— Peur d'elle-même. De ce qu'elle était capable de faire.
+
+J'ai frissonné.
+
+— Pourquoi elle venait vous voir ?
+
+— Parce que je la connaissais. Avant. Quand elle s'appelait encore Lemoine.
+
+J'ai serré ma tasse.
+
+— Lemoine ?
+
+— Son nom de jeune fille. Avant Paul. Charlotte Lemoine. La fille de votre mère et de votre père. Pas Vaillant.
+
+— Elle a juste pris le nom de son mari.
+
+Gilles a hoché la tête.
+
+— Bien sûr.
+
+Il n'a pas insisté. Mais son silence en a dit plus long que ses mots.
+
+---
+
+### Chapitre 24
+
+Sur le chemin du retour, Malo a enfin parlé.
+
+— La mamie du vieux, c'est maman ?, a-t-il demandé.
+
+— Non. Ta mamie, c'est Denise.
+
+— Pas mamie Denise. L'autre.
+
+J'ai serré le volant.
+
+— Quelle autre mamie, Malo ?
+
+Il a regardé par la fenêtre.
+
+— La dame qui venait la nuit. Celle qui avait le même lit que maman.
+
+— Le même lit ?
+
+— Dans la chambre de maman. Elle dormait quand maman n'était pas là.
+
+J'ai freiné. J'ai mis le clignotant. Je me suis rangée sur le bas-côté.
+
+— Malo. Est-ce que tu peux me décrire cette dame ?
+
+Il a haussé les épaules.
+
+— Elle était comme maman. Mais pas pareille.
+
+— Plus vieille ? Plus jeune ?
+
+— Elle était maman, a-t-il dit. Et en même temps, c'était pas maman.
+
+J'ai voulu demander autre chose. Mais il a commencé à pleurer. Silencieusement, comme s'il avait appris à ne pas faire de bruit.
+
+Je l'ai serré contre moi.
+
+— Je te protège, ai-je murmuré.
+
+— C'est ce que maman disait aussi.
+
+---
+
+### Chapitre 25
+
+J'ai décidé d'aller chercher Paul.
+
+Pas physiquement. Il était mort, sous terre. Mais son passé. Son histoire avec Charlotte. Ce qu'il avait su.
+
+Je suis retournée dans sa chambre — notre chambre — et j'ai fouillé.
+
+Dans le placard du bureau, j'ai trouvé une boîte en métal. À l'intérieur : des documents. Un acte de mariage. Un contrat de travail. Des factures.
+
+Et un journal.
+
+Pas le carnet de chantier. Un vrai journal intime. Sur la couverture, une date : il y avait deux ans.
+
+J'ai ouvert à une page au hasard.
+
+*Charlotte a trouvé Clémence sur Internet. Elle a passé la soirée à regarder son profil. Elle a dit : « Elle est prête maintenant. »*
+
+J'ai tourné la page.
+
+*Charlotte a parlé de Clémence à Malo comme s'il la connaissait déjà. « Un jour, elle viendra vivre avec nous. »*
+
+Encore.
+
+*Charlotte a acheté des vêtements de la taille de Clémence. Elle les a rangés dans son armoire. Elle a dit que c'était pour son anniversaire. Leur anniversaire.*
+
+Leur anniversaire.
+
+J'ai fermé le journal. J'ai eu envie de le brûler. De le jeter. De partir.
+
+À la place, je l'ai caché dans mon sac.
+
+---
+
+### Chapitre 26
+
+Lucie a appelé.
+
+— Clémence, tu ne vas pas bien.
+
+— C'est une constatation ou une question ?
+
+— J'ai fait quelque chose. Ne m'en veux pas.
+
+J'ai senti la peur monter.
+
+— Quoi ?
+
+— J'ai cherché des choses. Sur Charlotte. Sur Internet.
+
+— Lucie, non.
+
+— Écoute. Avant l'accident, elle était dans des groupes. Des forums. Une communauté de femmes.
+
+— Quel genre de communauté ?
+
+— Elles s'appellent « Les Doubles ».
+
+Il y a eu un silence.
+
+— Ça parle de quoi ? ai-je demandé.
+
+— D'identité. De devenir quelqu'un d'autre. De remplacer sa sœur, sa voisine, son amie. Des histoires de femmes qui ont pris la place de quelqu'un. Et qui disent que c'est libérateur.
+
+J'ai pensé aux vêtements. À la robe bleue. Au verre d'eau.
+
+— Et Paul ? ai-je demandé.
+
+— Paul était inscrit aussi. Pas comme membre. Comme obs. Comme « cible ».
+
+— Cible de quoi ?
+
+— De remplacement. Lucie, a repris. Je pense que Charlotte voulait te faire prendre sa place. Et pas juste découvrir le programme. Elle en faisait partie.
+
+---
+
+### Chapitre 27
+
+J'ai appelé Inès.
+
+Je voulais la confronter. Dire ce que je savais sur Les Doubles. Voir sa réaction.
+
+Elle n'a pas décroché.
+
+J'ai envoyé un message.
+
+*« Tu es membre des Doubles ? »*
+
+Elle a lu. Elle n'a pas répondu.
+
+Une heure plus tard, elle était devant la porte.
+
+— Tu sais qu'il ne faut jamais écrire ces mots, a-t-elle dit en entrant.
+
+— Tu es membre.
+
+— J'étais la fondatrice.
+
+Elle a retiré son manteau. Elle l'a posé comme Charlotte aurait posé un manteau. Sur le dossier de la chaise, plié en deux, les manches à l'intérieur.
+
+— Qu'est-ce que c'est ? ai-je demandé.
+
+— Un groupe de femmes fatiguées d'être elles-mêmes. Elles échangent leurs vies. Leurs identités. Leurs familles.
+
+— C'est de la folie.
+
+— C'est de la liberté, a-t-elle dit. Pour la première fois de ta vie, tu pourrais ne plus être Clémence Barreau, la fille oubliée. Tu pourrais être quelqu'un que les gens regardent.
+
+— Charlotte a voulu que je devienne elle.
+
+Inès a souri.
+
+— Charlotte voulait que tu deviennes toi. Mais la version d'elle que tout le monde aimait.
+
+— Pourquoi ?
+
+— Parce qu'elle savait que tu en étais capable. Et parce qu'elle savait qu'elle ne méritait pas cette vie.
+
+J'ai reculé d'un pas.
+
+— Où est Charlotte ?
+
+Inès a perdu son sourire.
+
+— Tu ne devrais pas poser cette question.
+
+---
+
+### Chapitre 28
+
+Inès est repartie sans répondre.
+
+Mais avant, elle m'a donné un papier.
+
+Une adresse. À Rennes. Un immeuble derrière la gare.
+
+*« Si tu veux vraiment savoir. »*
+
+J'ai gardé le papier dans ma poche pendant deux jours. Je n'en ai parlé à personne.
+
+Puis un soir, après avoir couché Malo, je suis partie.
+
+J'ai conduit une heure. J'ai cherché une place. J'ai marché dans une rue déserte.
+
+L'immeuble était moche. Béton gris, fenêtres sans rideaux.
+
+J'ai sonné au troisième étage. Pas de réponse. J'ai sonné encore. Encore.
+
+La porte s'est ouverte.
+
+Une femme s'est montrée. Cheveux noirs courts, visage fatigué. Pas Charlotte.
+
+— Oui ?
+
+— Je cherche Charlotte Vaillant.
+
+— Il n'y a personne de ce nom ici.
+
+— Inès Blanchard m'a donnée cette adresse.
+
+La femme a hésité. Puis elle a ouvert la porte.
+
+— Entre vite. Avant qu'on te voie.
+
+---
+
+### Chapitre 29
+
+L'appartement était petit, sombre, plein de cartons.
+
+— Je m'appelle Faustine, a dit la femme. Je suis — j'étais — une Double.
+
+— Qu'est-ce que vous êtes devenues ?
+
+Elle a ri. Un rire amer.
+
+— Fuyantes. Cibles. Quand le programme dérape, on devient un problème.
+
+— Vous connaissez Charlotte Vaillant ?
+
+— Tout le monde connaît Charlotte.
+
+Elle a.Sorti une photo d'un carton. Elle me l'a tendue.
+
+Charlotte. Plus jeune. Souriante. Bras autour de Faustine.
+
+— Elle était l'une des premières. Elle avait un don. Elle pouvait devenir n'importe qui.
+
+— Pas n'importe qui. Sa sœur.
+
+Faustine m'a regardée.
+
+— Toi. Tu es Clémence.
+
+— Comment vous savez ?
+
+— Parce que tu as exactement la même expression que sur les photos qu'elle montrait. Celle-qu'elle-voulait-prendre.
+
+J'ai senti mes jambes se dérober.
+
+— Elle me voulait ?
+
+— Non. Elle voulait ta vie. Comme elle avait voulu celle des autres. C'est comme ça qu'on grandit, chez les Doubles. On remplace. On accumule. On devient invisiblement omniprésente.
+
+— Elle est morte dans un accident.
+
+Faustine a secoué la tête.
+
+— Charlotte ne meurt pas. Elle disparaît.
+
+---
+
+### Chapitre 30
+
+Je suis rentrée à Kerfany à l'aube.
+
+J'avais la tête pleine de Faustine. De Charlotte. De ce que cela voulait dire : *Charlotte disparaît.*
+
+La maison était silencieuse quand je suis entrée.
+
+Trop silencieuse.
+
+J'ai monté l'escalier. La chambre de Malo était ouverte. Son lit était vide.
+
+— Malo ? ai-je crié.
+
+Pas de réponse.
+
+J'ai couru dans la maison. Cuisine. Salon. Salle de bain. Garage.
+
+Rien.
+
+J'ai vérifié les caméras. L'application ne répondait pas.
+
+Puis j'ai entendu du bruit dans la chambre de Charlotte.
+
+Je suis montée. Lentement. La porte était fermée. J'ai tourné la poignée.
+
+Malo était assis par terre, au milieu de la chambre. Il tenait quelque chose dans ses mains.
+
+Une perruque.
+
+Une perruque blonde, aux cheveux exactement comme ceux de Charlotte.
+
+— Je jouais à maman, a-t-il dit.
+
+Je me suis accroupie devant lui.
+
+— Où tu as trouvé ça ?
+
+— Dans le placard. Avec les robes.
+
+— Quelles robes ?
+
+— Les robes de maman. Et les autres. Celles qui sont pour toi.
+
+J'ai ouvert le placard.
+
+Derrière les vêtements de Charlotte, il y avait une tringle cachée. Des robes. Des tailleurs. Deschaussures. Taille 38, certes. Mais avec des étiquettes à mon nom.
+
+Ou plutôt à un nom.
+
+*Clémence Vaillant.*
+
