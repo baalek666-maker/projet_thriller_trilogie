@@ -1291,3 +1291,446 @@ Ou plutôt à un nom.
 
 *Clémence Vaillant.*
 
+
+### Chapitre 31
+
+Je suis restée devant le placard pendant plusieurs minutes.
+
+Les vêtements ne me disaient rien. Et ils me disaient tout.
+
+Charlotte avait préparé ma transformation avant même que je n'arrive. Elle avait acheté mes habits. Elle avait choisi ma nouvelle identité. Elle avait écrit mon nom à sa suite.
+
+*Clémence Vaillant.*
+
+Comme si je n'avais jamais été Barreau.
+
+J'ai refermé le placard. J'ai descendu Malo. Je l'ai installé devant son petit-déjeuner.
+
+— On ne joue plus dans la chambre de maman, d'accord ?
+
+— Pourquoi ?
+
+— Parce que ce n'est plus sa chambre.
+
+Il a baissé la tête sur son bol.
+
+— Elle est où ?
+
+J'ai voulu dire : dans le ciel. Dans nos cœurs. Elle nous regarde.
+
+J'ai dit : — Je ne sais pas.
+
+C'était la première fois que je le pensais vraiment.
+
+---
+
+### Chapitre 32
+
+J'ai appelé Denise.
+
+— Maman, il faut qu'on parle de Charlotte.
+
+— Pas au téléphone.
+
+— Alors viens.
+
+Elle est arrivée une heure plus tard, le visage fermé. Elle a refusé de s'asseoir.
+
+— Tu as fouillé dans ses affaires.
+
+— Oui.
+
+— Tu n'aurais pas dû.
+
+— Tu savais ? ai-je demandé. Tu savais qu'elle voulait que je devienne elle ?
+
+Denise a détourné les yeux.
+
+— Charlotte était… différente. Depuis petite.
+
+— Différente comment ?
+
+— Elle ne voulait pas être elle. Elle disait que sa vie lui allait mal. Qu'elle aurait dû naître autrement.
+
+— Et moi ?
+
+— Toi, tu étais sa solution. La version d'elle-même qu'elle pouvait devenir sans effort.
+
+J'ai reculé.
+
+— Qu'est-ce que ça veut dire ?
+
+Denise a enfin levé les yeux. Ils étaient rouges.
+
+— Elle t'observait. Elle apprenait. Elle recopiait. À douze ans, elle pouvait déjà te remplacer devant tes profs sans que personne ne s'en aperçoive.
+
+— C'est faux.
+
+— C'est vrai. La preuve : un jour, elle a passé une journée entière à ta place au collège. Personne n'a rien remarqué.
+
+J'ai senti le sol trembler.
+
+— Pourquoi tu ne m'as jamais dit ?
+
+— Parce que je voulais te protéger. Et parce que j'avais peur qu'un jour, elle y arrive vraiment.
+
+---
+
+### Chapitre 33
+
+Denise est repartie.
+
+Je suis restée seule dans la maison. Malo était à l'école. Le silence était différent maintenant. Plus dense. Comme si la maison elle-même retenait son souffle.
+
+J'ai remonté l'escalier. J'ai ouvert la chambre de Charlotte.
+
+J'ai enlevé les draps. J'ai ouvert les tiroirs. J'ai regardé sous le lit.
+
+Et c'est là que j'ai trouvé la valise.
+
+Petite, noire, roulettes silencieuses. Étiquette blanche.
+
+*M. Lemoine.*
+
+M pour maman ? Pour Malo ? Pour moi ?
+
+Je l'ai ouverte.
+
+Dedans : papiers. Passeports. Trois passeports. Mêmes photo, mêmes traits. Mais trois noms différents.
+
+Charlotte Vaillant.
+Charlotte Barreau.
+Charlotte Lemoine.
+
+Et un quatrième. Photo de moi. Nom : Charlotte Vaillant.
+
+J'ai laissé tomber le passeport.
+
+---
+
+### Chapitre 34
+
+J'ai appelé Lucie.
+
+— Il faut que je te montre quelque chose.
+
+— Maintenant ?
+
+— Maintenant.
+
+Elle est arrivée avec deux cafés. Elle a vu la valise sur la table. Les passeports éparpillés.
+
+— Oh merde, a-t-elle dit.
+
+— Dis-moi que ce n'est pas ce que je pense.
+
+Elle a pris le passeport à ma photo.
+
+— Clémence…
+
+— C'est mon visage. Son nom.
+
+— C'est plus grave que les Doubles. Ça, c'est de la planification.
+
+— De quoi ?
+
+— De meurtre, a-t-elle dit doucement. Elle comptait te tuer, prendre ton identité, et partir avec Malo.
+
+J'ai secoué la tête.
+
+— Charlotte m'aimait.
+
+— Charlotte t'aimait comme on aime un costume qu'on veut porter.
+
+---
+
+### Chapitre 35
+
+Lucie a voulu appeler la police.
+
+J'ai refusé.
+
+— Il n'y a pas de crime. Juste des papiers.
+
+— Des faux.
+
+— Elle est morte.
+
+— Tu en es sûre ?
+
+J'ai regardé Lucie.
+
+— J'ai vu son corps ?
+
+— Moi non. Toi non plus.
+
+Lucie a refermé son portable.
+
+— Clémence. Si Charlotte est vivante, pourquoi elle ferait tout ça ? Les caméras, les vêtements, les perruques ?
+
+— Pour me rendre folle.
+
+— Ou pour te préparer. Pour te faire accepter qu'elle revienne à sa place.
+
+— À la place de qui ?
+
+— À la tienne. Elle prend ta place. Tu prends la sienne. Personne ne sait plus qui est qui.
+
+J'ai pensé à Malo. À sa question : *Elle était maman. Et en même temps, c'était pas maman.*
+
+— Je dois savoir, ai-je dit.
+
+Lucie a posé sa main sur la mienne.
+
+— Alors on exhume le corps.
+
+---
+
+### Chapitre 36
+
+On n'a pas exhumé le corps.
+
+On n'en avait pas le droit. Pas sans preuve. Pas sans une plainte. Pas sans saborder la mémoire de Charlotte devant tout le monde.
+
+Mais Lucie a eu une autre idée.
+
+— L'accident. Il y a forcément un rapport. Un constat. Quelque chose.
+
+Elle avait raison.
+
+Paul avait tout gardé. Dans la boîte métallique du bureau, j'ai trouvé un dossier accident.
+
+Photos. Croquis de la route. Dépassement. Véhicule contre un platane.
+
+Deux corps. Paul et Charlotte.
+
+Mais sur la photo du corps de Charlotte, le visage était caché. Brûlé. Méconnaissable.
+
+— Comment on sait que c'était elle ? ai-je demandé.
+
+Lucie a regardé le rapport.
+
+— Bijoux. Alliance. Pièce d'identité dans le sac. Et les empreintes dentaires.
+
+— Les empreintes dentaires ?
+
+— Le dentiste les a confirmées.
+
+— Et si le dentiste se trompait ?
+
+— Il ne se trompe pas.
+
+J'ai feuilleté les photos.
+
+Sur l'une d'elles, on voyait la main du corps. À l'annulaire, une bague.
+
+Un camélia.
+
+La bague de Charlotte.
+
+Sauf que Charlotte détestait les camélias.
+
+---
+
+### Chapitre 37
+
+J'ai passé la nuit à comparer les photos.
+
+Les photos de Charlotte jeune. Les photos de nous deux. Les photos du dossier accident.
+
+Je cherchais une preuve. Une cicatrice. Une tache de naissance. Un détail.
+
+À cinq heures du matin, je l'ai trouvé.
+
+Sur le corps du véhicule, le poignet gauche portait une tache sombre. Un grain de beauté.
+
+Charlotte n'en avait pas au poignet gauche.
+
+Moi, si.
+
+Je me suis levée. J'ai regardé mon poignet. Le grain de beauté brun, rond, sous la naissance de la main.
+
+J'ai vérifié sur une photo de nous deux, l'été de mes vingt ans. Moi, poignet gauche, tache visible. Charlotte, rien.
+
+Le corps dans la voiture avait ma tache.
+
+Ou presque.
+
+J'ai appelé Lucie.
+
+— Ce n'était pas Charlotte.
+
+— Clémence, calme-toi.
+
+— Le corps avait mon grain de beauté. Pas le sien.
+
+Silence.
+
+— Ou c'est toi qui as mal vu.
+
+— Je ne me trompe pas. Lucie. Charlotte est peut-être morte. Mais pas dans cet accident.
+
+---
+
+### Chapitre 38
+
+J'ai décidé de parler au dentiste.
+
+Monsieur Périer. Il avait un cabinet à Quimperlé.
+
+Je suis allée sans rendez-vous. J'ai attendu dans la salle d'attente jusqu'à ce qu'il accepte de me recevoir.
+
+— Madame Vaillant, a-t-il dit en me voyant. Je suis désolé pour votre sœur.
+
+— Je voulais vous demander. Pour l'identification.
+
+Il a baissé la voix.
+
+— C'était une procédure standard.
+
+— Vous avez vu le corps ?
+
+— Non. Les empreintes étaient dans le dossier. J'ai comparé.
+
+— Et vous en êtes sûr ?
+
+— Les radios ne mentent pas.
+
+— Vous avez les radios ?
+
+— Elles sont confidentielles.
+
+— Ma sœur est peut-être vivante. Quelqu'un d'autre est mort à sa place. Si vous ne me montrez pas ces radios, je porte plainte.
+
+Il a hésité. Puis il a ouvert un tiroir.
+
+— C'est irrégulier.
+
+— Montrez-moi.
+
+Il a posé deux radios sur la table lumineuse.
+
+— Celle-ci, c'est Charlotte. Prise il y a trois ans. Celle-là, le corps.
+
+J'ai regardé. Mêmes couronnes. Même dévitalisation. Mêmes racines.
+
+C'était bien elle.
+
+Mon cœur s'est brisé un peu plus.
+
+— Vous êtes satisfaite ? a-t-il demandé.
+
+— Non, ai-je dit.
+
+Mais je ne savais plus quoi espérer.
+
+---
+
+### Chapitre 39
+
+Sur le chemin du retour, j'ai reçu un appel.
+
+Numéro masqué.
+
+— Oui ?
+
+Silence. Puis une voix. Une voix que je connaissais mieux que la mienne.
+
+— Clémence.
+
+J'ai failli sortir de la route.
+
+— Charlotte ?
+
+— Tu as été plus loin que je ne le pensais.
+
+— Où es-tu ?
+
+— Partout. Nulle part.
+
+— Arrête. Dis-moi la vérité.
+
+— La vérité ? a-t-elle dit en riant. La vérité, c'est que tu es en train de devenir moi. Que tu dors dans mon lit. Que tu parles à mon fils. Que tu portes mes vêtements.
+
+— Je ne porte pas tes vêtements.
+
+— Pas encore.
+
+— Charlotte, l'accident. Qui était dans la voiture ?
+
+La voix s'est faite plus grave.
+
+— Quelqu'un qui me ressemblait.
+
+— Qui ?
+
+— Quelqu'un qui voulait devenir moi. Comme je voulais devenir toi.
+
+— Pourquoi ?
+
+— Parce que c'est un cercle, Clémence. On veut toujours être l'autre. Toi, tu as toujours voulu être moi.
+
+— C'est faux.
+
+— Alors pourquoi tu pleurais quand maman me serrait contre elle ? Pourquoi tu recopiais mes vêtements ? Pourquoi tu as accepté de venir ici ?
+
+J'ai coupé.
+
+J'ai garé la voiture sur le bas-côté. J'ai vomi dans le fossé.
+
+---
+
+### Chapitre 40
+
+En rentrant, j'ai trouvé la maison ouverte.
+
+Pas forcée. Ouverte. Comme si quelqu'un m'attendait.
+
+J'ai appelé Malo. Pas de réponse.
+
+J'ai monté les escaliers. Sa chambre était vide. Son sac d'école par terre. Son ours sur le lit.
+
+— Malo !
+
+Rien.
+
+J'ai couru dans la maison. J'ai ouvert la chambre de Charlotte.
+
+Elle était là.
+
+Debout devant le miroir. Elle portait une robe bleue. Ses cheveux blonds tombaient sur ses épaules.
+
+Elle se retourna.
+
+Ce n'était pas Charlotte.
+
+C'était moi.
+
+Elle avait mon visage. Mes vêtements. Ma façon de tenir la tête.
+
+Elle a souri.
+
+— Enfin, a-t-elle dit. Tu es rentrée.
+
+— Qui êtes-vous ? ai-je murmuré.
+
+Elle a fait un pas vers moi.
+
+— Je suis Charlotte. Je suis toi. Je suis celle que tu vas remercier d'avoir pris ta place.
+
+Elle a tendu la main.
+
+— Tu peux partir maintenant, Clémence.
+
+J'ai reculé.
+
+— Où est Malo ?
+
+— Malo est avec maman. Il va bien. Mieux qu'avec toi.
+
+Elle a sorti quelque chose de sa poche.
+
+Un passeport. À ma photo. Au nom de Charlotte Vaillant.
+
+— Tu es morte, Clémence. Tu es morte dans un accident il y a des mois. Et moi, je suis enfin rentrée chez moi.
+
