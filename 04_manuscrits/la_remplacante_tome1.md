@@ -378,19 +378,27 @@ Comme si elle savait quelque chose sur moi que j'ignorais encore.
 
 Le notaire nous a reçus lundi après-midi.
 
-Maison Daoulas, 4 rue de l'Église. Un bureau de notaire exactement comme on s'y attend : boiseries sombres, tapis épais, odeur de vieux papier et d'eau de toilette masculine.
+Maison Daoulas, 4 rue de l'Église. Un bureau de notaire exactement comme on s'y attend : boiseries sombres, tapis épais, odeur de vieux papier et d'eau de toilette masculine. Sur les murs, des gravures de bateaux à voile et un diplôme encadré qui datait d'avant ma naissance. Une pendule en laiton comptait les secondes derrière le bureau, trop fort, comme si le temps lui-même était facturé à l'heure.
 
-Denise, Paul et moi étions assis devant le bureau. Malo était resté avec une voisine.
+Denise, Paul et moi étions assis devant le bureau. Malo était resté avec une voisine, la dame Morin, qui habitait à côté et qui avait déjà élevé quatre enfants. Quatre enfants normaux, avait-elle précisé, comme si le mutisme de Malo était une tare qu'on pouvait attraper.
 
-Maître Nourry portait des lunettes à monture dorée. Il avait l'air fatigué, comme s'il avait déjà fait ce discours cent fois ce mois-ci.
+Maître Nourry portait des lunettes à monture dorée. Il avait l'air fatigué, comme s'il avait déjà fait ce discours cent fois ce mois-ci. Peut-être plus. Sa chemise blanche était impeccable, mais son nœud de cravate avait glissé d'un centimètre vers la gauche. Le centimètre de la défaite. Je ne sais pas pourquoi, ça m'a fait de la peine.
 
 — Madame Vaillant a rédigé son testament il y a un an, a-t-il commencé. Elle a tout prévu avec une… précision remarquable.
 
-Il a ouvert un classeur.
+Il a ouvert un classeur épais. Le cuir était usé aux coins. Il a fait tourner plusieurs pages, assez longtemps pour que je comprenne qu'il cherchait le bon passage. Ou qu'il nous laissait le temps de nous préparer.
 
 — Concernant la tutelle de son fils, Malo Vaillant, elle désigne sa sœur, madame Clémence Barreau, comme tutrice unique et légale.
 
-J'ai senti le regard de Denise se poser sur moi. Lourd. Accusateur.
+J'ai senti le regard de Denise se poser sur moi. Lourd. Accusateur. Comme si j'avais moi-même rédigé le document.
+
+— Pourquoi pas toi ? ai-je demandé à ma mère.
+
+— Elle m'a écartée, a répondu Denise en regardant ses mains. Elle a dit que j'étais trop vieille. Que je ne pourrais pas suivre un enfant.
+
+Sa voix était neutre, mais j'ai perçu la blessure. L'exclusion de la mère au profit de la sœur absente. Charlotte savait frapper où ça faisait mal.
+
+Maître Nourry a toussoté.
 
 — Concernant le patrimoine immobilier, la maison de famille située à Kerfany-Plage est mise à disposition de madame Barreau pour une durée d'un an à compter de ce jour, le temps qu'elle assume la tutelle et l'éducation de l'enfant. Passé ce délai, si madame Barreau ne souhaite pas conserver l'enfant à sa charge, la maison sera revendue et les fonds reversés à l'Assistance publique.
 
@@ -400,15 +408,17 @@ J'ai senti le regard de Denise se poser sur moi. Lourd. Accusateur.
 
 — Rien.
 
-Paul, lui, était resté de marbre.
+Paul, lui, était resté de marbre. Il fixait un point sur le mur, derrière l'épaule de Maître Nourry. Il avait l'air d'un homme qui assistait à la lecture d'un contrat d'assurance pour une voiture qu'il n'aimait plus.
 
 — Concernant les autres biens, a continué Maître Nourry, monsieur Vaillant conserve l'appartement de Rennes et ses revenus professionnels. Madame Barreau percevra une allocation mensuelle de 1 200 euros pour les frais liés à l'éducation de Malo, versée sur un compte dédié.
 
 — Et si je refuse ? ai-je demandé.
 
-Le notaire a retiré ses lunettes.
+Le notaire a retiré ses lunettes. Il les a posées sur le classeur. Sans elles, ses yeux paraissaient plus petits, plus vulnérables.
 
 — Vous pouvez refuser. Dans ce cas, la tutelle sera confiée au juge des enfants. Probablement une famille d'accueil, dans un premier temps.
+
+— Et Paul ?
 
 J'ai regardé Paul.
 
@@ -416,7 +426,7 @@ J'ai regardé Paul.
 
 — Ce n'est pas mon fils, a-t-il dit.
 
-La pièce est devenue silencieuse.
+La pièce est devenue silencieuse. Même la pendule semblait s'être arrêtée.
 
 — Pardon ?
 
@@ -424,17 +434,53 @@ La pièce est devenue silencieuse.
 
 — Tu acceptes de le laisser partir ?
 
-Paul a enfin tourné la tête vers moi.
+Paul a enfin tourné la tête vers moi. Ses yeux étaient rouges, mais pas de larmes. De la fatigue. De la colère rentrée. De toutes ces nuits où il avait dû faire semblant.
 
-— Je n'ai jamais été son père, Clémence. Pas au sens où ça compte.
+— Je n'ai jamais été son père, Clémence. Pas au sens où ça compte. Charlotte s'en occupait seule. Elle voulait qu'on croie à une famille. Moi, j'ai joué le jeu. Maintenant, le jeu est fini.
+
+— Tu abandonnes ton enfant parce que le jeu est fini ?
+
+— Je n'abandonne pas. Je me retire. Il y a une différence.
+
+J'ai voulu le gifler. Je n'ai pas bougé. Je savais que Maître Nourry nous observait avec cette patience professionnelle des gens qui ont déjà tout vu, et qui savent que les disputes familiales ne se gagnent jamais devant un bureau.
+
+Denise a posé sa main sur mon bras.
+
+— Clémence. Réfléchis.
+
+— À quoi ?
+
+— À ce que tu signes. Un an. Une maison. Un enfant muet que tu ne connais pas.
 
 J'ai regardé le classeur.
 
 *« Tu ne m'as pas vue depuis trois ans. »*
 
-Charlotte m'avait piégée. Avec une maison, un enfant, un an d'engagement. Elle savait que je ne pourrais pas refuser. Pas si l'autre option était l'abandon.
+Charlotte m'avait piégée. Avec une maison, un enfant, un an d'engagement. Elle savait que je ne pourrais pas refuser. Pas si l'autre option était l'abandon. Pas si l'autre option, c'était de devenir comme elle.
+
+— Pourquoi un an ? ai-je demandé au notaire.
+
+— C'est la durée qu'a fixée madame Vaillant. Elle a précisé que c'était le temps nécessaire pour que vous compreniez.
+
+— Comprendre quoi ?
+
+— Elle ne l'a pas précisé.
+
+J'ai fermé les yeux une seconde. Derrière mes paupières, j'ai vu Charlotte. Son sourire. Son bleu roi. Sa façon de disposer les pièces sur un échiquier sans jamais te dire les règles.
 
 — Donnez-moi les papiers, ai-je dit.
+
+Maître Nourry a fait glisser trois feuilles devant moi. Un stylo lourd, noir et or. J'ai signé mon nom. Clémence Barreau. Lettre par lettre, comme si j'écrivais une condamnation.
+
+Quand j'ai reposé le stylo, Paul s'est levé. Il n'a pas dit au revoir. Il est sorti en laissant la porte ouverte. Denise est restée assise.
+
+— Tu es sûre ? a-t-elle demandé.
+
+— Non.
+
+— Moi non plus.
+
+Elle a pris ma main. Sa peau était froide, ridée, familière. Pour la première fois depuis mon arrivée, j'ai eu l'impression qu'on était du même côté.
 
 ---
 
