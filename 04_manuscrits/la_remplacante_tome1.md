@@ -601,7 +601,9 @@ Peut-être avait-elle raison.
 
 Paul m'a trouvée sur la plage, le lendemain matin.
 
-Je dormais mal. Très mal. J'avais fini par me lever à six heures, enfiler mes baskets, et marcher jusqu'à la mer. L'aube était couleur d'acier. Les vagues s'écrasaient sans bruit sur le sable humide.
+Je dormais mal. Très mal. J'avais fini par me lever à six heures, après avoir passé l'essentiel de la nuit à écouter le vent dans les gouttières et les craquements du parquet. J'avais enfilé mes baskets sans chaussettes, attrapé mon manteau sur la chaise, et marché jusqu'à la mer. L'aube était couleur d'acier. Les vagues s'écrasaient sans bruit sur le sable humide, comme si la mer aussi avait peur de réveiller le village.
+
+Je marchais depuis vingt minutes quand je l'ai vu arriver par le sentier des douaniers.
 
 — Tu as pris du café ? a-t-il demandé.
 
@@ -609,7 +611,7 @@ Je dormais mal. Très mal. J'avais fini par me lever à six heures, enfiler mes 
 
 — Moi non plus.
 
-Il était venu à pied. Il portait un long manteau beige et des chaussures trop élégantes pour la plage. Derrière lui, la maison de Charlotte se découpait au sommet de la falaise. Une maison moderne, en bois et en verre, avec de larges baies qui donnaient sur l'océan.
+Il était venu à pied. Il portait un long manteau beige et des chaussures trop élégantes pour la plage. Les semelles en cuir s'enfonçaient dans le sable à chaque pas. Derrière lui, la maison de Charlotte se découpait au sommet de la falaise. Une maison moderne, en bois et en verre, avec de larges baies qui donnaient sur l'océan. Même à cette distance, on devinait la rigidité des lignes, l'absence de fioritures. Une maison qui avait été pensée, calculée, imposée au paysage.
 
 — Charlotte a construit cette maison il y a quatre ans, a-t-il dit sans que je demande. Elle a tout conçu. L'emplacement, les matériaux, la lumière. Même les poignées de porte.
 
@@ -617,15 +619,15 @@ Il était venu à pied. Il portait un long manteau beige et des chaussures trop 
 
 — Oui.
 
-Il a sorti un paquet de cigarettes de sa poche. Je ne savais pas qu'il fumait.
+Il a sorti un paquet de cigarettes de sa poche. Je ne savais pas qu'il fumait. Il en a tapoté une contre le boîtier, l'a mise entre ses lèvres, a allumé avec un briquet argenté. Le geste était lent, soigné, presque cérémonial.
 
-— Je ne viens pas t'embêter, a-t-il dit en allumant. Mais il faut qu'on parle logistique.
+— Je ne viens pas t'embêter, a-t-il dit en recrachant un filet de fumée. Mais il faut qu'on parle logistique.
 
 — Je sais. La maison. Les papiers. L'école.
 
 — Non. Je veux parler de Malo.
 
-J'ai attendu.
+J'ai attendu. La fumée de sa cigarette venait se mêler à l'air salé. Je me suis demandé si c'était une nouvelle habitude, ou si Charlotte le savait.
 
 — Il n'a pas parlé depuis la mort de Charlotte. Pas un mot. Les médecins disent que c'est un choc. Un refus. Rien d'organique.
 
@@ -635,7 +637,7 @@ J'ai attendu.
 
 — Et toi ?
 
-Il a recraché la fumée.
+Il a recraché la fumée. Elle s'est dissipée aussitôt, emportée par le vent.
 
 — Moi, je repars à Rennes la semaine prochaine. J'ai un projet. Un immeuble. Je ne peux pas l'interrompre.
 
@@ -647,7 +649,7 @@ Il a recraché la fumée.
 
 — Ma responsabilité, je l'assume. C'est pour ça que je te demande de t'installer dans la maison. Un an. Pour Malo. Pas pour Charlotte. Pas pour moi.
 
-J'ai regardé la maison.
+J'ai regardé la maison. Le soleil commençait à percer derrière les nuages. Les vitres se sont mises à briller, aveuglantes, comme si la maison me regardait.
 
 — Je n'ai pas le droit de refuser, de toute façon.
 
@@ -655,13 +657,13 @@ J'ai regardé la maison.
 
 — Ta mère me menace de porter plainte.
 
-Il a écrasé sa cigarette dans le sable.
+Il a écrasé sa cigarette dans le sable. Il a laissé le mégot là, debout dans le sable humide, comme une petite croix noire.
 
 — Ma mère menace beaucoup. Elle aime le contrôle. Comme Charlotte.
 
 — Tu penses que je devrais refuser ?
 
-Il a mis longtemps à répondre.
+Il a mis longtemps à répondre. Le temps d'une vague, peut-être deux.
 
 — Non. Je pense que tu es la seule à pouvoir le faire.
 
