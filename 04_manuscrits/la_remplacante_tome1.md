@@ -1502,11 +1502,13 @@ Presque.
 
 Le téléphone a sonné à trois heures du matin.
 
-J'ai sursauté, le cœur déjà dans la gorge. J'avais dormi par à-coups, hantée par l'escalier de pierre et le sang sur le carrelage.
+J'ai sursauté, le cœur déjà dans la gorge. J'avais dormi par à-coups, hantée par l'escalier de pierre et le sang sur le carrelage. Le rêve revenait chaque nuit maintenant. Je descendais les marches. Je voyais la porte rouge. Je savais ce qu'il y avait derrière. Je ne voulais pas ouvrir. J'ouvrais quand même.
 
-J'ai attrapé mon téléphone sur la table de chevet. Numéro inconnu.
+J'ai attrapé mon téléphone sur la table de chevet. L'écran m'a aveuglée. Numéro inconnu.
 
 J'ai hésité.
+
+À trois heures du matin, un numéro inconnu n'est jamais une bonne nouvelle. C'est un hôpital. Un commissariat. Un mort qui appelle.
 
 Puis j'ai décroché.
 
@@ -1516,19 +1518,19 @@ Silence.
 
 — Allô ? ai-je répété.
 
-Une respiration. Lente. Profonde.
+Une respiration. Lente. Profonde. Comme si quelqu'un savourait l'air avant de parler.
 
 Puis une voix.
 
 — Tu n'aurais pas dû lire la lettre.
 
-J'ai senti la terreur me saisir.
+J'ai senti la terreur me saisir. Pas la peur ordinaire. L'autre. Celle qui vous glace les mains et vous noue l'estomac en une seconde.
 
 — Qui est à l'appareil ?
 
 — Tu sais qui.
 
-La voix était faible, comme filtrée par du coton. Mais le timbre… le timbre me glaçait.
+La voix était faible, comme filtrée par du coton. Mais le timbre… le timbre me glaçait. C'était ma voix. Ma voix avec un accent, une intonation que je ne reconnaissais pas tout à fait. Comme si quelqu'un apprenait à me ressembler.
 
 — Charlotte ?
 
@@ -1538,11 +1540,11 @@ La voix était faible, comme filtrée par du coton. Mais le timbre… le timbre 
 
 — Le jeu où tu deviens moi. Ou où tu meurs à ma place.
 
-J'ai serré le téléphone contre mon oreille.
+J'ai serré le téléphone contre mon oreille. Le plastique était froid.
 
 — Tu n'es pas morte.
 
-La voix a ri. Un rire à peine audible.
+La voix a ri. Un rire à peine audible, qui s'est brisé en plusieurs morceaux.
 
 — Personne ne meurt vraiment, Clémence. Pas quand on a un double.
 
@@ -1552,7 +1554,7 @@ La voix a ri. Un rire à peine audible.
 
 La communication a été coupée.
 
-Je suis restée immobile, le téléphone à la main. Mes doigts tremblaient.
+Je suis restée immobile, le téléphone à la main. Mes doigts tremblaient. J'ai regardé l'écran. Appel terminé. Durée : 47 secondes.
 
 En bas, dans la maison, j'ai entendu Malo. Un cri étouffé. Un cauchemar.
 
@@ -1568,7 +1570,6 @@ Mais moi, je regardais la porte du couloir.
 
 Et je pensais au tiroir du bureau.
 
----
 
 ### Chapitre 21
 
