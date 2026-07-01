@@ -1184,7 +1184,7 @@ Pas une liste de courses. Une liste de rituels.
 
 *Rituels de Malo (établis par Charlotte)*, avait-elle écrit en haut de la feuille.
 
-Je l'ai lue à la cuisine, une main autour d'une tasse de thé froid.
+Je l'ai lue à la cuisine, une main autour d'une tasse de thé froid. La feuille était rédigée à l'ordinateur, avec une police sans-serif parfaitement alignée. Pas de rature. Pas de note au crayon. Une charte parentale.
 
 *1. Lever : 7h30 précises. Ne pas devancer. Ne pas retarder.*
 *2. Petit déjeuner : pain grillé, beurre demi-sel, confiture abricot maison. Jus de pomme pressé. Pas de céréales.*
@@ -1197,7 +1197,9 @@ Je l'ai lue à la cuisine, une main autour d'une tasse de thé froid.
 
 Je suis restée un moment à regarder cette liste.
 
-Charlotte avait tout calculé. Chaque minute de la journée de son fils. Pas un espace pour l'improvisation. Pas un trou pour l'affection spontanée.
+Charlotte avait tout calculé. Chaque minute de la journée de son fils. Pas un espace pour l'improvisation. Pas un trou pour l'affection spontanée. Même les phrases étaient des instructions. Pas une seule fois le mot « bisous ». Pas une seule fois le mot « amour ».
+
+Et pourtant, c'était son amour à elle. L'unique façon qu'elle avait trouvée pour dire qu'elle s'inquiétait. Pour maîtriser sa peur que quelque chose arrive à son enfant.
 
 Malo est apparu dans l'encadrement de la porte.
 
@@ -1221,25 +1223,33 @@ J'ai regardé la liste. *Pain grillé, beurre demi-sel, confiture abricot maison
 
 — Je ne sais pas faire des crêpes.
 
-Il a baissé les yeux.
+Il a baissé les yeux. Ses cils se sont posés sur ses joues.
 
 — Maman savait.
 
-J'ai senti une piqûre au cœur.
+J'ai senti une piqûre au cœur. Pas une grosse. Une de celles qui ne font pas de bruit mais qui laissent une trace.
 
 — D'accord, ai-je dit. On va essayer.
 
-J'ai cherché la recette sur mon téléphone. Farine, œufs, lait, sucre, beurre fondu. J'ai tout mélangé dans un saladier. La pâte était trop épaisse. J'ai ajouté du lait. Trop liquide. J'ai rajouté de la farine.
+J'ai cherché la recette sur mon téléphone. Farine, œufs, lait, sucre, beurre fondu. J'ai tout mélangé dans un saladier. La pâte était trop épaisse, elle tenait à la cuillère comme du plâtre. J'ai ajouté du lait. Trop liquide, elle coulait comme de l'eau. J'ai rajouté de la farine. La texture est devenue granuleuse, pleine de petits grumeaux blancs que je n'arrivais pas à écraser.
 
-Malo me regardait faire, sérieux.
+Malo me regardait faire, sérieux. Comme un scientifique qui observe un cobaye faire n'importe quoi.
 
 — C'est pas comme ça que faisait maman, a-t-il dit.
 
 — Je sais. Mais c'est comme ça que je fais, moi.
 
-J'ai versé une louche de pâte dans la poêle. Elle a brûlé légèrement sur les bords.
+— Maman elle mettait du rhum.
 
-Quand j'ai servi la première crêpe, elle était marron d'un côté, pâle de l'autre. Malo l'a regardée.
+— Du rhum ?
+
+— Un tout petit peu. Pour le goût.
+
+J'ai cherché dans le placard. Il y avait une bouteille de vieux rhum, presque pleine, au fond. Je l'ai sortie. J'ai versé une goutte dans la pâte.
+
+J'ai versé une louche de pâte dans la poêle. Elle a brûlé légèrement sur les bords, collé au centre. J'ai gratté avec une spatule. La crêpe s'est déchirée en deux.
+
+Quand j'ai servi la première crêpe, elle était marron d'un côté, pâle de l'autre. Des morceaux de pâte à peine cuits se voyaient au milieu. Malo l'a regardée.
 
 — Elle est pas belle, a-t-il dit.
 
@@ -1249,22 +1259,22 @@ Quand j'ai servi la première crêpe, elle était marron d'un côté, pâle de l
 
 — Goûte.
 
-Il a pris un morceau. Il a mâché lentement.
+Il a pris un morceau. Il a mâché lentement. Il a froncé les sourcils.
 
 — C'est pas pareil, a-t-il dit.
 
 — C'est différent.
 
+Il a pris une deuxième bouchée.
+
 — C'est pas mauvais.
 
 C'était le plus beau compliment qu'il pouvait me faire.
 
-Nous avons mangé nos crêpes ratées à la cuisine, face à la mer. Malo a fini par sourire une fois. Juste une fois.
+Nous avons mangé nos crêpes ratées à la cuisine, face à la mer. Le soleil entrait par la baie vitrée. Malo a fini par sourire une fois. Juste une fois. Un sourire court, timide, qui a disparu aussitôt.
 
 Ça m'a suffi.
 
-
----
 
 ### Chapitre 17
 
