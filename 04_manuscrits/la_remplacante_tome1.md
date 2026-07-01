@@ -1906,7 +1906,7 @@ Et sa main contre la vitre.
 
 Malo m'a regardée différemment le lendemain.
 
-Nous prenions le petit déjeuner. J'avais essayé de faire des crêpes, mieux que la première fois. Elles étaient presque réussies.
+Nous prenions le petit déjeuner. J'avais essayé de faire des crêpes, mieux que la première fois. Elles étaient presque réussies. Dorées aux bords, un peu épaisses au milieu. J'avais mis du sucre sur la table, comme dans sa liste.
 
 Il a regardé son assiette.
 
@@ -1924,13 +1924,13 @@ Il a hoché la tête.
 
 J'ai regardé la cuillère dans ma main.
 
-Je l'avais posée contre la tasse de la même façon que Charlotte. Sans m'en rendre compte.
+Je l'avais posée contre la tasse de la même façon que Charlotte. Sans m'en rendre compte. Le même angle. Le même petit clic.
 
 — Je ne fais pas exprès, ai-je dit.
 
 — C'est comme si elle était revenue.
 
-Sa voix était calme, sans émotion.
+Sa voix était calme, sans émotion. Il avait parlé comme on constate la pluie.
 
 — Tu aimerais ça ? ai-je demandé.
 
@@ -1952,7 +1952,7 @@ J'ai senti un frisson me parcourir.
 
 — Je sais pas.
 
-Malo a enfin regardé ses crêpes.
+Malo a enfin regardé ses crêpes. Il en a coupé un morceau avec le couteau, trop grand pour lui.
 
 — Je veux pas qu'elle revienne, a-t-il dit.
 
@@ -1962,12 +1962,10 @@ Malo a enfin regardé ses crêpes.
 
 — Quelle autre ?
 
-Il a baissé la voix.
+Il a baissé la voix. Au point que j'ai dû me pencher pour entendre.
 
 — Celle qui a le même visage qu'elle.
 
-
----
 
 ### Chapitre 28
 
