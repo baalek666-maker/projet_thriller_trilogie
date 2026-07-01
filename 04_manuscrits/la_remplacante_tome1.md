@@ -906,11 +906,11 @@ Et pendant cette demi-seconde, je n'ai pas su si c'était elle que je voyais, ou
 
 Malo a parlé pour la première fois le mercredi matin.
 
-Nous étions dans la cuisine. Je préparais du pain grillé, parce que c'était la seule chose que je savais faire. Malo était assis sur un tabouret haut, les jambes pendantes, à regarder les céréales que je lui avais versées sans qu'il les touche.
+Nous étions dans la cuisine. Je préparais du pain grillé, parce que c'était la seule chose que je savais faire. Malo était assis sur un tabouret haut, les jambes pendantes, à regarder les céréales que je lui avais versées sans qu'il les touche. Les cornflakes s'affaissaient lentement dans le lait, devenant de plus en plus mous, de plus en plus tristes.
 
 Il ne mangeait presque pas. Il ne dormait pas bien. Il ne pleurait pas non plus.
 
-Il était là, simplement. Comme un petit fantôme en pyjama bleu.
+Il était là, simplement. Comme un petit fantôme en pyjama bleu. Le pyjama était trop propre, trop repassé, comme si quelqu'un l'avait préparé pour un enterrement.
 
 — Tu veux du beurre sur ton pain ? ai-je demandé.
 
@@ -920,25 +920,27 @@ Il n'a pas répondu.
 
 Rien.
 
-J'ai posé mon couteau.
+J'ai posé mon couteau. Le bruit métallique sur le plan de travail a résonné trop fort dans la pièce silencieuse.
 
-— Malo, il faut que tu manges. Juste un peu.
+— Malo, il faut que tu manges. Juste un peu. Pour que ton corps fonctionne.
+
+Je me suis détestée aussitôt. *Pour que ton corps fonctionne.* Comme si j'avais été payée pour maintenir un appareil en état de marche.
 
 Il a regardé son assiette.
 
 — Maman mangeait pas le matin, a-t-il dit.
 
-Sa voix était si faible que j'ai failli ne pas l'entendre.
+Sa voix était si faible que j'ai failli ne pas l'entendre. Une voix de craie, de poussière. Comme si elle sortait d'un endroit très profond, très sec.
 
 J'ai retenu mon souffle.
 
 — Quoi ?
 
-Il a levé les yeux vers moi.
+Il a levé les yeux vers moi. Ses yeux étaient d'un gris plus clair que je ne l'aurais cru. Des yeux qui n'avaient pas encore décidé s'ils voulaient faire confiance au monde.
 
 — Maman mangeait pas le matin. Elle buvait du café noir. Elle disait que le petit déjeuner c'était pour les enfants et les vaches.
 
-J'ai souri malgré moi.
+J'ai souri malgré moi. Une grimace tordue qui ressemblait presque à un vrai souvenir.
 
 — Ça, c'est bien elle.
 
@@ -946,13 +948,13 @@ J'ai souri malgré moi.
 
 — C'était ma sœur.
 
-Il a hoché la tête, comme si cette information le rassurait.
+Il a hoché la tête, comme si cette information le rassurait. Comme si, enfin, quelque chose s'assemblait.
 
 — Tu vas devenir maman, maintenant ? a-t-il demandé.
 
-La question m'a transpercée.
+La question m'a transpercée. J'ai senti quelque chose se coincer dans ma gorge, entre le cœur et la voix.
 
-Je me suis assise en face de lui.
+Je me suis assise en face de lui. Le tabouret était froid sous mes cuisses.
 
 — Non. Je vais m'occuper de toi. C'est différent.
 
@@ -960,33 +962,41 @@ Je me suis assise en face de lui.
 
 — Une maman, c'est… c'est ta maman. Moi, je suis ta tante. Je suis là pour t'aider. Pour qu'elle te manque moins.
 
-Il a réfléchi un moment.
+Il a réfléchi un moment. Il a tourné sa cuillère dans son bol, sans la porter à sa bouche.
 
 — Elle me manque quand même.
 
 — Je sais.
 
-— Tu vas partir aussi ?
+— Ça ne va pas s'arrêter ?
+
+— Non. Mais ça va devenir moins lourd. Un jour.
+
+— Quand ?
+
+Je n'ai pas su répondre.
+
+— Tu vas partir aussi ? a-t-il demandé.
 
 — Non.
 
 — Promis ?
 
-J'ai hésité une seconde.
+J'ai hésité une seconde. Une seconde de trop, sans doute. Les enfants entendent tout ce qu'on ne dit pas.
 
 — Promis.
 
-Il a baissé les yeux. Puis, lentement, il a pris une bouchée de pain.
+Il a baissé les yeux. Puis, lentement, il a pris une bouchée de pain. Un tout petit morceau, à peine croqué. Mais c'était quelque chose.
 
 J'ai senti mes yeux se remplir de larmes. Je me suis levée pour ne pas qu'il les voie.
 
-Dans l'évier, j'ai laissé couler l'eau. J'ai regardé par la fenêtre.
+Dans l'évier, j'ai laissé couler l'eau. J'ai regardé par la fenêtre. Mes mains tremblaient légèrement.
 
-La mer était là, immense, grise. Dehors, un homme passait avec un chien. Il a levé la tête vers la maison.
+La mer était là, immense, grise. Dehors, un homme passait avec un chien. Un labrador noir, vieux, qui marchait avec difficulté. L'homme a levé la tête vers la maison.
 
-C'était le voisin, je crois. Gilles. Celui que Paul m'avait présenté brièvement. Grand, maigre, avec des lunettes rondes et une allure de retraité quelconque.
+C'était le voisin, je crois. Gilles. Celui que Paul m'avait présenté brièvement. Grand, maigre, avec des lunettes rondes et une allure de retraité quelconque. Le genre d'homme qu'on oublie cinq minutes après l'avoir rencontré.
 
-Il m'a regardée longtemps.
+Il m'a regardée longtemps. Plus longtemps qu'un simple voisin qui dit bonjour.
 
 Puis il a soulevé sa main et m'a saluée.
 
