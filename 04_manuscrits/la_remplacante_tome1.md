@@ -488,29 +488,31 @@ Elle a pris ma main. Sa peau était froide, ridée, familière. Pour la premièr
 
 J'ai signé.
 
-Je ne sais pas pourquoi j'ai signé aussi vite. Par orgueil. Par culpabilité. Parce que Denise me regardait comme si elle attendait que je flanche.
+Je ne sais pas pourquoi j'ai signé aussi vite. Par orgueil. Par culpabilité. Parce que Denise me regardait comme si elle attendait que je flanche. Parce que, au fond, signer me donnait l'illusion de contrôler quelque chose. Même si c'était un contrat rédigé par une morte.
 
-En sortant du cabinet, la pluie s'était arrêtée. L'air sentait la mer et l'algue. Kerfany-Plage était à dix minutes.
+En sortant du cabinet, la pluie s'était arrêtée. L'air sentait la mer et l'algue. Kerfany-Plage était à dix minutes à pied, mais j'ai pris la voiture. Je ne voulais pas marcher à côté de Denise. Je ne voulais pas entendre ce qu'elle allait dire. Surtout pas maintenant.
 
-Je suis allée marcher sur la plage.
+J'ai garé la Clio devant l'ancien hôtel des Bains, fermé depuis septembre. La façade orange pâlissait. Les volets étaient clos, comme des paupières qu'on n'ose pas ouvrir. Je suis descendue vers la plage par l'escalier de béton qui longe la cale.
 
-Il y avait du vent. Pas de touristes. Juste quelques chiens et un couple qui regardait les vagues de loin. J'ai marché jusqu'à ce que mes chaussures soient pleines de sable.
+Il y avait du vent. Pas de touristes. Juste quelques chiens qui couraient après des morceaux de bois et un couple en imperméable qui regardait les vagues de loin, sans se toucher. J'ai marché jusqu'à ce que mes chaussures soient pleines de sable. Le sable humide s'est infiltré par les coutures, froid et granuleux entre mes orteils.
 
 Je ne voulais pas ressembler à Charlotte.
 
-C'était ma seule certitude. Ma seule règle. Ne pas être cette femme aux dents parfaites, aux rires faciles, aux projets ambitieux. Celle qui faisait de la voile, du yoga, du bénévolat. Celle qui postait des photos de gâteaux parfaitement dorés sur Instagram.
+C'était ma seule certitude. Ma seule règle. Ne pas être cette femme aux dents parfaites, aux rires faciles, aux projets ambitieux. Celle qui faisait de la voile, du yoga, du bénévolat. Celle qui postait des photos de gâteaux parfaitement dorés sur Instagram. Celle qui réunissait des gens autour d'elle sans effort, comme si l'attention était un droit naturel.
 
-Moi, j'étais celle qui rangeait les livres. Celle qui mangeait des pâtes devant la télé. Celle qui avait une plante sur son balcon et qui l'avait appelée Marcel.
+Moi, j'étais celle qui rangeait les livres. Celle qui mangeait des pâtes devant la télé. Celle qui avait une plante sur son balcon et qui l'avait appelée Marcel. Celle qui partait avant la fin des soirées pour éviter de parler trop longtemps à quelqu'un.
 
-Charlotte m'avait toujours intimidée. Pas par méchanceté. Par excès. Elle était trop. Trop belle, trop sûre, trop présente. Quand elle entrait dans une pièce, les murs semblaient se rapprocher.
+Charlotte m'avait toujours intimidée. Pas par méchanceté. Par excès. Elle était trop. Trop belle, trop sûre, trop présente. Quand elle entrait dans une pièce, les murs semblaient se rapprocher. Quand elle riait, tout le monde tournait la tête. Quand elle avait mal, elle le cachait si bien que personne ne croyait qu'elle pouvait avoir mal.
 
 Et maintenant, elle voulait que je devienne elle.
 
-Une tutrice, oui. Une mère de substitution, peut-être. Mais les vêtements dans l'armoire, la maison, la durée d'un an… tout ça sentait la mise en scène.
+Une tutrice, oui. Une mère de substitution, peut-être. Mais les vêtements dans l'armoire, la maison, la durée d'un an… tout ça sentait la mise en scène. Charlotte ne me confiait pas son fils. Elle me donnait un rôle. Elle m'habillait avec ses vêtements, me logeait dans sa maison, me mesurait à sa vie. Comme si, en un an, je pouvais glisser dans sa peau et devenir la femme qu'elle n'avait pas été jusqu'au bout.
 
-Je me suis assise sur un rocher.
+Je me suis assise sur un rocher. Le granit était froid à travers mon pantalon. Une vague est arrivée, pas assez haute pour m'atteindre, mais assez pour mouiller le sable noir à mes pieds. L'écume a recouvert mes chaussures. Je ne les ai pas retirées.
 
-La mer était grise, immense, indifférente.
+La mer était grise, immense, indifférente. Elle n'avait aucun avis sur Charlotte. Aucun avis sur moi. Elle existait, c'était tout. Pendant quelques minutes, j'ai envié ça. L'existence sans jugement.
+
+J'ai sorti mon téléphone. Pas de message. Pas d'appel. Personne à Paris ne savait encore que j'étais partie pour de bon. Mon patron m'avait donné une semaine de congé forcé. *« Prends le temps, Clémence. On se revoit lundi. »* Lundi était déjà passé. Je n'avais pas prévenu que je ne reviendrais pas.
 
 Quelque part derrière moi, dans le village, il y avait une maison pleine de vêtements à ma taille. Un petit garçon qui ne parlait pas. Un beau-frère froid. Une mère hostile.
 
@@ -519,6 +521,10 @@ Et une sœur morte qui continuait de tirer les ficelles.
 Je ne voulais pas ressembler à Charlotte.
 
 Mais j'avais bien l'impression qu'elle avait prévu que je n'aie pas le choix.
+
+Le vent s'est levé. J'ai resserré mon manteau. Quand je me suis levée, mes jambes étaient engourdies. J'ai regardé une dernière fois la mer, puis je suis remontée vers la voiture.
+
+Le sable dans mes chaussures craquait à chaque pas.
 
 
 ---
