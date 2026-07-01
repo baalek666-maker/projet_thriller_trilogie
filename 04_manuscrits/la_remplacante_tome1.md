@@ -1280,11 +1280,11 @@ Nous avons mangé nos crêpes ratées à la cuisine, face à la mer. Le soleil e
 
 Le vendredi, j'ai découvert le mur.
 
-Pas dans la maison principale. Dans l'annexe, au fond du jardin. Une petite construction en bois que Charlotte utilisait comme bureau. Paul m'avait donné les clés sans me dire ce qu'il y avait dedans.
+Pas dans la maison principale. Dans l'annexe, au fond du jardin. Une petite construction en bois que Charlotte utilisait comme bureau. Paul m'avait donné les clés sans me dire ce qu'il y avait dedans. Il les avait posées sur la table, le matin de son départ, avec un mot griffonné : *« Bureau de Charlotte. Fais-en ce que tu veux. »*
 
 J'ai ouvert la porte.
 
-L'odeur m'a frappée en premier. De l'encens. Un parfum boisé, froid, que je n'ai jamais su identifier.
+L'odeur m'a frappée en premier. De l'encens. Un parfum boisé, froid, que je n'ai jamais su identifier. Quelque chose entre le cèdre et le musc, avec une pointe âcre de papier vieilli. L'air y était immobile. Comme s'il n'avait pas respiré depuis des semaines.
 
 Puis j'ai vu le mur.
 
@@ -1292,17 +1292,17 @@ Tout le mur du fond était couvert de photos. Des centaines. Peut-être des mill
 
 Et des photos de moi.
 
-Je me suis approchée, le cœur battant.
+Je me suis approchée, le cœur battant. Le plancher craquait sous mes pieds, mais ça ne me suffisait pas. J'avais l'impression de marcher sur quelque chose d'interdit.
 
-Il y avait des photos de moi que je ne connaissais pas. Moi à la bibliothèque, en train de ranger des livres. Moi sur mon balcon, en train d'arroser Marcel. Moi dans la rue, devant chez moi.
+Il y avait des photos de moi que je ne connaissais pas. Moi à la bibliothèque, en train de ranger des livres. Moi sur mon balcon, en train d'arroser Marcel. Moi dans la rue, devant chez moi. Des clichés pris de loin. Avec un zoom. Depuis une voiture, peut-être. Ou d'une fenêtre d'en face.
 
 Charlotte m'avait prise en photo sans que je le sache.
 
-Certaines photos étaient anciennes. Moi à l'université. Moi à un mariage, je ne savais plus lequel. Moi adolescente, sur une plage.
+Certaines photos étaient anciennes. Moi à l'université, sortant d'un cours de philo, le cartable sur l'épaule. Moi à un mariage, je ne savais plus lequel, une robe bleue que je n'avais jamais aimée. Moi adolescente, sur une plage, en train de manger une glace à l'eau. J'avais quinze ans, peut-être seize. Charlotte et moi n'étions déjà plus très proches.
 
 Elle m'avait surveillée pendant des années.
 
-J'ai remarqué autre chose. Sur chaque photo, mon visage avait été entouré d'un cercle rouge. Et à côté, des notes manuscrites.
+J'ai remarqué autre chose. Sur chaque photo, mon visage avait été entouré d'un cercle rouge. Et à côté, des notes manuscrites, au feutre fin, dans l'écriture parfaitement droite de Charlotte.
 
 *« Cheveux à couper. »*
 *« Maquillage trop discret. »*
@@ -1311,25 +1311,24 @@ J'ai remarqué autre chose. Sur chaque photo, mon visage avait été entouré d'
 
 Je me suis reculée.
 
-Le mur entier était un projet. Un projet de transformation. Charlotte m'étudiait, me découpait, me corrigeait. Comme un tailleur qui prépare une robe sur un mannequin.
+Le mur entier était un projet. Un projet de transformation. Charlotte m'étudiait, me découpait, me corrigeait. Comme un tailleur qui prépare une robe sur un mannequin. Comme un chirurgien qui trace ses lignes avant l'incision.
 
-Sur un tableau en liège, à droite, il y avait des coupures de presse. Des articles sur des jumeaux. Des jumeaux identiques. Des jumeaux qui échangent leur vie. Des histoires de substitution.
+Sur un tableau en liège, à droite, il y avait des coupures de presse. Des articles sur des jumeaux. Des jumeaux identiques. Des jumeaux qui échangent leur vie. Des histoires de substitution. Une histoire américaine, une russe, une française. Des jumeaux qui avaient pris la place l'un de l'autre pendant des années sans que personne ne s'en aperçoive.
 
 Et au centre, une grande feuille avec un titre.
 
 *« Le Plan. »*
 
-J'ai voulu la lire. Mes mains tremblaient trop.
+J'ai voulu la lire. Mes mains tremblaient trop. Je les ai posées sur le bureau pour essayer de me calmer. Le bois était froid. Poussiéreux.
 
 À ce moment-là, mon téléphone a vibré.
 
-J'ai sursauté.
+J'ai sursauté. Le son était démultiplié dans le silence du bureau, comme une détonation.
 
 Un message d'Inès : *« Tu as trouvé le bureau ? »*
 
 Je n'avais parlé à personne du bureau.
 
----
 
 ### Chapitre 18
 
