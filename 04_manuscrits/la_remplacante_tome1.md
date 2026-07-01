@@ -1575,15 +1575,15 @@ Et je pensais au tiroir du bureau.
 
 Le lendemain matin, j'ai ouvert le tiroir.
 
-Je savais que je ne devais pas. Après un appel anonyme, après une nuit sans sommeil, après un petit garçon qui avait sangloté dans mes bras, je savais que la chose intelligente était de prévenir la police.
+Je savais que je ne devais pas. Après un appel anonyme, après une nuit sans sommeil, après un petit garçon qui avait sangloté dans mes bras, je savais que la chose intelligente était de prévenir la police. Ou de partir. De prendre Malo et de partir loin de cette maison.
 
 Mais je n'ai pas pu m'empêcher.
 
 Le tiroir de droite du bureau. Celui que j'avais ouvert la veille sans y prêter attention.
 
-Dedans, il y avait un carnet. Noir, avec un fermoir en cuivre usé.
+Dedans, il y avait un carnet. Noir, avec un fermoir en cuivre usé. Il n'était pas poussiéreux. Quelqu'un l'avait tenu récemment. Ou l'avait nettoyé.
 
-J'ai soulevé le fermoir.
+J'ai soulevé le fermoir. Il a cliqué.
 
 La première page portait une date. Il y avait trois ans.
 
@@ -1599,13 +1599,13 @@ Encore une page.
 
 Le carnet entier était consacré à moi.
 
-Des photos. Des adresses. Des horaires. Des observations.
+Des photos. Des adresses. Des horaires. Des observations. Des détails que je n'aurais pas remarqués moi-même.
 
 *« Clémence prend le bus 12 le matin. Elle lit du Temps qu'elle ne finit jamais. »*
 *« Clémence a un collègue, Lucien. Elle ne l'aime pas. »*
 *« Clémence a rencontré un homme, Théo, en novembre. Relation de trois semaines. Elle l'a quitté. »*
 
-J'ai tourné les pages de plus en plus vite.
+J'ai tourné les pages de plus en plus vite. L'écriture restait la même. Régulière. Patient. Celle d'une femme qui avait du temps devant elle.
 
 Puis je suis tombée sur une page différente.
 
@@ -1628,7 +1628,6 @@ Elle ne voulait pas que je m'occupe de Malo.
 
 Elle voulait que je devienne elle.
 
----
 
 ### Chapitre 22
 
