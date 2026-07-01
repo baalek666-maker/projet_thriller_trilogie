@@ -1091,6 +1091,8 @@ Elle est entrée dans la maison comme si elle en avait les clés depuis toujours
 
 — Alors ? Comment ça se passe ? a-t-elle demandé en posant un sac de pâtisseries sur la table.
 
+J'ai reconnu l'emballage. Une boulangerie de Quimper, celle qui faisait les kouign-amann que Charlotte adorait. Inès connaissait les détails. Tous les détails.
+
 — Ça va.
 
 — « Ça va » est le mot le plus inquiétant de la langue française. Personne ne dit « ça va » quand ça va vraiment.
@@ -1111,7 +1113,7 @@ J'ai regardé Inès.
 
 — Rien de grave. Juste que Malo est un enfant… sensible. Il réagit aux tensions. Il sent quand quelque chose ne va pas. Charlotte le disait souvent : il était comme un radar émotionnel.
 
-Elle s'est approchée de la baie vitrée.
+Elle s'est approchée de la baie vitrée. Elle a posé sa main sur la vitre. Ses ongles étaient parfaitement manucurés, de la même couleur ivoire que sa blouse.
 
 — Tu as vu la vue ?
 
@@ -1123,11 +1125,11 @@ Elle s'est approchée de la baie vitrée.
 
 — Charlotte passait des heures ici. Elle disait que la mer était son médecin.
 
-Inès s'est tournée vers moi.
+Inès s'est tournée vers moi. Le soleil derrière elle la rendait presque transparente.
 
 — Viens, je vais te montrer quelque chose.
 
-Elle m'a entraînée dans le bureau, une petite pièce au fond du couloir. Sur le mur, un grand écran plat. Sous l'écran, un boîtier noir avec des voyants lumineux.
+Elle m'a entraînée dans le bureau, une petite pièce au fond du couloir. Sur le mur, un grand écran plat. Sous l'écran, un boîtier noir avec des voyants lumineux. L'odeur y était différente. Plus chaude, plus technologique. De la poussière sur un ventilateur silencieux.
 
 — C'est le système de vidéosurveillance.
 
@@ -1135,7 +1137,7 @@ Elle m'a entraînée dans le bureau, une petite pièce au fond du couloir. Sur l
 
 — Pas pour espionner. Pour la sécurité. Elle avait eu une intrusion, il y a deux ans. Un type qui rodait autour de la propriété. Depuis, elle a tout sécurisé.
 
-Inès a allumé l'écran. L'image s'est divisée en plusieurs cases. L'entrée. Le jardin. Le salon. La cuisine. L'allée.
+Inès a allumé l'écran. L'image s'est divisée en quatre cases. L'entrée. Le jardin. Le salon. La cuisine. L'allée. Les couleurs étaient légèrement délavées, comme si on regardait la maison à travers des lunettes de soleil.
 
 — Il y a des caméras partout ?
 
@@ -1149,7 +1151,7 @@ Elle a souri.
 
 — Si. Si tu pars quelques heures, si Malo reste avec une baby-sitter, tu dois pouvoir vérifier.
 
-Elle a pris mon téléphone sur le bureau et a commencé à installer l'application.
+Elle a pris mon téléphone sur le bureau et a commencé à installer l'application. Ses doigts glissaient sur l'écran avec une familiarité qui m'a mise mal à l'aise.
 
 — Tu sais, a-t-elle dit sans me regarder, Charlotte me parlait souvent de toi. Elle disait que tu étais la seule personne de la famille à ne pas être complètement folle.
 
@@ -1171,7 +1173,8 @@ Son sourire s'est élargi.
 
 — Enfin, presque.
 
----
+Le mot est resté suspendu dans l'air entre nous, comme une toile d'araignée que j'aurais failli toucher.
+
 
 ### Chapitre 16
 
