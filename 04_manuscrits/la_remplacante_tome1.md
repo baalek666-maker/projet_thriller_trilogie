@@ -2060,7 +2060,9 @@ Exactement comme moi.
 
 Malo m'a regardée différemment le lendemain.
 
-Nous prenions le petit déjeuner. J'avais essayé de faire des crêpes, mieux que la première fois. Elles étaient presque réussies. Dorées aux bords, un peu épaisses au milieu. J'avais mis du sucre sur la table, comme dans sa liste.
+Je l'ai senti dès qu'il est entré dans la cuisine. Ce regard en biais, un peu trop long, qui se posait sur moi comme on teste une surface douteuse du bout du doigt. Il s'est assis sans un mot. A tiré son bol vers lui. Le bois de la chaise a grinçé sur le carrelage.
+
+Nous prenions le petit déjeuner. J'avais essayé de faire des crêpes, mieux que la première fois. Elles étaient presque réussies. Dorées aux bords, un peu épaisses au milieu. L'odeur de beurre chaud flottait encore dans la pièce, mêlée à celle du bois mouillé dans l'âtre. J'avais mis du sucre sur la table, comme dans sa liste. Le sucre en poudre, pas le sucre en morceaux. Charlotte préférait le sucre en poudre. Moi aussi, apparemment.
 
 Il a regardé son assiette.
 
@@ -2072,23 +2074,25 @@ Il a regardé son assiette.
 
 — Comme maman ?
 
-Il a hoché la tête.
+Il a hoché la tête. Lentement. Comme quelqu'un qui pèse chacun de ses gestes.
 
 — Tu dis les mêmes mots. Tu fais les mêmes bruits avec la cuillère.
 
 J'ai regardé la cuillère dans ma main.
 
-Je l'avais posée contre la tasse de la même façon que Charlotte. Sans m'en rendre compte. Le même angle. Le même petit clic.
+Je l'avais posée contre la tasse de la même façon que Charlotte. Sans m'en rendre compte. Le même angle. Le même petit clic. Le métal froid contre la porcelaine. Ce tintement précis, sec, à peine audible. Un bruit que je n'aurais jamais remarqué si un enfant de sept ans ne venait pas de me le signaler.
 
 — Je ne fais pas exprès, ai-je dit.
 
+Ma voix avait résonné dans la cuisine vide. Trop claire. Trop calme.
+
 — C'est comme si elle était revenue.
 
-Sa voix était calme, sans émotion. Il avait parlé comme on constate la pluie.
+Sa voix était calme, sans émotion. Il avait parlé comme on constate la pluie. Sans tristesse, sans joie. Un fait.
 
 — Tu aimerais ça ? ai-je demandé.
 
-Il a réfléchi.
+Il a réfléchi. Ses yeux ont bougé, comme s'il cherchait la réponse quelque part derrière moi, dans le vide au-dessus de l'évier.
 
 — Non.
 
@@ -2096,17 +2100,21 @@ Il a réfléchi.
 
 — Parce que maman avait peur. Elle regardait la porte tout le temps. Elle dormait pas. Elle criait dans la nuit.
 
-J'ai senti un frisson me parcourir.
+J'ai senti un frisson me parcourir. Le café dans ma tasse avait refroidi. Je ne l'avais pas touché.
 
 — Elle criait quoi ?
 
 — Elle disait : « Elle va me reprendre. Elle va me reprendre. »
 
+Les mots sont restés suspendus. Je les ai entendus deux fois. Une fois dans sa bouche d'enfant. Une fois dans ma tête, avec la voix de Charlotte.
+
 — Qui ?
 
 — Je sais pas.
 
-Malo a enfin regardé ses crêpes. Il en a coupé un morceau avec le couteau, trop grand pour lui.
+Il a détourné les yeux. La réponse d'un enfant qui sait mais qui ne dira pas. Pas encore. Pas comme ça.
+
+Malo a enfin regardé ses crêpes. Il en a coupé un morceau avec le couteau, trop grand pour lui. La lame a raclé l'assiette. Le son m'a serré la gorge.
 
 — Je veux pas qu'elle revienne, a-t-il dit.
 
@@ -2116,7 +2124,7 @@ Malo a enfin regardé ses crêpes. Il en a coupé un morceau avec le couteau, tr
 
 — Quelle autre ?
 
-Il a baissé la voix. Au point que j'ai dû me pencher pour entendre.
+Il a baissé la voix. Au point que j'ai dû me pencher pour entendre. Son souffle sentait le lait chaud. Ses cils étaient si longs qu'ils jetaient une ombre sur ses joues.
 
 — Celle qui a le même visage qu'elle.
 
@@ -2125,19 +2133,25 @@ Il a baissé la voix. Au point que j'ai dû me pencher pour entendre.
 
 Denise m'a appelée le samedi matin.
 
+Sept heures et demie. Le téléphone a sonné dans la cuisine vide. Le carrelage était encore froid sous mes pieds nus. J'ai décroché avec une tasse dans l'autre main.
+
 — Viens me voir, a-t-elle dit. Sans le petit.
+
+Sa voix. Différente. Plus basse que d'habitude. Dégraissée de toute sa rudesse habituelle. Quelque chose avait été retiré. Comme si elle avait enlevé une armure en décrochant.
 
 — Pourquoi ?
 
 — Parce qu'il y a des choses que tu dois savoir sur ta sœur. Et que personne d'autre ne te dira.
 
-Sa voix était plus basse que d'habitude. Presque humaine.
+Sa voix était plus basse que d'habitude. Presque humaine. Presque douce. C'est ce qui m'avait glacée plus que les mots.
 
-J'ai confié Malo à Inès pour la journée. Elle a accepté sans poser de questions. Juste un : *« Tu es sûre ? »* J'ai dit oui sans savoir de quoi.
+J'ai confié Malo à Inès pour la journée. Elle a accepté sans poser de questions. Juste un : *« Tu es sûre ? »* J'ai dit oui sans savoir de quoi. Inès m'a regardée un moment trop long, puis elle a hoché la tête et a posé sa main sur l'épaule de Malo. Ce geste m'avait paru, à la fois, naturel et calculé. Comme tout chez Inès.
 
-La maison de Denise était la même qu'à mon arrivée. Propre, froide, sans âme. Une maison de retraite avant l'heure. Les stores étaient baissés à moitié. La lumière tombait en travers sur la table basse.
+La route jusqu'à chez Denise sentait la pluie de la nuit. Les fossés étaient gorgés d'eau brune. Les haies ruisselaient. J'avais les mains serrées sur le volant, les phares allumés en plein jour.
 
-Elle m'a fait entrer dans le salon et m'a servi un café que je ne voulais pas.
+La maison de Denise était la même qu'à mon arrivée. Propre, froide, sans âme. Une maison de retraite avant l'heure. Les stores étaient baissés à moitié. La lumière tombait en travers sur la table basse. Une rayure oblique, jaune, qui coupait le bois en deux. L'air sentait la cire et le confinement. Une odeur de maison où l'on vit seule depuis trop longtemps.
+
+Elle m'a fait entrer dans le salon et m'a servi un café que je ne voulais pas. La tasse était ébréchée. Le café, trop noir. Je l'ai prise pour avoir quelque chose entre les mains.
 
 — Tu as trouvé le carnet, a-t-elle dit.
 
@@ -2151,15 +2165,19 @@ Ce n'était pas une question.
 
 — Vers la vérité.
 
-Denise a posé sa tasse. Elle n'avait pas bu non plus.
+Le mot est tombé dans le salon. Lourd. Gros. Comme un caillou dans une flaque. Denise ne souriait pas. Ne clignait pas des yeux. Elle me regardait comme on regarde quelqu'un qu'on attend depuis longtemps.
+
+Denise a posé sa tasse. Elle n'avait pas bu non plus. La tasse a fait un bruit sourd sur la soucoupe. Un bruit définitif.
 
 — Charlotte et toi, vous n'avez pas toujours été proches. Tu le sais. Mais ce que tu ignores, c'est pourquoi.
 
 — Parce qu'elle était plus forte. Plus belle. Plus aimée.
 
+J'avais récité ça sans y croire. Une vieille formule. Un mensonge de famille.
+
 — Non. Parce qu'elle te haïssait.
 
-J'ai sursauté.
+J'ai sursauté. Mon dos s'est raidi contre le dossier du fauteuil. Le tissu raclait sous mes omoplates.
 
 — Te haïssait d'une haine pure, a continué Denise. Parce que tu es née deux minutes avant elle. Parce que tu étais la première. Parce que tout le monde t'a toujours regardée avec un peu plus d'amour.
 
@@ -2167,7 +2185,7 @@ J'ai sursauté.
 
 — Si. Même ton père. Quand il rentrait du travail, il demandait : « Où est Clémence ? » Jamais Charlotte. Toujours toi.
 
-J'ai senti des larmes me brûler les yeux.
+J'ai senti des larmes me brûler les yeux. Le café dans ma tasse tremblait. Mes mains tremblaient. Je ne voulais pas pleurer devant Denise. Pas devant elle. Pas devant cette femme qui avait vu naître ma mère.
 
 — Elle voulait te ressembler. Te remplacer. T'effacer. Depuis l'enfance.
 
@@ -2176,19 +2194,23 @@ J'ai senti des larmes me brûler les yeux.
 
 Denise a sorti une boîte en fer de sous le canapé.
 
-Dedans, des dessins d'enfants. Des cahiers. Des photos. Le métal sentait le renfermé et le papier vieux.
+Elle a dû s'y prendre à deux fois. Ses genoux ont craqué. Elle a tiré la boîte par le couvercle, qui était rouillé et qui a grincé. Le métal avait la couleur de la cendre. Une boîte à biscuits, autrefois. Peut-être. Maintenant, c'était une boîte à secrets.
+
+Dedans, des dessins d'enfants. Des cahiers. Des photos. Le métal sentait le renfermé et le papier vieux. Cette odeur astringente qui prend la gorge. J'ai cru reconnaître, sous le papier, une trace de mon enfance. Une odeur de colle blanche et de crayons de couleur.
 
 — Regarde, a-t-elle dit.
 
-Elle m'a tendu un dessin. Deux petites filles, côte à côte. L'une souriait. L'autre avait le visage griffé au stylo. Les yeux étaient troués.
+Elle m'a tendu un dessin. Deux petites filles, côte à côte. L'une souriait. L'autre avait le visage griffé au stylo. Les yeux étaient troués. Le papier était percé, là où auraient dû être les yeux. Comme si Charlotte avait voulu non pas effacer, mais arracher.
 
 — Charlotte a fait ça à cinq ans. Elle griffait ton visage sur toutes les photos de famille.
 
 — Je ne savais pas.
 
+Ma voix était mince. Une voix d'enfant, encore.
+
 — Bien sûr que non. On te protégeait. Tu étais la sensible, la fragile. Elle était la dure.
 
-Denise a fouillé dans la boîte.
+Denise a fouillé dans la boîte. Ses mains tremblaient un peu. Elle faisait ça sans me regarder, comme si elle craignait de croiser mes yeux.
 
 — Elle a commencé à t'imiter très tôt. Tes vêtements, tes mots, tes goûts. À douze ans, elle a demandé à porter des lunettes alors qu'elle voyait parfaitement.
 
@@ -2196,19 +2218,19 @@ Denise a fouillé dans la boîte.
 
 — Parce que tu portais des lunettes. Elle voulait que les gens vous confondent.
 
-J'ai pris une photo. Nous avions quatorze ans. Même coupe de cheveux. Même pull. Même posture.
+J'ai pris une photo. Nous avions quatorze ans. Même coupe de cheveux. Même pull. Même posture. Le même sourire, même. Le photographe — mon père, peut-être — avait capté deux visages identiques, deux regards parallèles.
 
-Je n'arrivais pas à me reconnaître. Je regardais Charlotte en cherchant la différence. Je ne la trouvais pas.
+Je n'arrivais pas à me reconnaître. Je regardais Charlotte en cherchant la différence. Je ne la trouvais pas. Le vert de ses yeux. La courbe de sa bouche. Le grain de sa peau. Tout était à sa place. Tout était mien.
 
 — L'accident de l'escalier, ai-je dit à voix basse. Quand elle est tombée.
 
-Denise a pâli.
+Denise a pâli. Sa main s'est crispée sur le bord de la boîte.
 
 — Oui.
 
 — Ce n'était pas un accident, n'est-ce pas ?
 
-Elle a regardé ailleurs.
+Elle a regardé ailleurs. Par la fenêtre. Le jardin en friche. Le ciel trop blanc.
 
 — Clémence…
 
@@ -2220,13 +2242,15 @@ Elle a regardé ailleurs.
 
 — Et alors tu l'as poussée.
 
-Le silence a explosé dans la pièce.
+Le silence a explosé dans la pièce. Comme une vitre qui se brise. Un bruit que personne ne fait, mais que tout le monde entend.
 
 — Non, ai-je murmuré.
 
 — Tu l'as poussée et elle est tombée. Douze marches. Elle s'est cassé le bras. Elle a dit à tout le monde que c'était un accident.
 
 — Je ne me souviens pas.
+
+Mes mots étaient sortis sans air. Sans voix. Je les avais expulsés de mes poumons comme on recrache de l'eau.
 
 — Tu t'es effacée. Comme toujours.
 
@@ -3193,17 +3217,23 @@ Le mot est tombé comme une pierre. Sans excuse. Sans décor. Charlotte ne se d�
 
 — Qu'est-ce qui va se passer maintenant ? ai-je demandé.
 
-Charlotte a regardé le plafond. Les néons de la chambre d'hôpital baignaient tout dans une lumière blafarde, qui effaçait les traits et rendait les visages méconnaissables.
+Charlotte a regardé le plafond. Les néons de la chambre d'hôpital baignaient tout dans une lumière blafarde, qui effaçait les traits et rendait les visages méconnaissables. Son visage, sous cette lumière, avait la couleur du plâtre. Le plâtre sur son bras. Le plâtre sur mes propres certitudes.
 
 — L'inspecteur Le Goff va m'inculper. Usurpation d'identité, séquestration de mineur, complicité dans la mort de Paul. Et Ariane aussi. Paul, c'est elle qui l'a tué. Pas moi.
+
+Sa voix était plate. Posée. Comme une voix d'aveu répété. Elle avait l'air d'une femme qui avait répéter chaque phrase, une à une, dans une cellule de garde à vue.
 
 — Mais c'est toi qui lui as donné l'idée.
 
 — Oui. Je lui ai dit ce qu'il fallait faire. Je lui ai dit quand. Je lui ai dit comment. Mais c'est elle qui a poussé.
 
+Le mot *poussé* est resté dans l'air. Comme le souvenir d'un corps. Comme le bruit d'un choc au bas d'un escalier.
+
 — Et Ariane ?
 
 — Elle était folle amoureuse de moi. Ou de l'idée que je lui donnais. L'idée d'être quelqu'un d'autre. Elle était personne, avant. Une femme sans visage, sans nom, sans passé. Je lui ai donné un but. Remplacer. Devenir. Exister.
+
+J'ai regardé ma sœur. Cette femme qui avait mon visage. Cette femme qui, pendant trois ans, avait porté mon nom, vécu dans ma peau, touché un enfant avec mes mains. Le même visage. Le même. Mais pas les mêmes yeux. Sous la lumière des néons, ses yeux étaient durs. Miens étaient las.
 
 — Tu as manipulé une femme fragile.
 
@@ -3213,9 +3243,9 @@ Charlotte a regardé le plafond. Les néons de la chambre d'hôpital baignaient 
 
 — Oui.
 
-Le mot est tombé. Lourd. Définitif. Charlotte ne niait plus. Ne se justifiait plus. Elle énonçait les faits, un par un, comme si elle les lisait dans un dossier.
+Le mot est tombé. Lourd. Définitif. Charlotte ne niait plus. Ne se justifiait plus. Elle énonçait les faits, un par un, comme si elle les lisait dans un dossier. Comme si elle se racontait de l'extérieur. Comme si elle s'était déjà quittée elle-même.
 
-J'ai regardé Charlotte. Cette femme qui avait mon visage. Cette femme qui, pendant trois ans, avait porté mon nom, vécu dans ma peau, touché un enfant avec mes mains.
+J'ai regardé Charlotte. Cette femme qui avait mon visage. Cette femme qui, pendant trois ans, avait porté mon nom, vécu dans ma peau, touché un enfant avec mes mains. Je n'arrivais pas à la haïr. Je n'arrivais pas à la plaindre. Quelque chose entre les deux. Quelque chose de plus dur que les deux.
 
 — Tu ne mérites pas qu'elle t'ait sauvée.
 
@@ -3223,7 +3253,7 @@ J'ai regardé Charlotte. Cette femme qui avait mon visage. Cette femme qui, pend
 
 — Mais tu ne mérites pas non plus que je t'abandonne.
 
-Elle a ouvert les yeux. Des yeux surpris. Des yeux qui ne s'attendaient pas à ça.
+Elle a ouvert les yeux. Des yeux surpris. Des yeux qui ne s'attendaient pas à ça. Des yeux qui avaient déjà accepté d'être seules. Et qui, tout à coup, ne l'étaient plus.
 
 — Qu'est-ce que tu dis ?
 
@@ -3247,15 +3277,23 @@ Ses doigts étaient froids. Mais pour la première fois depuis des années, le c
 
 Le départ a eu lieu trois jours plus tard.
 
-J'ai vendu la voiture de Charlotte. J'ai donné les vêtements aux associations — les robes, les chaussures, les manteaux. Tout ce qui sentait elle. J'ai emporté peu de choses.
+Trois jours pour vider une vie qui ne m'appartenait pas. Pour effacer les traces de Charlotte de cette maison qui avait été la sienne — et, pendant quelques semaines, la mienne.
 
-Le carnet. La photo de nous deux enfants, en maillot de bain, sur la plage de Kerfany, avant que tout ne se gâte. La lettre bleue — celle qu'elle m'avait écrite et que je n'avais jamais reçue.
+J'ai vendu la voiture de Charlotte. Une Peugeot grise, propre, sans histoire apparente. L'acheteur n'a pas posé de questions. Il m'a tendu l'argent en billets, j'ai signé le papier de cession, et c'était fait. La voiture est partie. Comme si elle n'avait jamais existé.
+
+J'ai donné les vêtements aux associations — les robes, les chaussures, les manteaux. Tout ce qui sentait elle. Ce parfum qu'elle portait, que je n'ai jamais identifié — quelque chose de floral et de âcre à la fois. Les sacs sont partis dans le coffre d'une camionnette, et l'odeur a mis deux jours à quitter la maison.
+
+J'ai emporté peu de choses.
+
+Le carnet. La photo de nous deux enfants, en maillot de bain, sur la plage de Kerfany, avant que tout ne se gâte. Nous avions cinq ans. Nous rions. Nos dents de lait brillaient. Nous étions identiques et nous ne le savions pas encore — pas comme une menace. Comme une évidence.
+
+La lettre bleue — celle qu'elle m'avait écrite et que je n'avais jamais reçue. Je l'avais trouvée au fond du bureau, dans le faux fond, avec les lettres des Doubles. Une lettre de Charlotte à Clémence, jamais envoyée. Je ne l'avais pas encore lue. Je la gardais pour le train.
 
 Et Malo.
 
-Nous sommes montés dans le train direction Nantes. Pas trop loin, pas trop près. Une ville moyenne, ni trop grande pour se perdre, ni trop petite pour être trouvée.
+Nous sommes montés dans le train direction Nantes. Pas trop loin, pas trop près. Une ville moyenne, ni trop grande pour se perdre, ni trop petite pour être trouvée. J'ai acheté deux billets au guichet. Le préposé n'a pas levé les yeux.
 
-Inès est venue nous dire au revoir sur le quai. Elle portait son manteau gris, celui qu'elle mettait toujours quand il faisait froid. Ses yeux étaient rouges mais elle ne pleurait pas. Inès ne pleurait jamais devant les gens. Elle pleurait après, seule, dans sa cuisine.
+Inès est venue nous dire au revoir sur le quai. Elle portait son manteau gris, celui qu'elle mettait toujours quand il faisait froid. Ses yeux étaient rouges mais elle ne pleurait pas. Inès ne pleurait jamais devant les gens. Elle pleurait après, seule, dans sa cuisine, devant un bol de tisane et la radio allumée.
 
 — Tu vas t'en sortir, a-t-elle dit.
 
@@ -3265,13 +3303,13 @@ Inès est venue nous dire au revoir sur le quai. Elle portait son manteau gris, 
 
 — Je sais.
 
-Elle a embrassé Malo sur le front. Malo a laissé faire. Il ne reculait plus devant les gestes. C'était nouveau. C'était un progrès.
+Elle a embrassé Malo sur le front. Malo a laissé faire. Il ne reculait plus devant les gestes. C'était nouveau. C'était un progrès. Trois semaines avant, il aurait esquissé. Maintenant il acceptait. La confiance se mesurait en millimètres.
 
 — Sois sage. Et parle. La vie est trop courte pour rester silencieux.
 
 Malo a hoché la tête. Il a pris ma main. Sa main était petite, chaude, ferme. La main d'un enfant qui a décidé de faire confiance.
 
-Le train s'est mis en marche. Un sillage de ferraille et de vapeur. J'ai regardé Kerfany s'éloigner par la fenêtre. Les toits d'ardoise, le clocher, les ruelles étroites, la mer au loin.
+Le train s'est mis en marche. Un sillage de ferraille et de vapeur. J'ai regardé Kerfany s'éloigner par la fenêtre. Les toits d'ardoise, le clocher, les ruelles étroites, la mer au loin. La gare a glissé. Les maisons ont rapetissé. Les arbres ont filé.
 
 La mer brillait un dernier coup, puis a disparu.
 
