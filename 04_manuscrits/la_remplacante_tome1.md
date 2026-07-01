@@ -2509,23 +2509,31 @@ J'ai serré le couteau. La lame tremblait dans ma main.
 
 Charlotte est apparue dans l'encadrement de la porte.
 
-Elle était différente. Plus mince. Plus pâle. Des cernes profonds sous les yeux. Mais c'était elle.
+D'abord, je n'ai pas reconnu ce que je voyais. Une silhouette. Un mouvement. Le cerveau ne comprend pas tout de suite quand l'impossible se matérialise. Quand les morts reviennent.
+
+Elle était là. En chair. En os.
+
+Elle était différente. Plus mince — les clavicules saillaient sous le col de son pull. Plus pâle, la peau translucide, presque bleutée aux tempes. Des cernes profonds, violacés, creusés sous les yeux. Les cheveux avaient poussé, ternes, sans éclat. Mais c'était elle.
 
 Vraiment elle.
 
+Le visage que j'avais vu dans le miroir pendant des semaines. Le visage que j'avais cru voir dans les photos, dans les vêtements, dans les murs de sa maison. Le visage que je portais comme un masque depuis mon arrivée à Kerfany.
+
 — Clémence, a-t-elle dit.
 
-Sa voix m'a transpercée.
+Sa voix m'a transpercée. Pas parce qu'elle ressemblait à la mienne — elle ne lui ressemblait plus. Elle était plus sourde, plus usée, comme une corde de guitare trop souvent accordée.
 
 — Tu es vivante.
 
 — Évidemment.
 
-Elle est descendue les deux marches du seuil.
+Elle est descendue les deux marches du seuil. Chaque pas était calculé. Pas la démarche d'une mourante ni d'une fugitive. La démarche de quelqu'un qui rentre chez soi.
 
 — Tu pensais vraiment qu'Ariane pouvait me remplacer ? Elle était bonne. Mais pas aussi bonne que moi.
 
 — Pourquoi ? ai-je demandé. Pourquoi tout ça ?
+
+Charlotte s'est appuyée contre le chambranle de la porte. Elle a croisé les bras. L'attitude d'une prof qui s'apprête à donner une explication. Patient, presque pédagogique.
 
 — Parce que je t'ai assez regardée, Clémence. Toute ma vie, je t'ai regardée. Tu avais tout. La tendresse. La solitude choisie. La vie calme. Et moi, j'avais le bruit, les dettes, un mari qui me trompait, un enfant que je ne comprenais pas.
 
@@ -2533,11 +2541,13 @@ Elle est descendue les deux marches du seuil.
 
 — Je voulais ta paix. Et j'allais l'avoir.
 
-Elle s'est approchée d'Ariane.
+Elle a dit ça calmement. Sans colère. Sans regret. Comme un projet d'entreprise.
+
+Elle s'est approchée d'Ariane. Le mouvement était souple, fluide, celui de quelqu'un qui a toujours dominé les autres — non pas par la force, mais par la certitude.
 
 — Tu as failli, a-t-elle dit à la fausse blonde. Tu étais censée être discrète. Laisser Clémence s'installer. Puis disparaître.
 
-Ariane s'est levée.
+Ariane s'est levée. Sa chaise a raclé le carrelage. Son visage avait changé. Le masque patient s'était fissuré.
 
 — Je ne suis pas ton chien, Charlotte.
 
@@ -2547,17 +2557,21 @@ Ariane s'est levée.
 
 — Pas encore.
 
+Les deux femmes se faisaient face. Deux blondes. Deux silhouettes presque identiques. Deux versions de la même obsession. Et moi, la troisième, debout dans la cuisine avec un couteau de chasse dans la main, invisible entre elles.
+
 ---
 
 ### Chapitre 37
 
 Malo s'est levé à son tour.
 
-Il est venu vers moi. Pas vers Charlotte. Pas vers Ariane. Vers moi.
+Il est venu vers moi. Pas vers Charlotte. Pas vers Ariane. Vers moi. Son pas était hésitant, comme s'il marchait dans un champ de mines. Il savait que tous les adultes autour de lui étaient dangereux. Il a choisi le moins dangereux. Le moins connu. Moi.
 
 — Clémence, a-t-il dit.
 
-Charlotte a vu le mouvement.
+Sa voix était petite. Cassée.
+
+Charlotte a vu le mouvement. Son visage s'est durci. Pas par l'inquiétude maternelle. Par la propriété. Malo était à elle. Un objet qu'on déplaçait sans permission.
 
 — Reste là, Malo.
 
@@ -2565,25 +2579,27 @@ Il a continué.
 
 — Je t'ai dit de rester là !
 
-Sa voix a explosé. Le même ton que dans mes cauchemars.
+Sa voix a explosé. Le même ton que dans mes cauchemars. Le même son que j'avais entendu dans les enregistrements d'Inès, ceux où Charlotte hurlait sur son fils à trois heures du matin. Une voix qui ne venait pas de l'amour ni de la peur, mais du besoin de contrôler.
 
-Malo s'est figé.
+Malo s'est figé. Son petit corps tremblait. Mais il n'est pas revenu en arrière.
 
 — Viens, ai-je dit doucement.
 
 Il a fait un pas.
 
-Ariane a bougé. Elle a sorti quelque chose de sa poche. Un pistolet.
+Ariane a bougé. Elle a sorti quelque chose de sa poche. Pas un geste précipité — un geste fluide, répéte, comme quelqu'un qui a entraîné ce moment. Le métal a brillé sous la lumière grise de la fenêtre. Un pistolet. Petit. Noir. Un objet qui n'avait rien à faire dans une maison sur une falaise.
 
 — Personne ne bouge, a-t-elle dit.
 
+Le temps s'est arrêté. Le vent a cessé de battre contre les murs. Malo ne tremblait plus. Charlotte ne parlait plus. Moi, je ne respirais plus.
+
 — Ariane, range ça, a ordonné Charlotte.
+
+Sa voix avait changé. L'autorité était toujours là, mais les bords tremblaient. Pour la première fois, Charlotte avait peur.
 
 — Non. C'est fini. Je ne suis plus ta double. Je suis celle qui décide maintenant.
 
-Elle a levé l'arme.
-
-Elle la pointait vers moi.
+Elle a levé l'arme. Le canon pointait vers moi. Sa main était stable. Trop stable.
 
 — Toi, tu vas disparaître. Charlotte reprendra sa place. Moi, je prendrai la sienne. Et le petit ira avec qui je veux.
 
@@ -2593,9 +2609,11 @@ Elle la pointait vers moi.
 
 — Parce que tu ne sais pas comment finir.
 
-Ariane a ri.
-
 — Moi, je sais très bien finir.
+
+Ariane a ri. Un rire sec, bref, sans joie. Le rire de quelqu'un qui a attendu trop longtemps et qui n'attend plus.
+
+— Tu m'as dit quoi faire pendant trois ans. Assieds-toi. Lève-toi. Parle comme Clémence. Marche comme Clémence. Mange comme elle. Même quand elle ne mangeait pas. Tu m'as vidée, Charlotte. Et maintenant, c'est à moi de vider le reste.
 
 ---
 
@@ -2603,19 +2621,29 @@ Ariane a ri.
 
 Le coup de feu a ébréché le silence.
 
-Je me suis baissée instinctivement. Malo s'est accroché à mes jambes.
+Un son sec. Net. Pas comme au cinéma — pas de résonance, pas d'écho. Un craquement bref, comme une branche qui casse, suivi d'un sifflement. Le sifflement de l'air qui se déploie quand un projectile le traverse.
+
+Je me suis baissée instinctivement. Mes genoux ont heurté le carrelage. Malo s'est accroché à mes jambes, son visage enfoncé dans mon ventre. Ses doigts serraient.
 
 Quand j'ai relevé les yeux, Charlotte était par terre.
 
+Elle était tombée en arrière. Le impact l'avait projetée contre le chambranle de la porte. Son épaule gauche saignait. Le tissu de son pull se teintait de rouge, rapidement, comme de l'encre qui s'étend sur du buvard.
+
 Ariane l'avait tirée.
 
+Pas moi. Charlotte.
+
+Le canon fumait encore. Le bruit n'avait pas duré plus d'une seconde mais le temps avait éclaté en morceaux qui ne se recollaient pas.
+
 — Non ! ai-je hurlé.
+
+Le cri m'est sorti sans que je le décide. Pas pour Charlotte. Pas pour Ariane. Pour Malo. Pour le son qui venait d'entrer dans sa mémoire et qui n'en sortirait plus jamais.
 
 Ariane a braqué l'arme vers nous.
 
 — Toi, viens ici.
 
-J'ai serré Malo contre moi.
+J'ai serré Malo contre moi. Son cœur battait contre le mien — les deux cœurs, l'un petit et rapide, l'autre grand et terrifié, crépitaient l'un contre l'autre comme deux oiseaux dans une cage.
 
 — Laisse-le partir. Fais ce que tu veux de moi, mais laisse-le partir.
 
@@ -2631,23 +2659,27 @@ Ariane a froncé les sourcils.
 
 — Maman, elle sentait la vanille. Toi, tu sens le feu.
 
-Pour un enfant, c'était la chose la plus précise qu'il ait dite depuis des jours.
+Pour un enfant de cinq ans, c'était la chose la plus précise qu'il ait dite depuis des jours. La plus courageuse aussi. Une observation de chimiste, pas de victime.
 
-Ariane a hésité une fraction de seconde.
+Ariane a hésité une fraction de seconde. Pas longtemps. Un battement de cil. L'espace d'un doute. Le doute de quelqu'un qui se croit parfait et qui, pour la première fois, voit la faille.
 
 C'était assez.
 
 J'ai chargée.
 
-Je l'ai percutée de tout mon poids. Le pistolet a glissé sur le carrelage. Nous sommes tombées ensemble. Elle a crié, m'a griffé le visage.
+Le couteau est tombé de ma poche. Je ne l'ai pas utilisé. Je n'y ai pas pensé. Mon corps a décidé avant ma tête. J'ai percuté Ariane de tout mon poids — mon poids de femme qui court le matin, qui nage, qui porte des cartons de livres. Un poids réel, forgé par une vie réelle. Pas un poids de double. Pas un poids de copie.
+
+Le pistolet a glissé sur le carrelage. Le métal a cliqueté contre le sol.
+
+Nous sommes tombées ensemble. Elle a crié — pas un cri de douleur, un cri de surprise. Personne ne l'avait jamais percutée. Personne ne l'avait jamais touchée sans permission. Elle m'a griffé le visage. Ses ongles ont labouré ma joue. La brûlure était nette, précise.
 
 J'ai trouvé le pistolet avant elle.
 
-Je l'ai braqué sur elle.
+Le métal était chaud. La chaleur du coup qui venait d'être tiré. Je l'ai braqué sur elle. Mes mains tremblaient. Mes bras tremblaient. Tout mon corps tremblait. Mais l'arme était pointée.
 
 — Ne bouge pas.
 
-Elle a souri, le souffle court.
+Elle a souri, le souffle court. Allongée sur le carrelage, les cheveux en éventail, le visage déformé par la chute, elle souriait encore.
 
 — Tu ne sais pas tirer.
 
