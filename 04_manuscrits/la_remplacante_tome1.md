@@ -1008,17 +1008,19 @@ Comme si je connaissais déjà.
 
 Cette nuit-là, j'ai fait le rêve pour la première fois.
 
-Il commence toujours de la même façon. Je suis en haut d'un escalier. Un escalier de pierre, avec une rampe en bois usé. En bas, il y a du carrelage. Blanc et noir. Comme dans la maison de mon enfance.
+Il commence toujours de la même façon. Je suis en haut d'un escalier. Un escalier de pierre, avec une rampe en bois usé. En bas, il y a du carrelage. Blanc et noir. Comme dans la maison de mon enfance, celle de Rennes, celle où maman vivait encore avec papa, avant qu'il parte.
 
 Quelqu'un est derrière moi.
 
-Je ne vois pas qui. Mais je sais que c'est Charlotte. Ou peut-être moi. Ou peut-être une autre version de moi.
+Je ne vois pas qui. Mais je sais que c'est Charlotte. Ou peut-être moi. Ou peut-être une autre version de moi, celle qui aurait pu naître si on m'avait aimée autant qu'on l'aimait.
 
 — Clémence, dit la voix.
 
+La voix est douce. C'est presque pire que si elle criait.
+
 Je me retourne.
 
-L'escalier devient très haut. Beaucoup plus haut que dans la réalité. Les marches se rétrécissent. Le vide s'ouvre sous moi.
+L'escalier devient très haut. Beaucoup plus haut que dans la réalité. Les marches se rétrécissent, se multiplient, s'enroulent comme une spirale impossible. Le vide s'ouvre sous moi.
 
 — Tu m'as poussée, dit la voix.
 
@@ -1026,7 +1028,7 @@ L'escalier devient très haut. Beaucoup plus haut que dans la réalité. Les mar
 
 — Si. Tu m'as poussée. Tu voulais ma place.
 
-Je veux courir. Je ne peux pas. Mes pieds sont collés au sol.
+Je veux courir. Je ne peux pas. Mes pieds sont collés au sol. Mes orteils s'enfoncent dans la pierre froide.
 
 — Je ne voulais pas, dis-je.
 
@@ -1034,7 +1036,7 @@ Je veux courir. Je ne peux pas. Mes pieds sont collés au sol.
 
 Je regarde en bas.
 
-Charlotte est allongée sur le carrelage. Elle me regarde. Elle sourit. Il y a du sang autour de sa tête. Beaucoup de sang.
+Charlotte est allongée sur le carrelage. Elle me regarde. Elle sourit. Il y a du sang autour de sa tête. Beaucoup de sang. Trop de sang pour une chute. Assez pour qu'on comprenne qu'on l'a poussée.
 
 — Tu es moi, dit-elle.
 
@@ -1042,9 +1044,13 @@ Charlotte est allongée sur le carrelage. Elle me regarde. Elle sourit. Il y a d
 
 — Tu es moi et je suis toi. C'est pour ça que personne ne nous a jamais différenciées.
 
+— Je te ressemblais, dis-je. Ce n'est pas la même chose.
+
+— C'est exactement la même chose.
+
 Je tombe.
 
-Ou plutôt, c'est l'escalier qui tombe. Les marches se dérobent sous mes pieds. Je bascule en arrière. Le vide m'engloutit.
+Ou plutôt, c'est l'escalier qui tombe. Les marches se dérobent sous mes pieds une par une. Je bascule en arrière. Le vide m'engloutit. L'air devient chaud, puis froid, puis je ne sens plus rien.
 
 Et juste avant de me réveiller, je vois Charlotte debout en haut de l'escalier. Elle me regarde tomber. Elle ne tend pas la main.
 
@@ -1052,11 +1058,11 @@ Elle sourit.
 
 Je me suis réveillée en sursaut.
 
-La chambre était noire. Le coeur battait à cent à l'heure. J'avais les draps trempés.
+La chambre était noire. Le cœur battait à cent à l'heure. J'avais les draps trempés. Ma nuque collait à l'oreiller.
 
 J'ai regardé l'heure. Quatre heures du matin.
 
-J'ai allumé la lampe de chevet. J'ai pris un verre d'eau. Mes mains tremblaient.
+J'ai allumé la lampe de chevet. La lumière m'a fait mal aux yeux. J'ai pris un verre d'eau posé sur la table de nuit. L'eau était tiède, un peu métallique. Mes mains tremblaient.
 
 En bas, dans la maison silencieuse, j'ai cru entendre un bruit.
 
@@ -1070,14 +1076,12 @@ J'ai attendu.
 
 Rien.
 
-Juste le vent. Juste la maison qui vieillit.
+Juste le vent. Juste la maison qui vieillit. Juste ma propre peur qui circulait dans les murs.
 
 Je me suis rallongée.
 
 Mais je n'ai plus fermé l'œil.
 
-
----
 
 ### Chapitre 15
 
