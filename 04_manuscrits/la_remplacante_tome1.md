@@ -741,19 +741,19 @@ J'ai accepté.
 
 Je ne sais pas exactement à quel moment. Peut-être quand Inès m'a regardée comme si j'étais déjà Charlotte. Peut-être quand Paul m'a dit que j'étais la seule. Peut-être quand j'ai vu Malo, assis sur les marches de la maison, à me regarder porter mes affaires dans le hall.
 
-Il ne m'a pas aidée. Il n'a pas bougé. Mais ses yeux m'ont suivie.
+Il ne m'a pas aidée. Il n'a pas bougé. Mais ses yeux m'ont suivie. Deux petits points gris, fixes, sans colère ni curiosité. Comme s'il observait un phénomène météo.
 
 J'ai posé ma valise dans la chambre d'amis.
 
-Celle-ci était différente de l'autre maison. Plus grande, plus froide. Des murs blancs, un grand lit avec une tête de lit en lin, une armoire coulissante en chêne. Et une fenêtre qui donnait sur la mer.
+Celle-ci était différente de l'autre maison. Plus grande, plus froide. Des murs blancs, un grand lit avec une tête de lit en lin, une armoire coulissante en chêne. Et une fenêtre qui donnait sur la mer. Pas de rideaux, juste un store en lin blanc qui claquait doucement contre le chambranle à chaque bourrasque. On aurait dit une chambre d'hôtel cinq étoiles, celle qu'on réserve pour quelqu'un qu'on ne connaît pas assez pour lui offrir quelque chose de personnel.
 
 Je suis restée longtemps devant la fenêtre.
 
-En bas, Paul chargait ses valises dans sa voiture. Il partait le soir même. Un an, m'avait-il dit. Il reviendrait pour les anniversaires, peut-être. Pour les rendez-vous médicaux. Pour les signatures.
+En bas, Paul chargait ses valises dans sa voiture. Une berline grise métallisée, propre, banale. Il partait le soir même. Un an, m'avait-il dit. Il reviendrait pour les anniversaires, peut-être. Pour les rendez-vous médicaux. Pour les signatures. Pour les choses qu'on ne peut pas déléguer à une remplaçante.
 
-Malo était assis à côté de lui, immobile.
+Malo était assis à côté de lui, immobile. Il regardait son père faire les allers-retours sans lever le petit doigt.
 
-Je suis descendue.
+Je suis descendue. Les marches en béton étaient froides sous mes chaussettes. J'avais oublié de remettre mes chaussures.
 
 Paul m'a tendu un trousseau de clés.
 
@@ -763,15 +763,15 @@ Paul m'a tendu un trousseau de clés.
 
 — C'était l'appartement de Charlotte. Elle a laissé des affaires. Tu auras besoin de papiers.
 
-Il a serré Malo contre lui. L'enfant n'a pas réagi.
+Il a serré Malo contre lui. L'enfant n'a pas réagi. Pas de bras levés, pas de visage enfoui dans le manteau. Rien. Paul a dû sentir lui aussi l'absence de réponse, parce qu'il s'est écarté avant d'avoir fini son geste.
 
 — Prends soin de lui, a murmuré Paul. Même si tu ne l'aimes pas encore.
 
-Il est parti sans se retourner.
+Il est parti sans se retourner. La portière a claqué. Le moteur a toussé une fois, puis s'est lancé. Le gravier a crissé sous les pneus, et puis il n'y a plus eu que le bruit de la mer.
 
 Malo et moi sommes restés sur le seuil.
 
-Le vent de mer soulevait ses petits cheveux blonds. Il regardait la voiture de Paul s'éloigner jusqu'à ce qu'elle disparaisse au tournant.
+Le vent de mer soulevait ses petits cheveux blonds. Il regardait la voiture de Paul s'éloigner jusqu'à ce qu'elle disparaisse au tournant. Il n'a pas levé la main. Il n'a pas pleuré. Il a juste attendu que la poussière retombe.
 
 — Tu veux entrer ? ai-je demandé.
 
@@ -781,7 +781,7 @@ Il n'a pas répondu.
 
 Rien.
 
-J'ai tendu la main.
+J'ai tendu la main. Mes doigts étaient ridés par le vent, un peu gonflés d'avoir trop marché au froid. Une main d'adulte, grande, pâle, inutile.
 
 Il l'a contemplée un moment. Puis il s'est levé tout seul et est rentré dans la maison.
 
@@ -790,7 +790,6 @@ Sans me toucher.
 J'ai baissé les yeux.
 
 Ma main, toujours vide, portait les empreintes de personnes qui n'étaient pas là.
-
 
 ---
 
