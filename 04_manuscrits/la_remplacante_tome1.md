@@ -677,17 +677,17 @@ Pas parce qu'elle était gentille. Parce qu'elle ressemblait à quelque chose qu
 
 La remplaçante est arrivée mardi.
 
-Je l'ai vue pour la première fois dans l'allée de la maison. Elle gara son petit 4×4 rouge devant le portail, sortit avec un sourire qui semblait peser cinq kilos, et s'avança vers moi avec des talons qui n'avaient rien à faire sur un chemin de gravier.
+Je l'ai vue pour la première fois dans l'allée de la maison. Elle gara son petit 4×4 rouge devant le portail, sortit avec un sourire qui semblait peser cinq kilos, et s'avança vers moi avec des talons qui n'avaient rien à faire sur un chemin de gravier. Le gravier a crissé sous ses pas. Elle n'a pas ralenti. Elle avait l'habitude d'arriver quelque part et d'imposer que ça devienne son territoire.
 
 — Tu dois être Clémence, a-t-elle dit. Moi, c'est Inès.
 
-Elle a posé deux grands sacs de courses sur le sol.
+Elle a posé deux grands sacs de courses sur le sol. Des sacs en toile, avec des logos de boutiques que je ne connaissais pas. Des boutiques de Rennes, de Nantes, peut-être de Brest. Des endroits où les vendeuses connaissent ton nom.
 
 — Inès ?
 
 — Inès Morvan. L'amie de Charlotte. Enfin, une de ses amies. La meilleure, dirais-je, mais je suis un peu partial.
 
-Elle a ri. Un rire harmonieux, presque trop.
+Elle a ri. Un rire harmonieux, presque trop. Le genre de rire qu'on entend dans les publicités pour du yaourt, quand des femmes parfaites mangent ensemble sur une terrasse ensoleillée.
 
 — Charlotte m'a parlé de toi. Beaucoup, même. Tu sais, vers la fin.
 
@@ -695,17 +695,17 @@ Elle a ri. Un rire harmonieux, presque trop.
 
 — Tout le temps.
 
-J'ai senti une vague de malaise me traverser. Lucie m'avait dit la même chose. Charlotte, qui parlait de moi. Charlotte, qui pensait à moi. Depuis combien de temps ?
+J'ai senti une vague de malaise me traverser. Lucie m'avait dit la même chose. Charlotte, qui parlait de moi. Charlotte, qui pensait à moi. Depuis combien de temps ? Et pourquoi pas à moi directement ?
 
 — Tu viens de loin ? ai-je demandé, par politesse.
 
 — De Rennes. Je t'apporte des affaires. Des vêtements de Charlotte. Je me suis dit que tu préférerais ne pas fouiller tout de suite dans ses placards.
 
-Elle a repris ses sacs et est entrée dans la maison sans que je l'invite.
+Elle a repris ses sacs et est entrée dans la maison sans que je l'invite. J'ai fermé le portail derrière elle, par réflexe, comme si j'accompagnais une livraison.
 
-L'intérieur était encore plus intimidant que l'extérieur. Des baies vitrées sur l'océan, un sol en béton ciré, des meubles bas et sobres. Tout était beau. Tout disait : *Charlotte a vécu ici.*
+L'intérieur était encore plus intimidant que l'extérieur. Des baies vitrées sur l'océan, un sol en béton ciré, des meubles bas et sobres. Une cuisine centrale avec un îlot en granit noir. Des étagères parfaitement alignées. Pas de poussière. Pas de jouet traîné. Rien qui dise qu'un enfant vivait ici. Tout était beau. Tout disait : *Charlotte a vécu ici.*
 
-Inès a posé les sacs sur la cuisine centrale.
+Inès a posé les sacs sur le plan de travail. Elle a ouvert le plus grand et en a sorti une pile de vêtements soigneusement pliés. Un pull noir en cachemire. Un jean brut. Une chemise blanche. Des bottines en cuir. Des pièces simples, chères, intemporelles. Des pièces à la Charlotte.
 
 — Tu vois ce qu'elle a fait, a-t-elle dit. Une vraie pépite.
 
@@ -717,19 +717,21 @@ Inès a posé les sacs sur la cuisine centrale.
 
 — Tout le monde dit ça. Puis un jour, ils craquent.
 
-Elle s'est approchée de moi et m'a pris par les épaules.
+Elle s'est approchée de moi et m'a pris par les épaules. Ses mains étaient froides malgré les gants qu'elle avait enfilés. Elle m'a scrutée, les yeux plissés, comme un tailleur qui prend les mesures d'un client difficile.
 
 — Charlotte savait que tu étais la seule. La seule à pouvoir la remplacer. Tu lui ressembles tellement.
 
-J'ai reculé.
+J'ai reculé. Mes hanches ont heurté le coin de l'îlot. J'ai senti le granit à travers mon manteau.
 
 — Je ne lui ressemble pas.
 
 — Tu ne le penses pas, peut-être. Mais quand on te regarde de profil, avec le même maquillage, les mêmes vêtements… on pourrait confondre.
 
-Son regard s'est attardé sur mon visage.
+Son regard s'est attardé sur mon visage. Il n'était plus chaleureux. Il était calculant, patient, presque médical.
 
 — Encore un peu d'entraînement, et ce sera parfait.
+
+La phrase est restée suspendue dans l'air, plus lourde que les sacs qu'elle avait posés.
 
 ---
 
