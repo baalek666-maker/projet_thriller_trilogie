@@ -2868,7 +2868,7 @@ Le silence a duré. Long. épais. Puis il a fermé son carnet.
 
 Denise est venue me voir à l'hôpital.
 
-Elle avait vieilli de dix ans en une nuit.
+Elle a poussé la porte du couloir où je restais, assise sur la même chaise en plastique, les mains encore marquées de sang séché. Elle tenait un sac en toile, usé, comme celui qu'elle portait toujours. Elle avait vieilli de dix ans en une nuit. Les plis autour de sa bouche s'étaient creusés. Ses yeux étaient rouges, vitreux.
 
 — Charlotte m'a tout dit, a-t-elle annoncé.
 
@@ -2878,7 +2878,7 @@ Elle avait vieilli de dix ans en une nuit.
 
 — De quoi ?
 
-Denise s'est assise à côté de moi. Elle a pris mes mains dans les siennes.
+Denise s'est assise à côté de moi. La chaise a grinçé sous son poids. Elle a pris mes mains dans les siennes — ses mains étaient sèches, chaudes, fermes. Les mains d'une femme qui a touché beaucoup de plaies.
 
 — De l'accident. De l'escalier. De ce que tu as fait.
 
@@ -2890,23 +2890,33 @@ J'ai retiré mes mains.
 
 — Je n'ai rien fait !
 
-— Tu l'as poussée. Tu sais que tu l'as poussée. Tu l'as oublié, mais ton corps s'en souvient.
-
-J'ai senti la pièce tourner.
+Ma voix a résonné dans le couloir. Une infirmière a levé les yeux au bout du hall. Je n'ai pas baissé le ton.
 
 — Ce n'est pas vrai.
 
-— Charlotte te menaçait. Elle disait qu'elle allait te remplacer. Que tes parents préféreraient elle à toi. Tu as eu peur. Tu l'as repoussée.
+— Charlotte te menaçait. Elle disait qu'elle allait te remplacer. Que tes parents préféreraient elle à toi. Que tu deviendrais l'ombre, et elle la lumière. Tu as eu peur. Tu l'as repoussée.
 
 — Je ne me souviens pas.
 
-— C'est pour ça que tu as oublié. Parce que tu ne pouvais pas supporter de te souvenir.
+— C'est pour ça que tu as oublié. Parce que tu ne pouvais pas supporter de te souvenir. Ton cerveau a effacé. C'est ce que fait le cerveau quand la vérité est insupportable. Il la range dans un placard et il perd la clé.
 
-J'ai mis ma tête dans mes mains.
+J'ai mis ma tête dans mes mains. Le couloir tournait. Les néons grésillaient. L'odeur de désinfectant me donnait la nausée.
 
 — Toutes ces années, ai-je murmuré. J'ai cru que j'étais la gentille.
 
-— Tu l'étais. Tu es encore. Mais personne n'est entièrement innocent.
+— Tu l'étais. Tu es encore. Mais personne n'est entièrement innocent. Pas même les jumelles.
+
+Le mot « jumelles » m'a frappée. Pas « sœurs ». Jumelles. Deux êtres faits du même moule, qui auraient dû partager le monde mais qui l'ont divisé. Comme une cellule qui se sépare mal — deux moitiés incomplètes, chacune cherchant à absorber l'autre.
+
+— Pourquoi elle ne m'a jamais dit ?
+
+— Parce que tu étais la seule chose qu'elle avait. Si tu l'avais su, tu l'aurais quittée. Et elle serait restée seule avec sa chute. Avec sa peur. Avec sa rage.
+
+— Et moi ? J'ai passé ma vie à me demander pourquoi elle me détestait. Pourquoi elle regardait mes vêtements. Pourquoi elle imitait ma voix. J'aurais pu comprendre. J'aurais pu lui pardonner.
+
+— Pardonner quoi ? Que tu l'ais poussée ?
+
+— Que je l'aie oublié.
 
 ---
 
@@ -2914,7 +2924,7 @@ J'ai mis ma tête dans mes mains.
 
 Quand je suis rentrée chez Inès, Malo m'attendait.
 
-Il était assis sur le canapé, enveloppé dans une couverture. Il a levé les yeux quand je suis entrée.
+Il était assis sur le canapé, enveloppé dans une couverture à carreaux. Ses pieds nus pendaient au-dessus du sol. Il n'avait pas mangé — l'assiette de biscuits qu'Inès avait posée sur la table basse était intacte. Il a levé les yeux quand je suis entrée. Ses yeux étaient ceux d'un vieillard dans un visage d'enfant.
 
 — Elle va vivre ? a-t-il demandé.
 
@@ -2922,21 +2932,21 @@ Il était assis sur le canapé, enveloppé dans une couverture. Il a levé les y
 
 — Elle va partir en prison ?
 
-— Je ne sais pas.
+— Je ne sais pas. Peut-être. Les médecins disent qu'elle est blessée. Les policiers disent qu'elle a fait des choses mauvaises. Le juge décidera.
 
-Il a hoché la tête.
+Il a hoché la tête. Pas comme un enfant qui accepte — comme un enfant qui a déjà compris que le monde des adultes était trop compliqué pour être juste.
 
 Puis il a dit quelque chose que je n'attendais pas.
 
 — Je veux rester avec toi.
 
-J'ai senti mon cœur se fendre.
+J'ai senti mon cœur se fendre. Pas se serrer — se fendre, comme du bois qu'on fend au coin. Le cœur de quelqu'un qui n'a pas demandé cette responsabilité. Le cœur de quelqu'un qui ne sait pas si elle est capable.
 
 — Tu es sûr ?
 
 — Tu n'es pas maman. Mais tu sens bon. Tu sens la bibliothèque. Et tu me parles pas comme si j'étais bébé.
 
-J'ai souri, malgré les larmes.
+J'ai souri, malgré les larmes. La bibliothèque. C'était mon odeur, apparemment. Le papier, l'encre, la poussière des étagères. L'odeur d'une vie simple, ordonnée, sans drame.
 
 — D'accord. On reste ensemble.
 
@@ -2944,11 +2954,11 @@ J'ai souri, malgré les larmes.
 
 — Tu veux partir ?
 
-— Cette maison est triste. Tout le monde est triste ici.
+— Cette maison est triste. Tout le monde est triste ici. Maman était triste. La dame blonde était triste. Inès est triste. Toi aussi, parfois, quand tu regardes par la fenêtre.
 
 Il avait raison.
 
-Kerfany portait le poids de Charlotte. De Paul. De la maison aux mille espions.
+Kerfany portait le poids de Charlotte. De Paul, le mari tué sans que personne ne le sache. De la maison aux mille espions, aux carnets cachés, aux lettres au fond des tiroirs. De Denise et de ses silences. D'Ariane et de son visage. De tout ce que la Bretagne avait vu et qu'elle n'avait pas dit.
 
 — On part, ai-je dit.
 
@@ -2960,9 +2970,9 @@ Kerfany portait le poids de Charlotte. De Paul. De la maison aux mille espions.
 
 — On ira la voir. Quand elle ira mieux.
 
-Il a hoché la tête et s'est blotti contre moi.
+Il a hoché la tête et s'est blotti contre moi. Sa tête s'est posée contre mon épaule. Il ne pesait pas lourd. Cinq ans de poids. Cinq ans de peur. Cinq ans de mère défaillante, de père absent, de doubles et de remplaçantes.
 
-Pour la première fois depuis des jours, il m'a fait confiance.
+Pour la première fois depuis des jours, il m'a fait confiance. Non pas parce que je ressemblais à sa mère. Mais parce que je ne lui ressemblais pas.
 
 
 ---
@@ -2971,9 +2981,11 @@ Pour la première fois depuis des jours, il m'a fait confiance.
 
 Je suis allée voir Charlotte le lendemain.
 
-Elle était dans une chambre individuelle. Un policier était posté devant la porte. Il m'a laissé entrer après avoir vérifié mon identité.
+Elle était dans une chambre individuelle au troisième étée. Un policier était posté devant la porte, les bras croisés, le visage fermé. Il a vérifié mon identité, a noté mon nom dans un carnet, et m'a laissé entrer.
 
-Charlotte était assise dans le lit, le bras en écharpe. Elle avait les cheveux tirés en arrière. Sans maquillage, elle me ressemblait encore plus.
+La chambre sentait le phosphate et les fleurs fanées. Un bouquet de lys, probablement offert par quelqu'un qui ne savait pas quoi d'autre faire. Le moniteur cardiaque bippait doucement. Les rideaux étaient tirés.
+
+Charlotte était assise dans le lit, le bras en écharpe. Elle avait les cheveux tirés en arrière, sans maquillage. Sans le masque. Sans la façade. Elle me ressemblait encore plus, maintenant que tout était enlevé. Nous étions deux — exactement deux. Deux femmes faites du même moule, dont l'une avait essayé de voler l'autre.
 
 — Tu es venue, a-t-elle dit.
 
@@ -2983,25 +2995,25 @@ Charlotte était assise dans le lit, le bras en écharpe. Elle avait les cheveux
 
 — Parce que je n'ai pas fini de te connaître.
 
-Elle a souri. Un sourire triste.
+Elle a souri. Un sourire triste, fatigué. Le sourire de quelqu'un qui n'a plus la force de mentir.
 
-— Tu sais, quand on était petites, j'aurais tout donné pour que tu viennes me voir.
+— Tu sais, quand on était petites, j'aurais tout donné pour que tu viennes me voir. Que tu traverses la rue pour venir me voir. Que tu choisisses de venir. Toi, pas maman. Pas papa. Toi.
 
 — Je sais.
 
 — Maintenant que tu es là, je ne sais plus quoi dire.
 
-Je me suis assise sur le bord du lit.
+Je me suis assise sur le bord du lit. Le matelas était ferme, clinique. Le drap était tiré sur sa poitrine. Sa main droite, celle qui n'était pas blessée, tremblait légèrement.
 
 — Dis-moi la vérité. Juste une fois.
 
-Elle a fermé les yeux.
+Elle a fermé les yeux. Quand elle les a rouverts, ils étaient secs. Les larmes avaient été utilisées. Il n'en restait plus.
 
 — Je voulais ta vie. Pas parce qu'elle était meilleure. Parce que c'était la tienne.
 
 — Tu avais la tienne.
 
-— Non. J'avais une vie que tout le monde m'avait imposée. Paul, Malo, cette maison, ces dettes. Je voulais être libre.
+— Non. J'avais une vie que tout le monde m'avait imposée. Paul, Malo, cette maison, ces dettes. Les gens de Kerfany qui me regardaient comme la femme du maire. Je n'avais rien choisi. J'ai voulu être libre.
 
 — En m'enfermant à ma place ?
 
@@ -3011,9 +3023,15 @@ Elle a fermé les yeux.
 
 — Très.
 
-— Pourquoi Malo ?
+Le mot est tombé comme une pierre. Sans excuse. Sans décor. Charlotte ne se défendait même plus.
+
+— Pourquoi Malo ? ai-je demandé.
 
 — Parce que c'était la seule chose que j'avais faite de bien. Et je ne savais pas quoi en faire.
+
+— Quoi en faire ? C'est un enfant, Charlotte. Pas un objet.
+
+— Je sais. C'est pour ça que je l'ai laissé avec toi. Parce que toi, tu sauras.
 
 ---
 
