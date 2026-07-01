@@ -2079,23 +2079,57 @@ Le silence a explosé dans la pièce.
 
 ### Chapitre 30
 
-Je suis rentrée à Kerfany le soir même.
+La route de retour était noire. Pas de lampadaires après Pont-Aven. Juste les phares qui découpaient la nuit et la pluie qui battait le pare-brise en rythme.
 
-J'ai cherché dans la maison. Partout. Sous les lits, dans les placards, derrière les cadres.
+Je serrais le volant. Mes mains sentaient encore le café de Denise, cette odeur de vieux bois mouillé qu'avait sa cuisine. Et ses mots tournaient dans ma tête.
 
-Il devait y avoir autre chose. Une preuve. Un message.
+*Tu l'as poussée.*
 
-J'ai trouvé les lettres dans le bureau.
+Je ne l'avais pas poussée. Je ne m'en souvenais pas. Mais le doute avait planté ses griffes et il ne lâchait plus.
 
-Au fond du tiroir de gauche, cachées sous un faux fond. Trois enveloppes. Pas d'adresse d'expéditeur. Juste un tampon de Rennes.
+Kerfany est apparu au bout d'un virage. La mer invisible, juste le bruit. Les maisons endormies. Pas un chat dans les ruelles.
 
-La première lettre était datée de l'année précédente.
+Je me suis garée devant la maison de Charlotte. La mienne, maintenant. Ou la sienne. Je ne savais plus.
+
+La porte grinçait toujours. L'entrée sentait le froid et le renfermé. J'ai posé mon sac sur la console, posé mes clés, enlevé mes chaussures. Le carrelage glacé sous mes pieds nus.
+
+J'ai allumé toutes les lumières.
+
+Salon. Cuisine. Couloir. Bureau.
+
+Il devait y avoir autre chose. Charlotte ne laissait rien au hasard. Pas une femme qui écrivait des plans en six étapes dans un carnet noir. Pas une femme qui griffait le visage de sa sœur sur les photos de famille à cinq ans.
+
+Il y avait forcément autre chose.
+
+J'ai commencé par le salon. Sous les coussins du canapé. Derrière les tableaux. Sous le tapis beige que Charlotte avait choisi, apparemment, pour sa « discrétion thermique » — une phrase d'Inès qui m'avait parue bizarre sur le moment et qui m'avait marquée.
+
+Rien.
+
+La cuisine. Les placards. Trop bien rangés. Chaque chose à sa place. Charlotte ou quelqu'un d'elle. J'ai passé les doigts sur les étagères, cherchant une fissure, une anomalie. Rien.
+
+La chambre. Sous le matelas. Dans les tiroirs de la commode. Derrière l'armoire, que j'ai dû tirer seule, le bois grinçant sur le parquet. Rien qu'un fil électrique et de la poussière.
+
+Puis le bureau.
+
+La petite pièce de l'annexe. Celle avec le mur couvert de notes, de photos, de mots barrés. Mon prénom écrit partout. Je n'avais pas osé y retourner depuis la première fois. Maintenant, j'entrais sans hésiter.
+
+Le bureau de Charlotte était un meuble massif, en chêne, trop lourd pour la pièce. Trois tiroirs à droite. Un large tiroir central. Un faux fond dans le tiroir central, je le savais maintenant. Je l'avais senti la première fois — le tiroir était trop peu profond pour son apparence.
+
+J'ai vidé le contenu. Stylos, carnets, un passeport au nom de Charlotte Vaillant, des factures. Puis j'ai appuyé sur le fond. Il a cédé avec un clic discret. En dessous, un espace étroit. Et trois enveloppes.
+
+Pas d'adresse d'expéditeur. Juste un tampon de Rennes, à l'encre violette, presque effacé. Le papier était épais, grainé, comme du papier d'écriture ancien. Les lettres étaient manuscrites, encre noire, écriture soignée et impersonnelle.
+
+La première, datée de l'année précédente.
 
 *« Ma chère Charlotte, je comprends ta douleur. Être celle qu'on a rejetée n'est jamais facile. Mais tu dois savoir que tu n'es pas seule. Nous existons. Les Doubles. Nous pouvons t'aider à devenir celle que tu aurais dû être. »*
+
+J'ai reposé la lettre. Mes doigts tremblaient. Pas de peur. De colère. Une colère sourde, qui montait depuis le fond de moi, depuis l'enfance peut-être, depuis l'escalier.
 
 La deuxième, six mois plus tard.
 
 *« Le plan avance. Ta sœur est observée. Elle est faible, seule, sans attaches. Elle sera une remplaçante idéale. Quand tu seras prête, nous interviendrons. »*
+
+*Observée.* Le mot m'a tordu l'estomac. Quelqu'un m'avait observée. Suivie. Notée. Comme un animal qu'on évalue avant de l'acheter.
 
 La troisième, datée d'un mois avant l'accident.
 
@@ -2103,25 +2137,43 @@ La troisième, datée d'un mois avant l'accident.
 
 Ariane.
 
-Le nom dansait devant mes yeux.
+Le nom flottait devant mes yeux. Les lettres dansaient. Je les ai relu trois fois pour être sûre.
 
-La femme de l'accident. La femme brûlée.
+*Prête à mourir à ta place.*
+
+La femme de l'accident. La femme brûlée dans la voiture de Charlotte, sur la route de Pont-Aven. Celle qu'on avait enterrée sous le nom de Charlotte Vaillant. Celle dont le corps déformé par les flammes avait été identifié à la chevalière et aux papiers.
 
 Ce n'était pas Charlotte qui était morte.
 
 C'était Ariane.
 
----
+Charlotte avait organisé sa propre mort. Elle avait trouvé une femme — une de ces Doubles, ces remplaçantes — et elle lui avait demandé de mourir à sa place. Puis, pendant que tout le monde croyait Charlotte enterrée, elle avait préparé la suite.
+
+Reprendre ma vie.
+
+Je me suis assise par terre, le dos contre le bureau. Les trois lettres étalées sur mes genoux. La nuit complète dehors. Pas un bruit sauf le vent contre les fenêtres.
+
+Charlotte était vivante.
+
+Et elle avait prévu tout ça depuis le début.
 
 ### Chapitre 31
 
-J'ai cherché Ariane sur Internet.
+Je n'ai pas dormi.
 
-Aucun résultat. Pas de compte social. Pas de photo. Pas de trace.
+Les trois lettres étalées sur la table de la cuisine, sous la lampe qui oscillait avec le vent. Le tampon de Rennes, l'encre violette. Le nom d'Ariane, répété, insistant.
 
-Puis je suis tombée sur un article. Un article de journal local, publié six mois avant la mort de Charlotte.
+Vers trois heures du matin, j'ai ouvert l'ordinateur de Charlotte. Son vieux Dell gris, celui qu'elle gardait dans le bureau. Le mot de passe était mon prénom. Bien sûr.
 
-*« Disparition inquiétante à Rennes. Ariane Lemoine, 34 ans, n'a pas donné signe de vie depuis trois semaines. La jeune femme, sans famille proche, avait quitté son appartement sans prévenir. »*
+J'ai tapé « Ariane » dans le moteur de recherche. Puis « Ariane Doubles ». Puis « Ariane disparition Bretagne ».
+
+Aucun résultat pertinent. Pas de compte social. Pas de profil LinkedIn, pas de Facebook, pas d'Instagram. Ariane n'existait pas sur Internet. Comme si elle avait été effacée. Ou comme si elle n'avait jamais existé numériquement.
+
+J'ai affiné. « Ariane Lemoine ».
+
+Et là, un article. Un journal local — *Le Télégramme* — publié six mois avant la mort de Charlotte. Une brève. Quatre lignes en bas de page.
+
+*« Disparition inquiétante à Rennes. Ariane Lemoine, 34 ans, n'a pas donné signe de vie depuis trois semaines. La jeune femme, sans famille proche, avait quitté son appartement sans prévenir. La police demande à toute personne disposant d'informations de se manifester. »*
 
 Ariane Lemoine.
 
@@ -2129,29 +2181,47 @@ Lemoine.
 
 Le nom de Gilles.
 
-Je suis sortie de la maison en courant.
+Le sang m'est monté aux tempes. La pièce a basculé. Gilles. Le voisin. Le voisin bienveillant avec son labrador noir et ses sourires aux coins abîmés. Celui qui disait que Charlotte « cachait toujours quelque chose derrière son sourire ». Celui qui parlait de jumeaux et de confusion.
 
-Gilles n'était pas chez lui. Sa voiture était partie. Son chien aboyait derrière la porte.
+Il savait. Il avait toujours su.
 
-Je suis rentrée, essoufflée, le cœur battant.
+J'ai fermé l'ordinateur. J'ai enfilé mes chaussures sans les lacer. La porte claquée derrière moi.
+
+L'air froid m'a gifflée. Cinq heures du matin. Kerfany dormait. La mer était invisible derrière les rochers. Je courais.
+
+La maison de Gilles était à trois minutes. Le labrador aboyait derrière la porte. Sa voiture n'était pas dans l'allée. La maison était sombre.
+
+J'ai frappé quand même. Trois fois. Quatre fois.
+
+— Gilles ! C'est Clémence !
+
+Le chien aboyait de plus belle. Personne n'a ouvert.
+
+Je suis restée là un moment, le souffle court, les mains tremblantes. Puis je suis revenue. Le long du chemin de terre, les pieds mouillés dans l'herbe humide. Le ciel blanchissait à l'est. Les oiseaux commençaient.
+
+Quand j'ai poussé la porte de la maison, j'ai su.
+
+Quelque chose avait changé. L'air était différent. Plus lourd. Le parfum — bergamote, mais pas le mien — flottait dans l'entrée.
 
 Et c'est alors que je l'ai vue.
 
-Elle était debout dans le couloir.
+Elle était debout dans le couloir. Immobile. Comme une pièce de mobilier qu'on aurait oubliée là.
 
-Une femme. Blonde. Portant une robe bleue que je connaissais. Une robe qui m'allait à moi aussi.
+Une femme. Blonde. Pas le blond de Charlotte ni le mien — un blond plus pâle, presque cendré, comme décoloré par le soleil ou par le stress. Elle portait une robe bleue que je connaissais. Une robe que j'avais vue dans l'armoire de Charlotte. Une robe qui m'allait à moi aussi.
 
 Elle me regardait.
 
 Elle avait mon visage.
 
+Pas exactement. Le menton plus étroit. Les yeux un peu plus ronds. Les cils plus courts. Mais à trois mètres, dans la pénombre du couloir, on aurait juré que c'était moi. On aurait juré que c'était Charlotte.
+
 — Bonjour, Clémence, a-t-elle dit.
 
-Sa voix était comme la mienne. Presque.
+Sa voix était comme la mienne. Presque. Un timbre légèrement plus grave, comme si quelque chose dans sa gorge avait été abîmé et réparé.
 
 — Tu dois être Ariane, ai-je réussi à dire.
 
-Elle a souri.
+Elle a souri. Un sourire patient, comme celui de quelqu'un qui attend depuis longtemps.
 
 — Pas encore. Pour l'instant, je suis toi.
 
@@ -2162,7 +2232,9 @@ Elle a souri.
 
 — Que fais-tu ici ? ai-je demandé.
 
-Ariane a fait un pas vers moi. Ses cheveux blonds, trop blonds, brillaient sous la lumière du couloir.
+Ma voix résonnait dans le couloir vide. Je n'avais pas allumé la lumière. Les seules lueurs venaient du dehors — le lampadaire de la route, filtré par les rideaux — et elles découpaient le visage d'Ariane en ombres nettes.
+
+Ariane a fait un pas vers moi. Un seul. Calme. Ses cheveux blonds, trop blonds — ce blond cendré, artificiel, qui ne venait pas de mère nature mais d'un salon ou d'une boîte de teinture — brillaient sous la lumière. Elle se mouvait comme quelqu'un qui connaît les lieux. Qui a répéré les meubles, les angles, les seuils.
 
 — Je viens voir mon fils.
 
@@ -2172,7 +2244,7 @@ Ariane a fait un pas vers moi. Ses cheveux blonds, trop blonds, brillaient sous 
 
 — Tu es folle.
 
-Elle a souri.
+Elle a souri. Pas offensé. Pas blessé. Un sourire indulgent, presque maternel, comme si je disais une bêtise d'enfant.
 
 — C'est ce que disent les gens quand ils ne comprennent pas. Charlotte n'était pas folle. Elle était lucide. Elle savait que le monde ne lui devait rien. Alors elle a décidé de prendre.
 
@@ -2180,7 +2252,9 @@ Elle a souri.
 
 — Ta vie. Elle la méritait plus que toi.
 
-J'ai senti la colère me submerger.
+Le mot « méritait » m'a frappée comme une gifle. Pas « voulait ». Pas « désirait ». *Méritait.* Comme si ma vie m'avait été prêtée et que le bail expirait.
+
+J'ai senti la colère me submerger. Une colère ancienne, pas seulement contre Ariane — contre Charlotte, contre Denise, contre cette famille qui fabriquait des doubles depuis des générations comme d'autres fabriquent des tapis.
 
 — Elle est morte, ai-je dit. Elle est morte dans un accident.
 
@@ -2188,25 +2262,41 @@ J'ai senti la colère me submerger.
 
 — C'est toi, Ariane.
 
-Elle a ri.
+Elle a ri. Un rire bref, sans joie. Un rire qui sonnait comme une correction.
 
 — Non. Je suis celle qui va prendre la place de Charlotte. Comme elle voulait prendre la tienne. On est toutes des chaînons.
 
-— Où est Charlotte ?
+— Des chaînons ?
 
-— Partout. Nulle part. Elle regarde.
+— Une remplacée remplace une autre. C'est le principe. Les Doubles ne sont pas un groupe. C'est un mouvement. Une transmission.
 
-Ariane a tendu la main. Elle a touché ma joue.
+— C'est délirant.
+
+— C'est la seule chose qui ait du sens.
+
+Ariane a tendu la main. Ses doigts étaient longs, les ongles coupés court — pas les ongles de Charlotte ni les miens. Elle a touché ma joue. Sa peau était froide. Sèche. Comme du papier.
 
 — Tu as peur. C'est normal. Tu sens que tu vas disparaître.
 
-J'ai reculé.
+J'ai reculé. Le mur derrière moi. Pas de sortie. Le couloir étroit, les porte-manteaux, le miroir d'entrée dans lequel je voyais deux silhouettes identiques se faire face.
 
 — Sors de ma maison.
 
 — Ce n'est pas ta maison. C'est la sienne. Et bientôt, ce sera la mienne.
 
-Elle est sortie par la porte de derrière. Sans se presser. Comme si la maison lui appartenait.
+Elle a retiré sa main. Elle a regardé autour d'elle, lentement, comme une acheteuse qui visite un bien immobilier.
+
+— Tu as fait des changements, a-t-elle dit. Les coussins. Les fleurs. Charlotte n'aurait pas aimé.
+
+— Charlotte n'est plus là.
+
+— C'est ce que tu crois.
+
+Elle est sortie par la porte de derrière. Sans se presser. Sans regarder derrière elle. Comme si la maison lui appartenait déjà. Comme si je n'étais qu'une locataire de passage.
+
+J'ai entendu ses pas sur le gravier. Puis le silence.
+
+Je me suis adossée au mur. Le miroir me renvoyait mon visage. Mais je ne savais plus si c'était le mien ou le sien.
 
 ---
 
