@@ -184,7 +184,7 @@ Je suis rentrée à la bibliothèque avec les doigts engourdis et l'estomac nou�
 L'après-midi a duré une éternité.
 
 
-## Chapitre 3 : Le retour
+## Chapitre 3 : L'arrivée
 
 
 Je suis partie l'après-midi.
@@ -1858,7 +1858,7 @@ Inès savait que j'étais là. Maintenant. À cet instant.
 
 
 
-## Chapitre 18 : Inès
+## Chapitre 18 : Le miroir
 
 
 Je suis rentrée en courant à la maison.
@@ -2725,7 +2725,7 @@ Pas tout de suite.
 
 
 
-## Chapitre 26 : 
+## Chapitre 26 : Sous surveillance
 
 
 Inès a installé les nouvelles caméras le lendemain.
@@ -2832,11 +2832,7 @@ J'ai éteint l'écran. L'obscurité a avalé la pièce. Je suis restée assise d
 
 ---
 
-#
-
-
-
-## Chapitre 27 : 
+## Chapitre 27 : Les petits riens
 
 
 Malo m'a regardée différemment le lendemain.
@@ -2927,11 +2923,7 @@ Le vent a claqué contre la vitre. J'ai sursauté. Malo n'a pas bougé. Lui, ava
 
 ---
 
-#
-
-
-
-## Chapitre 28 : 
+## Chapitre 28 : Ce que personne ne te dira
 
 
 Denise m'a appelée le samedi matin.
@@ -3014,11 +3006,7 @@ J'ai voulu me lever. Mes jambes ont refusé. Le fauteuil me retenait. Ou peut-ê
 
 ---
 
-#
-
-
-
-## Chapitre 29 : 
+## Chapitre 29 : Le dessin troué
 
 
 Denise a sorti une boîte en fer de sous le canapé.
@@ -3111,11 +3099,7 @@ Je suis sortie sans dire au revoir. La porte a claqué derrière moi. Le son a r
 
 ---
 
-#
-
-
-
-## Chapitre 30 : 
+## Chapitre 30 : Tu l'as poussée
 
 
 La route de retour était noire. Pas de lampadaires après Pont-Aven. Juste les phares qui découpaient la nuit et la pluie qui battait le pare-brise en rythme.
@@ -3216,11 +3200,7 @@ C'était un corps de remplacement. Une doublure de doublure. Un chaînon dans un
 
 ---
 
-#
-
-
-
-## Chapitre 31 : 
+## Chapitre 31 : Trois lettres
 
 
 Je n'ai pas dormi.
@@ -3299,11 +3279,7 @@ Mais je n'ai pas crié. J'ai serré les poings. Les ongles dans les paumes. La d
 
 ---
 
-#
-
-
-
-## Chapitre 32 : 
+## Chapitre 32 : Elle est dans la maison
 
 
 — Que fais-tu ici ? ai-je demandé.
@@ -3387,9 +3363,6 @@ Le silence de la maison. Le silence de la nuit qui se termine. Le silence d'une 
 Je me suis adossée au mur. Le miroir me renvoyait mon visage. Mais je ne savais plus si c'était le mien ou le sien.
 
 ---
-
-#
-
 
 ## Chapitre 33 : Quarante secondes
 
@@ -3485,11 +3458,7 @@ Un silence. Puis :
 
 ---
 
-#
-
-
-
-## Chapitre 34 : 
+## Chapitre 34 : Inès pleure
 
 
 Inès a sonné à la porte vingt minutes après l'appel. Elle était pâle, les mains tremblantes, les yeux rouges. Elle avait pleuré. Je ne l'avais jamais vue pleurer. Inès ne pleurait pas. Inès était en acier. Inès était un outil. Un instrument précis, réglé, calibré. Et pourtant, là, sur le perron, elle avait les yeux d'une femme. D'une vraie femme. D'une femme qui a peur.
@@ -3584,11 +3553,7 @@ Peut-être. Charlotte avait peur. La femme qui planifiait tout, qui contrôlait 
 
 ---
 
-#
-
-
-
-## Chapitre 35 : 
+## Chapitre 35 : La maison grise
 
 
 La maison était à vingt minutes de Kerfany. J'ai mis trente. J'ai pris les petites routes, celles qui serpentent entre les champs de blé noir et les talus de granit. Les routes qu'on ne prend pas d'habitude. Celles qui ne mènent nulle part. Celles que les cartes marquent en pointillé, comme si elles n'étaient pas sûres d'exister.
@@ -3646,10 +3611,6 @@ Mon cœur s'est arrêté. Ou presque. Il a fait un bond, un seul, puis il s'est 
 Le nom est sorti tout seul. Comme une prière. Comme un appel. Comme le dernier mot qu'on prononce avant que la lumière ne s'éteigne.
 
 ---
-
-*Fin du lot C — chapitres 26 à 35 (version épaissie)*
-
-
 
 ## Chapitre 36 : Le retour
 
