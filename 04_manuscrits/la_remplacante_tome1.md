@@ -533,9 +533,9 @@ Le sable dans mes chaussures craquait à chaque pas.
 
 Le soir des funérailles, Denise m'a préparé une chambre.
 
-Pas ma chambre d'enfant. Celle-ci avait été transformée en bureau après mon départ. Elle m'a donné la chambre d'amis, au bout du couloir. Une pièce trop propre, trop neutre, avec des serviettes pliées en triangle sur le lit et une photo de bateaux au mur.
+Pas ma chambre d'enfant. Celle-ci avait été transformée en bureau après mon départ, avec un ordinateur portable fermé sur le bureau et des classeurs empilés par ordre alphabétique. Elle m'a donné la chambre d'amis, au bout du couloir. Une pièce trop propre, trop neutre, avec des serviettes pliées en triangle sur le lit et une photo de bateaux au mur. Une odeur de renfermé, de linge propre oublié dans un placard, de maison qui n'attend personne.
 
-J'ai posé mon sac sur la chaise. J'ai entendu Denise monter l'escalier derrière moi.
+J'ai posé mon sac sur la chaise. La chaise était en rotin. Elle a craqué sous le poids. J'ai entendu Denise monter l'escalier derrière moi, pas lourds, pas pressés. Le pas d'une femme qui sait exactement ce qu'elle va dire.
 
 — Tu restes combien de temps ? a-t-elle demandé.
 
@@ -545,7 +545,7 @@ J'ai posé mon sac sur la chaise. J'ai entendu Denise monter l'escalier derrièr
 
 — Pourquoi ?
 
-Elle est restée dans l'embrasure de la porte, les bras croisés.
+Elle est restée dans l'embrasure de la porte, les bras croisés. Elle ne voulait pas entrer. Entrer, c'eût été reconnaître que j'avais le droit d'être là.
 
 — Parce que je ne veux pas que tu fasses comme d'habitude. Que tu arrives, que tu observes, que tu juges, et que tu repartes avant d'avoir pris une seule décision.
 
@@ -553,7 +553,7 @@ Elle est restée dans l'embrasure de la porte, les bras croisés.
 
 — Signer, ce n'est pas décider. C'est obéir.
 
-J'ai retiré mon pull.
+J'ai retiré mon pull. Le tissu sentait la mer, le sel, l'humidité de la plage. Je l'ai plié sans savoir où le poser. Finalement, je l'ai laissé sur le bras de la chaise.
 
 — Je vais prendre Malo, maman. Je vais m'occuper de lui.
 
@@ -565,7 +565,7 @@ J'ai retiré mon pull.
 
 — Après, on verra.
 
-Denise a fait un pas vers moi.
+Denise a fait un pas vers moi. Ses chaussures de ville ont grinçé sur le parquet ciré.
 
 — Non. Après, si tu le laisses, c'est moi qui le prendrai.
 
@@ -579,7 +579,7 @@ Je me suis figée.
 
 — Charlotte non plus n'aurait jamais dû mourir. Pourtant.
 
-Sa voix s'était durcie.
+Sa voix s'était durcie. Pas de cri. Denise ne criait jamais. Elle durcissait, c'était pire.
 
 — Ecoute-moi bien. Si tu ne tiens pas ton engagement, si tu abandonnes Malo avant la fin de l'année, je porterai plainte. J'obtiendrai la garde. Et je m'assurerai que tu ne le revoies plus jamais.
 
@@ -587,9 +587,9 @@ Sa voix s'était durcie.
 
 — Je te préviens.
 
-Elle a fermé la porte sans bruit.
+Elle a fermé la porte sans bruit. Pas de claquement. Juste le clic de la poignée qui retombait. Comme si elle éteignait la lumière sur moi.
 
-Je suis restée debout dans la chambre d'amis, à regarder les serviettes pliées en triangle. La lumière de la lampe de chevet était trop jaune, trop douce. L'odeur du savon à linge me donnait la nausée.
+Je suis restée debout dans la chambre d'amis, à regarder les serviettes pliées en triangle. La lumière de la lampe de chevet était trop jaune, trop douce. L'odeur du savon à linge me donnait la nausée. J'ai pensé au lit de Charlotte, à l'étage en dessous. À ses draps qui n'avaient pas encore été changés. À son oreiller qui sentait encore son shampoing.
 
 Ma mère venait de me dire, en substance, que j'étais incapable d'aimer.
 
