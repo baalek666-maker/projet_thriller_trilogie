@@ -1810,11 +1810,11 @@ Faustine m'avait donné un indice.
 
 *« Regarde derrière le miroir de la chambre principale. Charlotte avait tout préparé. »*
 
-J'ai grimpé l'escalier. Malo dormait déjà, chez Inès. La maison était silencieuse.
+J'ai grimpé l'escalier. Malo dormait déjà, chez Inès. La maison était silencieuse. J'entendais le tic-tac du réveil de la cuisine, trop fort sans lui.
 
-Dans la chambre principale, j'ai poussé le grand miroir en pied.
+Dans la chambre principale, j'ai poussé le grand miroir en pied. Il était lourd. Le cadre a grincé contre le parquet.
 
-Derrière, une porte discrète, presque invisible dans le lambris.
+Derrière, une porte discrète, presque invisible dans le lambris. Pas de poignée. Juste une encoche pour les doigts.
 
 J'ai ouvert.
 
@@ -1822,11 +1822,11 @@ Une seconde garde-robe.
 
 Plus petite que la première. Mais plus terrifiante.
 
-Des vêtements suspendus. Des vêtements neufs, sans étiquette. Tous à ma taille. Tous dans le style de Charlotte.
+Des vêtements suspendus. Des vêtements neufs, sans étiquette. Tous à ma taille. Tous dans le style de Charlotte. Des jeans que je n'aurais jamais choisis. Des chemisiers blancs impeccables. Une veste en cuir noire que je l'avais vue porter une dizaine de fois.
 
 Mais ce n'était pas tout.
 
-Sur les étagères, il y avait des perruques. Des perruques blondes, comme les cheveux de Charlotte. Des lentilles de contact. Des produits de maquillage.
+Sur les étagères, il y avait des perruques. Des perruques blondes, comme les cheveux de Charlotte. Des lentilles de contact. Des produits de maquillage. Des tutoriels imprimés : *« Comment claircir ses sourcils »*, *« Imitation de grain de beauté au menton »*.
 
 Et des papiers.
 
@@ -1842,7 +1842,6 @@ Charlotte avait préparé un échange total. Elle allait devenir moi. Et j'allai
 
 Pour toujours.
 
----
 
 ### Chapitre 26
 
