@@ -2022,11 +2022,11 @@ J'ai senti des larmes me brûler les yeux.
 
 Denise a sorti une boîte en fer de sous le canapé.
 
-Dedans, des dessins d'enfants. Des cahiers. Des photos.
+Dedans, des dessins d'enfants. Des cahiers. Des photos. Le métal sentait le renfermé et le papier vieux.
 
 — Regarde, a-t-elle dit.
 
-Elle m'a tendu un dessin. Deux petites filles, côte à côte. L'une souriait. L'autre avait le visage griffé au stylo.
+Elle m'a tendu un dessin. Deux petites filles, côte à côte. L'une souriait. L'autre avait le visage griffé au stylo. Les yeux étaient troués.
 
 — Charlotte a fait ça à cinq ans. Elle griffait ton visage sur toutes les photos de famille.
 
@@ -2044,7 +2044,7 @@ Denise a fouillé dans la boîte.
 
 J'ai pris une photo. Nous avions quatorze ans. Même coupe de cheveux. Même pull. Même posture.
 
-Je n'arrivais pas à me reconnaître.
+Je n'arrivais pas à me reconnaître. Je regardais Charlotte en cherchant la différence. Je ne la trouvais pas.
 
 — L'accident de l'escalier, ai-je dit à voix basse. Quand elle est tombée.
 
@@ -2076,7 +2076,6 @@ Le silence a explosé dans la pièce.
 
 — Tu t'es effacée. Comme toujours.
 
----
 
 ### Chapitre 30
 
