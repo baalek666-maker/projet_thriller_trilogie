@@ -1334,7 +1334,9 @@ Je n'avais parlé à personne du bureau.
 
 Je suis rentrée en courant à la maison.
 
-Inès était dans la cuisine, en train de faire du thé. Comme si de rien n'était.
+La porte du bureau est restée ouverte derrière moi. Je ne l'ai pas refermée. J'avais l'impression qu'on pouvait sortir de là n'importe quoi. Un souvenir. Une vérité. Un fantôme avec une caméra.
+
+Inès était dans la cuisine, en train de faire du thé. Comme si de rien n'était. Elle portait une robe légère, couleur lin, et ses cheveux étaient noués en chignon bas. Elle avait mis deux tasses sur la table.
 
 — Comment es-tu entrée ? ai-je demandé.
 
@@ -1344,7 +1346,7 @@ Inès était dans la cuisine, en train de faire du thé. Comme si de rien n'éta
 
 — Je t'observe. C'est différent.
 
-Elle a versé l'eau bouillante dans deux tasses.
+Elle a versé l'eau bouillante dans les deux tasses. La vapeur s'est élevée entre nous, comme un rideau.
 
 — Assieds-toi, Clémence.
 
@@ -1352,7 +1354,7 @@ Elle a versé l'eau bouillante dans deux tasses.
 
 — Comme tu veux.
 
-Elle a posé une tasse devant elle.
+Elle a posé une tasse devant elle. L'autre est restée au milieu de la table, fumante, abandonnée.
 
 — Tu as vu le mur.
 
@@ -1360,7 +1362,7 @@ Ce n'était pas une question.
 
 — Pourquoi ? ai-je demandé. Pourquoi elle faisait ça ?
 
-Inès a soupiré.
+Inès a soupiré. C'était un soupir de professeur qui attendait que l'élève comprenne enfin le problème.
 
 — Charlotte était malade, Clémence.
 
@@ -1378,7 +1380,7 @@ J'ai secoué la tête.
 
 — Pour elle, c'était la même chose.
 
-Inès a bu une gorgée de thé.
+Inès a bu une gorgée de thé. Elle a fermé les yeux une seconde, comme pour savourer la température.
 
 — Elle te voyait comme une version inachevée d'elle-même. Toi, tu t'effaçais. Tu te cachais dans les bibliothèques. Elle voulait te révéler. Te montrer ce que tu pouvais devenir.
 
@@ -1386,7 +1388,7 @@ Inès a bu une gorgée de thé.
 
 — En te libérant.
 
-J'ai éclaté de rire. Un rire amer.
+J'ai éclaté de rire. Un rire amer qui a cogné contre les vitres de la baie.
 
 — Me libérer ? Elle m'a piégée avec un enfant et une maison.
 
@@ -1396,7 +1398,7 @@ J'ai éclaté de rire. Un rire amer.
 
 — Non. Mais je trouve ça… cohérent. Avec elle.
 
-Elle s'est levée.
+Elle s'est levée. Elle a laissé sa tasse à moitié pleine.
 
 — Charlotte savait qu'elle allait mourir. Pas à cause de l'accident. Elle ne savait pas comment. Mais elle savait qu'elle n'aurait pas le temps de finir. Alors elle a tout préparé pour que tu puisses la remplacer.
 
@@ -1404,7 +1406,7 @@ Elle s'est levée.
 
 — Peut-être. Mais tu ne peux pas non plus rester celle que tu étais. Pas maintenant.
 
-Elle est passée devant moi.
+Elle est passée devant moi. Je n'ai pas bougé. J'ai senti son parfum, cette bergamote qui me rappelait Charlotte.
 
 — Regarde-toi, Clémence. Tu portes déjà ses vêtements.
 
@@ -1412,7 +1414,6 @@ J'ai baissé les yeux.
 
 J'avais mis ce matin-là le pull bleu marine de Charlotte. Celui avec l'étiquette à mon nom.
 
----
 
 ### Chapitre 19
 
