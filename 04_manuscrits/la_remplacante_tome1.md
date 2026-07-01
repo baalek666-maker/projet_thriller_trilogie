@@ -1739,7 +1739,7 @@ Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas. Le
 
 Faustine m'a fait entrer.
 
-L'appartement était sombre, encombré de livres et de plantes. Une odeur de thé froid et d'encens. Des tapis partout, même dans la cuisine.
+L'appartement était sombre, encombré de livres et de plantes. Une odeur de thé froid et d'encens. Des tapis partout, même dans la cuisine. Les murs étaient couverts de photographies encadrées : des visages que je ne connaissais pas, mais tous semblables. Mêmes pommettes, mêmes angles de mâchoire. Comme un catalogue.
 
 Elle m'a fait asseoir sur un canapé bas.
 
@@ -1751,7 +1751,7 @@ Elle m'a fait asseoir sur un canapé bas.
 
 — Je ne suis pas là pour boire.
 
-Elle s'est assise en face de moi, les jambes croisées.
+Elle s'est assise en face de moi, les jambes croisées. Ses tatouages descendaient jusqu'aux poignets. Des mots dans une langue que je n'ai pas reconnue.
 
 — Charlotte m'a parlé de toi. Avant l'accident.
 
@@ -1781,7 +1781,7 @@ Faustine a posé ses coudes sur ses genoux.
 
 — Tout le monde veut contrôler son double. C'est le rêve de l'original : être deux endroits à la fois, sans assumer les conséquences.
 
-J'ai sorti le carnet.
+J'ai sorti le carnet. Il était lourd dans ma main.
 
 — Elle m'a surveillée pendant des années.
 
@@ -1801,7 +1801,6 @@ Faustine a souri.
 
 — C'est ce que disent toutes les remplaçantes. Au début.
 
----
 
 ### Chapitre 25
 
