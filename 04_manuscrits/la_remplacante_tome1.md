@@ -1853,7 +1853,7 @@ Inès a installé les nouvelles caméras le lendemain.
 
 — C'est normal. Ça prend du temps.
 
-Elle a placé une caméra dans le couloir, une dans le salon, une devant la porte d'entrée.
+Elle a placé une caméra dans le couloir, une dans le salon, une devant la porte d'entrée. Des petites sphères noires, discrètes. J'ai pensé aux yeux de Charlotte, partout, tout le temps.
 
 — Tu as déjà regardé les enregistrements ? ai-je demandé.
 
@@ -1863,11 +1863,11 @@ Elle a placé une caméra dans le couloir, une dans le salon, une devant la port
 
 — Surtout si c'est moi qui les ai installés.
 
-Elle est partie peu après.
+Elle est partie peu après. Elle a laissé une clé USB sur la table. Les mots de passe étaient écrits au dos d'une carte postale du bourg. Son écriture était fine, presque enfantine.
 
 Cette nuit-là, j'ai regardé les enregistrements.
 
-Rien de spécial pendant des heures. La maison dormait. Les images en noir et blanc défilaient, hypnotiques.
+Rien de spécial pendant des heures. La maison dormait. Les images en noir et blanc défilaient, hypnotiques. J'entendais le vent dans les arbres, amplifié par le micro de la caméra extérieure.
 
 Puis, à 3h23, j'ai vu quelque chose.
 
@@ -1901,7 +1901,6 @@ La femme en robe noire.
 
 Et sa main contre la vitre.
 
----
 
 ### Chapitre 27
 
