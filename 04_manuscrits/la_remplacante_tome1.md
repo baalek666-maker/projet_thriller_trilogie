@@ -2304,17 +2304,37 @@ Je me suis adossée au mur. Le miroir me renvoyait mon visage. Mais je ne savais
 
 Malo a disparu le lendemain.
 
-Je l'avais laissé jouer dans le jardin pendant cinq minutes. Cinq minutes pendant lesquelles j'ai répondu à un coup de téléphone. Un appel sans interlocuteur. Juste une respiration.
+Un mardi matin. Le ciel était bas, couleur de lessive. Malo jouait dans le jardin avec ses soldats de plomb, accroupi dans l'herbe humide. Je l'avais vu par la fenêtre de la cuisine en préparant le café.
 
-Quand je suis sortie, le jardin était vide.
+Le téléphone a sonné. Un numéro masqué. J'ai décroché par réflexe.
+
+Un silence. Puis une respiration. Lente. Régulière. Pas de mot. Juste quelqu'un qui écoutait.
+
+— Allô ? ai-je dit.
+
+La respiration a continué. Calme. Patient. Comme un chat qui guette un oiseau.
+
+— Allô ?
+
+La ligne a coupé.
+
+Ça a duré quarante secondes. Peut-être moins. Mais quarante secondes suffisent.
+
+Quand je suis sortie, le jardin était vide. Les soldats de plomb étaient restés sur l'herbe, disposés en rang, comme si Malo s'était levé au milieu d'une bataille sans terminer.
 
 — Malo ! ai-je crié.
 
-Rien.
+Rien. Le vent a fait bouger les branches du hêtre.
 
-J'ai couru jusqu'à la plage. Jusqu'à la route. Jusqu'à chez Gilles. Personne.
+— Malo !
 
-Je suis rentrée. Sur la table de la cuisine, un papier.
+J'ai couru jusqu'à la plage. Le sable était mouillé, marqué d'empreintes — les siennes, petites, orientées vers le sud. Et d'autres, plus grandes, à côté. Qui ne partaient pas dans la même direction. Qui s'arrêtaient net.
+
+J'ai couru jusqu'à la route. Jusqu'à chez Gilles. La maison était vide. Le chien ne répondait même plus.
+
+Je suis rentrée, le souffle coupé, les mains tremblantes. Et c'est là que j'ai vu le papier.
+
+Sur la table de la cuisine, posé bien à plat à côté du sucrier. Un papier blanc, plié en deux. Écriture ronde, appliquée.
 
 *« Si tu veux le revoir, viens seule. Pas la police. Sinon, il finira comme Paul. »*
 
@@ -2322,15 +2342,15 @@ Paul.
 
 Le mari de Charlotte.
 
-J'ai senti mes jambes se dérober sous moi.
+Le mot a traversé ma poitrine comme une balle. Paul. Mort d'un accident cardiaque, disait-on. Mort dans son sommeil. Le certificat, les condoléances, l'assurance. Tout était en règle. Tout était faux.
 
-Je me suis assise par terre, le papier à la main.
-
-Paul n'était pas mort d'un accident cardiaque comme tout le monde le disait.
+Paul n'était pas mort d'un accident cardiaque.
 
 Il avait été tué.
 
 Et maintenant, c'était au tour de Malo.
+
+J'ai senti mes jambes se dérober sous moi. Le sol de la cuisine, froid, carrelé. Je me suis assise par terre, le papier à la main, le dos contre le meuble. Ma gorge se serrait. Je n'arrivais pas à pleurer. Le choc était trop net, trop précis.
 
 J'ai appelé Inès. Pas la police. Inès.
 
@@ -2340,9 +2360,11 @@ J'ai appelé Inès. Pas la police. Inès.
 
 — Tu as vu qui ?
 
-— Une femme. Blonde. Elle l'a pris par la main. Il est parti avec elle.
+— Une femme. Blonde. Elle l'a pris par la main. Il est parti avec elle. Sans protester.
 
 — Pourquoi il est parti ?
+
+Un silence. Puis :
 
 — Parce qu'elle avait ton visage, Clémence. Elle lui a dit que c'était maman.
 
@@ -2350,7 +2372,7 @@ J'ai appelé Inès. Pas la police. Inès.
 
 ### Chapitre 34
 
-Inès m'a interdit d'appeler la police.
+Inès a sonné à la porte vingt minutes après l'appel. Elle était pâle, les mains tremblantes, les yeux rouges. Elle avait pleuré. Je ne l'avais jamais vue pleurer.
 
 — Si elle sait que la police est là, elle tuera Malo. Tu le sais.
 
@@ -2362,7 +2384,7 @@ Inès m'a interdit d'appeler la police.
 
 — En elle. En Charlotte. En un petit être qu'on pourra exhiber en disant : « Regardez, c'est l'enfant de Charlotte Vaillant. »
 
-J'ai regardé Inès.
+J'ai regardé Inès. Elle se tenait dans l'entrée, le manteau boutonné jusqu'au cou. Ses mains ne tenaient pas en place. Elle les passait dans ses poches, les ressortait, les repassait.
 
 — Tu la connaissais ? Ariane ?
 
@@ -2372,23 +2394,47 @@ J'ai regardé Inès.
 
 — Si tu refusais, elle prendrait ta place. Si Charlotte mourait vraiment, elle prendrait la sienne.
 
+— Quand est-ce qu'elle t'a dit ça ?
+
+— Il y a deux ans. Peut-être trois. Charlotte buvait. Ce soir-là, elle parlait trop. Elle m'a montré une photo. Une femme blonde. Elle a dit : « C'est ma garantie. »
+
+— Ta garantie.
+
+— Comme une assurance. Si tout s'effondre, il y a Ariane.
+
 — Et toi, dans tout ça ?
 
-Inès a baissé les yeux.
+Inès a baissé les yeux. Pour la première fois depuis le début, elle avait l'air coupable. Pas honteuse — coupable. La nuance est importante. La honte, c'est quand on a peur du jugement. La culpabilité, c'est quand on sait qu'on a fait quelque chose de mal.
 
 — J'étais celle qui devait surveiller. M'assurer que le plan fonctionne. M'occuper des détails.
 
-— Pourquoi tu m'aides ?
+— Quels détails ?
+
+— Les caméras. Les rencontres. Les rendez-vous chez Denise. Le carnet que tu as trouvé. C'est moi qui l'ai mis dans le tiroir du bureau.
+
+— Pourquoi ?
+
+— Pour que tu le trouves. Charlotte voulait que tu comprennes petit à petit. Pas d'un coup. Par couches. Comme un oignon.
+
+— Et pourquoi tu m'aides maintenant ?
+
+Inès s'est assise sur le seuil. Son souffle faisait de la buée dans l'air froid.
 
 — Parce que le plan a dérapé. Charlotte est devenue folle. Ariane est devenue dangereuse. Et Malo… Malo n'a rien demandé.
 
-Elle m'a tendu une adresse.
+Elle a sorti un papier de sa poche. Un morceau déchiré de carnet, avec une adresse griffonnée au stylo bille.
 
 — Une maison isolée. Sur la côte. C'est là qu'elles se réunissaient.
 
 — Elles ?
 
-— Charlotte et Ariane. Avant l'accident.
+— Charlotte et Ariane. Avant l'accident. Elles s'y retrouvaient pour préparer. Pour s'entraîner. Charlotte apprenait à Ariane comment être Charlotte. Et Ariane apprenait à Charlotte comment être toi.
+
+— S'entraîner à quoi ?
+
+— À écrire comme toi. À marcher comme toi. À hésiter avant de répondre, comme toi. À mentir aux gens sans qu'ils s'en aperçoivent. Comme toi.
+
+Ce dernier mot m'a transpercée. *Comme toi.* Donc j'étais ça, aussi. Une femme qui ment sans le savoir. Qui ment par habitude. Par nature.
 
 J'ai pris le papier.
 
@@ -2400,53 +2446,59 @@ J'ai pris le papier.
 
 — Prends ça.
 
-Elle m'a donné un couteau. Petit, tranchant.
+Elle m'a donné un couteau. Petit, tranchant. Une lame de chasse, à la poignée en bois sombre, usé par l'usage.
 
 — Tu ne l'utiliseras peut-être pas. Mais il vaut mieux l'avoir.
+
+— C'est à toi ?
+
+— C'était à Charlotte. Elle le gardait dans sa boîte à chaussures. Je ne sais pas pourquoi. Peut-être qu'elle aussi avait peur d'Ariane.
 
 ---
 
 ### Chapitre 35
 
-La maison était à vingt minutes de Kerfany.
+La maison était à vingt minutes de Kerfany. J'ai mis trente. J'ai pris les petites routes, celles qui serpentent entre les champs de blé noir et les talus de granit.
 
-Une bâtisse grise, perchée sur une falaise. Les fenêtres étaient closes. L'herbe autour était haute, morte.
+Le ciel s'était assombri. Des nuages bas, lestes, pendaient sur la côte. La mer était grise, plate, morte.
 
-J'ai garé la voiture à distance.
+L'adresse qu'Inès m'avait donnée correspondait à une bâtisse grise perchée sur une falaise, à l'écart d'un hameau de cinq maisons. Pas de voitures garées devant. Pas de fumée dans la cheminée. Les volets étaient clos. L'herbe autour était haute, jaunie, couchée par le vent.
 
-J'ai marché jusqu'à la maison en me baissant derrière les rochers. Le vent m'empêchait d'entendre quoi que ce soit.
+J'ai garé la voiture à deux cents mètres, derrière un tas de rondins. J'ai coupé le moteur. Le silence m'a enveloppée. Juste le vent, et le bruit lointain des vagues contre la falaise.
 
-Par une fenêtre, j'ai regardé à l'intérieur.
+J'ai marché jusqu'à la maison en me baissant derrière les rochers et les buissons d'ajoncs. Le sol était humide, glissant. Mes chaussures s'enfonçaient dans la vase. Le couteau d'Inès était dans ma poche droite. Je le touchais toutes les dix secondes, comme un talisman.
 
-Ariane était assise à une table. Devant elle, Malo. Il ne bougeait pas. Il la regardait avec des yeux vides.
+Par une fenêtre au rez-de-chaussée, les volets entrouverts, j'ai regardé à l'intérieur.
 
-Elle lui parlait doucement.
+Ariane était assise à une table basse, dans ce qui devait être le salon. Devant elle, Malo. Assis sur une chaise trop grande pour lui. Il ne bougeait pas. Il la regardait avec des yeux vides — pas le vide de la peur, mais le vide de la résignation. D'un enfant qui a cessé de protester.
+
+Elle lui parlait doucement. Sa bouche bougeait. Je n'entendais pas les mots, juste le rythme — lent, berçant, insidieux.
 
 — Maman va revenir, disait-elle. Maman va tout arranger.
 
-Je me suis retenue de hurler.
+Je me suis retenue de hurler. Mes doigts serraient le rebord de la fenêtre jusqu'à blanchir.
 
-J'ai fait le tour de la maison. La porte de derrière était fermée mais la serrure était vieille. Je l'ai forcée avec le couteau d'Inès.
+J'ai fait le tour de la maison. Le vent couvrait mes pas. La porte de derrière était fermée mais la serrure était vieille — une serrure à came, rouillée, du genre qu'on trouve dans les fermes bretonnes abandonnées. Je l'ai forcée avec le couteau d'Inès. La lame est entrée dans le pêne. J'ai tourné. Ça a cédé au bout de trois essais.
 
 J'ai pénétré dans la cuisine.
 
-Sur la table, des papiers. Des photos de moi. Des plans de la maison de Charlotte. Et un passeport au nom de Clémence Barreau, avec la photo d'Ariane.
+L'odeur m'a frappée. Du tabac froid. De la cire. Et autre chose — une odeur chimique, douceâtre, comme du produit ménager répandu sur du sang séché.
+
+Sur la table, des papiers. Des photos de moi — prises sans que je le sache. Dans la rue, dans le jardin, à la fenêtre. Des plans de la maison de Charlotte avec des annotations au feutre rouge : « chambre Clémence », « bureau », « issue de secours ». Et un passeport au nom de Clémence Barreau, avec la photo d'Ariane. Le tampon était parfait. Le papier avait la bonne texture. C'était un vrai faux.
 
 Elle allait vraiment le faire.
 
 Elle allait devenir moi.
 
-J'ai entendu un bruit à l'étage.
+J'ai entendu un bruit à l'étage. Un craquement de plancher. Puis des pas.
 
-J'ai levé les yeux.
-
-Quelqu'un marchait.
+J'ai levé les yeux. Le plafond était lambrissé. Les pas allaient et venaient, lents, réguliers, comme une horloge.
 
 Pas Ariane. Elle était au salon avec Malo.
 
 Une autre personne.
 
-J'ai serré le couteau.
+J'ai serré le couteau. La lame tremblait dans ma main.
 
 — Charlotte ? ai-je murmuré.
 
