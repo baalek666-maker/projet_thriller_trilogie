@@ -13,7 +13,9 @@ Pas un lundi, jour des mauvaises nouvelles. Pas un vendredi, jour des disparitio
 
 Je l'ai regardée longtemps avant de l'ouvrir.
 
-L'enveloppe était bleue. Un bleu roi, presque électrique. Le genre de bleu que Charlotte choisissait quand elle voulait qu'on remarque quelque chose. Moi, j'aurais pris du blanc. Ou du beige. Quelque chose qui ne demande rien.
+L'enveloppe était bleue. Un bleu roi, presque électrique. Le genre de bleu que Charlotte choisissait quand elle voulait qu'on remarque quelque chose. Moi, j'aurais pris du blanc. Ou du beige. Quelque chose qui ne demande rien. Mais Charlotte ne connaissait pas le beige. Pour elle, le beige n'existait pas. C'était une couleur de gens qui renonçaient, et Charlotte ne renonçait jamais.
+
+Je l'ai fait tourner entre mes doigts. Le papier était épais, grainé, le genre qu'on trouve dans les papeteries chères où les vendeuses vous regardent de haut. Je n'aurais pas su dire combien ça coûtait. Charlotte, si. Charlotte savait toujours le prix des choses. C'était une de ses façons d'être dans le monde : connaître la valeur de ce que les autres ignorent.
 
 J'ai glissé mon doigt sous le rabat.
 
@@ -29,11 +31,15 @@ J'ai compté jusqu'à dix. Puis je l'ai relu.
 
 J'ai posé la lettre sur la table de la cuisine.
 
-La cuisine était petite. Un studio de trente mètres carrés au-dessus d'une boulangerie. Le pain sentait bon le matin, moins bon le soir, quand la levure tournait. J'avais vécu là cinq ans. Cinq ans de solitude calculée, de routines rassurantes, de silences choisis.
+La cuisine était petite. Un studio de trente mètres carrés au-dessus d'une boulangerie. Le pain sentait bon le matin, moins bon le soir, quand la levure tournait. J'avais vécu là cinq ans. Cinq ans de solitude calculée, de routines rassurantes, de silences choisis. Le genre de vie qu'on construit brique par brique, jusqu'à ce que les murs soient si hauts qu'on finit par oublier qu'on les a construits soi-même.
+
+J'avais quitté Kerfany-Plage à dix-huit ans. Pas en courant, pas en hurlant. En me glissant dehors un matin de septembre avec deux valises et l'intention de ne plus jamais revenir. Charlotte avait pleuré sur le palier. Moi, j'avais serré les dents. Elle avait dix-huit ans aussi, même si elle semblait en avoir dix de plus. Elle avait déjà ce don pour transformer chacun de mes silences en abandon.
 
 *« Je ne t'écris pas pour te culpabiliser. Je t'écris parce qu'enfin, j'ai besoin de toi. Pas avant. Pas pendant. Maintenant. Quand il sera trop tard pour me le refuser. »*
 
 J'ai bu un verre d'eau. L'eau avait un goût de tuyau.
+
+Je me suis demandé ce qu'elle avait bien pu préparer. Charlotte ne faisait jamais les choses à moitié. Si elle m'écrivait après trois ans de silence, ce n'était pas pour des regrets. C'était pour une mission. Elle avait toujours eu besoin de mission. La mienne, quand nous étions petites, avait été de la suivre partout. De porter ses sacs. De faire semblant de croire à ses mensonges.
 
 Le téléphone a sonné à ce moment-là. Comme si la lettre et l'appel avaient rendez-vous.
 
@@ -53,6 +59,16 @@ J'ai regardé la lettre. Elle était là, sous mes yeux. Vivante dans son écrit
 
 — Il y a des formalités. Et… votre sœur a désigné une tutrice pour son fils. Vous.
 
+J'ai senti le mot me traverser comme une chose solide. Tutrice. Moi. Clémence Barreau, qui fuyait les enfants comme on fuit les miroirs. Clémence Barreau, qui n'avait pas vu sa sœur depuis trois ans et qui n'avait même pas su qu'elle était malade, ou malheureuse, ou en danger.
+
+— Madame Barreau ? a répété la voix.
+
+— Oui. Je suis là.
+
+— Il faudrait venir dès que possible. Le petit est avec son père pour l'instant.
+
+Le petit. Malo. Je l'avais vu une seule fois, à sa naissance. Un bébé rouge et plissé qui m'avait regardée avec des yeux trop anciens pour un corps si neuf. Charlotte avait ri de mon malheur à le tenir. « Tu as peur de le casser, avait-elle dit. Tu as toujours peur de tout casser. »
+
 La première chose qu'on m'a demandée, ce jour-là, ce n'était pas comment j'allais. Ce n'était pas si je voulais du thé ou de l'eau. C'était : « Quelle taille vous faites ? »
 
 Parce que Charlotte avait préparé des vêtements. Pour moi. Pour que je puisse la remplacer le plus vite possible.
@@ -69,13 +85,17 @@ Je suis allée travailler le lendemain.
 
 Je sais que c'est étrange. Votre sœur meurt, on vous confie son enfant, et vous reprenez le service comme si de rien n'était. Mais la bibliothèque était le seul endroit où je savais qui j'étais.
 
-Clémence Barreau, responsable du fonds ancien. Celle qui range les livres par cote. Celle qui sait où se trouve le Proust sans chercher dans l'ordinateur. Celle qui ne parle à personne si ce n'est pas nécessaire.
+Clémence Barreau, responsable du fonds ancien. Celle qui range les livres par cote. Celle qui sait où se trouve le Proust sans chercher dans l'ordinateur. Celle qui ne parle à personne si ce n'est pas nécessaire. Dans ce bâtiment, mes gestes avaient un sens. Le bruit des pages, l'odeur du papier vieilli, le cliquetis des chariots sur le carrelage. Rien ne me demandait de ressentir quoi que ce soit au-delà de l'ordre.
 
-Le matin était calme. Trois lecteurs. Un étudiant qui dormait sur sa table. Une dame qui feuilletait des magazines de jardinage en cachette pour ne pas les acheter.
+J'avais dormi deux heures. Peut-être trois. La lettre était restée sur la table de la cuisine, face contre table, comme si elle pouvait encore me parler. J'avais relu une fois le nom de Charlotte au stylo bleu. Puis j'avais plié le papier, glissé l'enveloppe dans un tiroir. Pas pour l'oublier. Pour pouvoir continuer à respirer.
+
+Le matin était calme. Trois lecteurs. Un étudiant qui dormait sur sa table. Une dame qui feuilletait des magazines de jardinage en cachette pour ne pas les acheter. Je les connaissais tous, sans jamais leur avoir parlé. C'était notre arrangement tacite : eux lisaient, moi rangeais, et personne ne faisait semblant d'être heureux de se voir.
+
+Je m'étais occupée du fonds ancien. J'avais vérifié les cotes. J'avais effacé une trace de doigt sur une reliure de 1887. J'avais aligné les signets comme on aligne des soldats avant une bataille qu'on sait perdue d'avance.
 
 Lucie est passée vers onze heures.
 
-Lucie était ma collègue depuis six ans. Ma seule amie, si on peut appeler ça une amie. Elle était directrice adjointe, mariée, mère de deux enfants, et elle avait cette capacité rare de parler sans jamais se fatiguer.
+Lucie était ma collègue depuis six ans. Ma seule amie, si on peut appeler ça une amie. Elle était directrice adjointe, mariée, mère de deux enfants, et elle avait cette capacité rare de parler sans jamais se fatiguer. Elle portait aujourd'hui un pull jaune qui la rendait lumineuse, comme une pièce de monnaie au fond d'une poche noire.
 
 — Alors ? a-t-elle dit en posant un café devant moi.
 
@@ -85,7 +105,7 @@ Lucie était ma collègue depuis six ans. Ma seule amie, si on peut appeler ça 
 
 — Elle est morte.
 
-Lucie a cligné des yeux. Elle s'est assise en face de moi.
+Lucie a cligné des yeux. Elle s'est assise en face de moi, sans demander la permission.
 
 — Clémence. Tu es venue travailler le lendemain ?
 
@@ -97,7 +117,7 @@ Lucie a cligné des yeux. Elle s'est assise en face de moi.
 
 — Tu ne m'appelles pas. Tu viens au travail et tu annonces la mort de ta sœur comme une date de retour de livre.
 
-J'ai pris le café. Il était trop sucré. Lucie prenait toujours un café trop sucré pour moi.
+J'ai pris le café. Il était trop sucré. Lucie prenait toujours un café trop sucré pour moi, comme si elle croyait que le sucre pouvait adoucir les nouvelles qu'elle apportait. Ou les miennes.
 
 — Il y a un enfant, ai-je dit.
 
@@ -109,9 +129,9 @@ J'ai pris le café. Il était trop sucré. Lucie prenait toujours un café trop 
 
 — Depuis la mort de sa mère, apparemment.
 
-Lucie a reculé sa chaise.
+Lucie a reculé sa chaise. Le bruit a réveillé l'étudiant à la table voisine. Il a levé la tête, nous a regardées, a baissé les yeux.
 
-— Tu vas le prendre ?
+— Tu vas le prendre ? a demandé Lucie à voix basse.
 
 — Je n'ai pas le choix.
 
@@ -123,7 +143,7 @@ Lucie a reculé sa chaise.
 
 — Non. Mais c'est peut-être ma responsabilité.
 
-Lucie a soupiré.
+Lucie a soupiré. Elle a posé sa main sur la table, à côté de la mienne, sans oser la toucher.
 
 — Tu sais ce qui me fait peur ? Ce n'est pas que tu prennes Malo. C'est que tu fasses ça comme tu ranges des livres. Sans réfléchir. Sans te demander ce que ça te coûte.
 
@@ -133,21 +153,49 @@ Lucie a soupiré.
 
 Elle avait raison. Mais je n'avais pas d'autre réponse à donner.
 
+Lucie est restée un moment, à me regarder finir mon café. Elle aurait pu ajouter quelque chose. Elle ne l'a pas fait. Quand elle est partie, j'ai ouvert l'ordinateur et j'ai consulté mes emails. Rien d'important. Une newsletter sur les nouveautés éditoriales. Un rappel de formation. Un message du syndicat.
+
+J'ai fermé l'écran.
+
+Le reste de la matinée, j'ai rangé. J'ai déplacé des livres d'une étagère à l'autre. J'ai épousseté des tranches jaunies. J'ai remis de l'ordre dans un monde qui, pour une fois, n'en demandait pas. Parce que c'était plus facile que de penser à Malo. Plus facile que de penser à Charlotte qui m'attendait quelque part, morte, dans un sac ou un tiroir, avec encore une dernière exigence.
+
+À midi, je suis allée manger dans le petit parc derrière la bibliothèque. Il faisait froid. J'ai mordu dans mon sandwich sans faim. J'ai regardé une mère pousser une poussette sur le chemin gravillonné. L'enfant riait. La mère riait. Elles avaient l'air d'appartenir à une espèce que je n'avais jamais comprise.
+
+Je me suis dit : dans quelques jours, ce sera moi.
+
+Et la terreur de cette pensée m'a paru si absurde, si disproportionnée, que j'ai failli rire. Moi, Clémence Barreau, qui n'avais jamais tenu un enfant plus de cinq minutes. Moi, qui changeais de trottoir pour éviter les landaus. Moi, qui trouvais dans les livres la seule famille supportable.
+
+Je suis rentrée à la bibliothèque avec les doigts engourdis et l'estomac noué.
+
+L'après-midi a duré une éternité.
+
 ---
 
 ### Chapitre 3
 
 Je suis partie l'après-midi.
 
-J'ai pris ma voiture, une vieille Renault Scénic que je n'utilisais presque jamais. J'ai mis la radio pour ne pas entendre mes pensées. La radio parlait de pluie, de circulation, d'un festival de musique celtique à Lorient.
+J'ai pris ma voiture, une vieille Renault Scénic que je n'utilisais presque jamais. Elle avait dix ans, des taches sur les sièges et une odeur de plastique chauffé que je connaissais par cœur. J'ai mis la radio pour ne pas entendre mes pensées. La radio parlait de pluie, de circulation, d'un festival de musique celtique à Lorient. J'ai baissé le volume. Puis je l'ai remonté. Puis je l'ai baissé à nouveau. Le silence de la voiture me semblait plus menaçant que le bruit.
 
 J'ai quitté la ville. Puis l'autoroute. Puis les routes de campagne.
 
+Les arbres devenaient plus verts, plus denses, plus humides. Les maisons s'espacent. Les vaches dans les champs me regardaient passer avec une indifférence que j'aurais aimé pouvoir copier. Je connaissais chaque virage. Chaque panneau. Chaque cabane téléphonique abandonnée. C'était comme de revenir dans un rêve qu'on croyait avoir oublié.
+
 Kerfany-Plage. Le village de mon enfance. Celui que j'avais fui sans jamais vraiment regarder derrière moi.
 
-La maison familiale était la même. Petite, blanche, avec des volets verts et un rosier grimpant qui n'avait jamais voulu grimper correctement. Ma mère l'appelait « le rosier têtu ». Comme moi, avait-elle dit une fois. Comme toi.
+Le village était calme. Un mardi d'octobre, personne ne traînait sur les quais. Les bateaux étaient amarrés, recouverts de bâches. L'odeur d'algues et de gasoil montait de la cale. J'ai ralenti devant la boulangerie. La même boulangerie. Les mêmes croissants en vitrine. J'ai pensé : dans une autre vie, j'aurais pu entrer, acheter un pain, dire bonjour. Dans cette vie, je suis passée devant.
+
+La maison familiale était la même. Petite, blanche, avec des volets verts et un rosier grimpant qui n'avait jamais voulu grimper correctement. Ma mère l'appelait « le rosier têtu ». Comme moi, avait-elle dit une fois. Comme toi. Elle disait ça comme une plaisanterie, mais il y avait toujours une pointe de reproche dans sa voix. Têtu, c'était son mot préféré pour dire : tu ne fais pas ce que je veux.
 
 Je suis restée dans la voiture cinq minutes avant de sortir.
+
+Cinq minutes à regarder la maison. Cinq minutes à me dire que je pouvais encore démarrer, faire demi-tour, rentrer à Quimper. Que personne ne me forçait. Que Charlotte était morte et que la mort, justement, n'ordonnait plus rien.
+
+Mais Malo était là-dedans. Ou arriverait demain. Et la lettre, dans mon sac, me brûlait comme une preuve.
+
+Je suis sortie de la voiture. L'air était froid, chargé de sel. Mes chaussures ont crissé sur le gravier. J'ai remonté les trois marches du perron. J'ai levé la main pour sonner.
+
+La porte s'est ouverte avant que je touche la sonnette.
 
 Denise m'a ouverte presque immédiatement. Comme si elle m'attendait derrière la porte depuis des heures.
 
@@ -157,7 +205,9 @@ Denise m'a ouverte presque immédiatement. Comme si elle m'attendait derrière l
 
 — Le corps arrive demain. Il y a des papiers à signer.
 
-Elle s'est écartée pour me laisser entrer. L'intérieur sentait la cire et le tabac froid. Rien n'avait changé depuis mon départ. Même la cruche sur la table était la même. Même la tache sur le tapis.
+Elle s'est écartée pour me laisser entrer. L'intérieur sentait la cire et le tabac froid. Rien n'avait changé depuis mon départ. Même la cruche sur la table était la même. Même la tache sur le tapis. Même l'ombre sur le mur, là où le soleil de l'après-midi ne parvenait jamais.
+
+Je suis entrée. J'ai posé mon sac sur la chaise de l'entrée. La chaise qui grince. J'ai retiré mon manteau. Denise ne m'a pas aidée. Elle ne m'a pas non plus regardée.
 
 — Tu as prévenu ton travail ?
 
@@ -173,11 +223,11 @@ Elle s'est écartée pour me laisser entrer. L'intérieur sentait la cire et le 
 
 — Tu sais, tu sais. Tu ne sais rien. Tu n'as jamais eu d'enfant.
 
-Je n'ai pas répondu.
+Je n'ai pas répondu. C'était inutile. Denise avait toujours eu ce talent : transformer chaque conversation en procès. Elle m'accusait d'être partie. Elle m'accusait d'être revenue. Elle m'accuserait d'être restée trop longtemps ou pas assez. Il n'y avait pas de bonne conduite avec elle. Seulement des fautes de plus en plus anciennes.
 
-Elle m'a fait entrer dans le salon. Sur la table basse, une photo de Charlotte. Grande, souriante, blonde. La belle sœur. Celle qui avait épousé Paul Vaillant, architecte, belle maison, belle voiture, belle vie.
+Elle m'a fait entrer dans le salon. Sur la table basse, une photo de Charlotte. Grande, souriante, blonde. La belle sœur. Celle qui avait épousé Paul Vaillant, architecte, belle maison, belle voiture, belle vie. Celle qui avait tout ce que je n'avais pas voulu.
 
-Et moi, à côté d'elle sur une autre photo, plus petite, brune, sérieuse. L'ombre.
+Et moi, à côté d'elle sur une autre photo, plus petite, brune, sérieuse. L'ombre. La sœur qu'on plaçait par politesse, qu'on coupait parfois aux épaules pour ne pas gâcher le portrait.
 
 — Tu devras parler au notaire, a dit Denise.
 
@@ -189,7 +239,7 @@ Et moi, à côté d'elle sur une autre photo, plus petite, brune, sérieuse. L'o
 
 — Il arrive demain avec Malo.
 
-J'ai hoché la tête.
+J'ai hoché la tête. Paul. Je ne l'avais jamais aimé. Pas parce qu'il était méchant. Parce qu'il était le genre d'homme qui sourit quand il ne comprend pas, qui dit « je vois » quand il ne voit rien, qui prend tout l'espace d'une pièce sans même s'en apercevoir. Charlotte l'avait choisi. Je ne lui avais jamais pardonné.
 
 — Tu as lu la lettre ? a demandé ma mère.
 
@@ -211,6 +261,18 @@ J'ai regardé ma mère.
 
 — Non, a-t-elle dit vite. Mais je savais qu'elle préparait quelque chose. Charlotte préparait toujours quelque chose.
 
+Je me suis assise sur le canapé. Le ressort a gémi sous mon poids. J'ai regardé la photo de Charlotte, son sourire trop blanc, ses yeux trop sûrs.
+
+— Et toi, maman ? Tu savais quoi, au juste ?
+
+Denise est restée debout, les bras croisés contre sa poitrine comme pour se protéger.
+
+— Je savais que ta sœur était malheureuse. Je savais qu'elle ne me disait pas tout. Et je savais qu'un jour, elle te rappellerait. Parce qu'elle avait besoin de quelqu'un sur qui compter. Comme toujours.
+
+— Comme toujours, ai-je répété.
+
+La phrase s'est posée entre nous, lourde et familière. Parce que c'était vrai. Charlotte avait toujours eu besoin de moi quand les autres partaient. Et moi, j'avais toujours fini par obéir.
+
 
 ---
 
@@ -218,25 +280,27 @@ J'ai regardé ma mère.
 
 Les funérailles ont lieu le samedi matin.
 
-Il pleut. Pas une pluie bretonne habituelle, fine et tenace. Une pluie drue, presque agressive, comme si le ciel voulait empêcher les gens de venir.
+Il pleut. Pas une pluie bretonne habituelle, fine et tenace, qui vous entre dans les os par habitude. Une pluie drue, presque agressive, comme si le ciel voulait empêcher les gens de venir. Elle martèle le toit de l'église, inonde le chemin de terre, transforme le petit cimetière de Kerfany-Plage en bourbier noir et brillant.
 
 Ils sont venus quand même.
 
-Tout le village, à peu près. Les amis de Charlotte, qui la connaissaient depuis l'école. Les collègues de Paul. Des voisins. Des gens que je n'avais jamais vus et qui me regardaient avec une curiosité polie.
+Tout le village, à peu près. Les amis de Charlotte, qui la connaissaient depuis l'école. Les collègues de Paul. Des voisins. Des gens que je n'avais jamais vus et qui me regardaient avec une curiosité polie. Je les détestais déjà. Pas parce qu'ils étaient méchants. Parce qu'ils portaient Charlotte dans leurs yeux, une Charlotte que je ne connaissais pas. La Charlotte des années où je n'étais pas là. Celle qui avait vécu sans moi, qui avait ri sans moi, qui était morte sans moi.
 
-Je les détestais déjà.
+L'église sent la cire chaude et l'humidité des manteaux. Quelque part, un radiateur claque, régulier, comme un métronome. J'ai les mains froides. Je les serre l'une contre l'autre sur mes genoux, mais elles refusent de se réchauffer.
 
-J'étais assise au premier rang, à côté de Denise. Ma mère pleurait sans bruit, le mouchoir serré contre les lèvres. Ses larmes étaient propres, contrôlées. Elle avait toujours pleuré ainsi, même quand nous étions enfants. Une chorégraphie du deuil.
+J'étais assise au premier rang, à côté de Denise.
+
+Ma mère pleurait sans bruit, le mouchoir serré contre les lèvres. Ses larmes étaient propres, contrôlées. Elle avait toujours pleuré ainsi, même quand nous étions enfants. Une chorégraphie du deuil. Même en tombant, même en se cognant, même quand le chat était mort noyé dans la mare, Denise avait pleuré avec cette même élégance pressée. Comme si la douleur était une inconvenance qu'il fallait régler vite, avant qu'elle ne gâche l'ordre de la maison.
 
 Paul était à ma gauche.
 
-Il ne pleurait pas. Il regardait le cercueil avec une intensité étrange, comme s'il attendait qu'il s'ouvre. Son costume noir lui allait bien. Trop bien. Charlotte avait dû le choisir.
+Il ne pleurait pas. Il regardait le cercueil avec une intensité étrange, comme s'il attendait qu'il s'ouvre. Son costume noir lui allait bien. Trop bien. Charlotte avait dû le choisir. Paul ne savait pas s'habiller seul. Ou plutôt : il savait s'habiller pour plaire, mais pas pour être sérieux. Charlotte lui avait appris la différence. Elle lui avait appris tant de choses, en fait, que je me demandais parfois s'il lui restait quelque chose à lui-même.
 
 — Tu as vu Malo ? a murmuré Denise.
 
 J'ai regardé autour de moi.
 
-L'enfant était assis au bout du banc, les pieds pendant dans le vide. Il portait un petit costume sombre qui le faisait paraître encore plus fragile. Il ne bougeait pas. Il ne regardait pas le cercueil. Il fixait ses chaussures, ou quelque chose devant ses chaussures.
+L'enfant était assis au bout du banc, les pieds pendant dans le vide. Il portait un petit costume sombre qui le faisait paraître encore plus fragile. Il ne bougeait pas. Il ne regardait pas le cercueil. Il fixait ses chaussures, ou quelque chose devant ses chaussures. Comme s'il y avait un monde invisible à ses pieds, plus intéressant que le nôtre.
 
 — Il ne parle plus, a dit Denise. Depuis qu'ils l'ont retrouvé.
 
@@ -246,7 +310,7 @@ L'enfant était assis au bout du banc, les pieds pendant dans le vide. Il portai
 
 J'ai observé le petit garçon.
 
-Il avait les cheveux blonds de Charlotte, mais coupés court, en bataille. Ses mains reposaient sur ses genoux, ouvertes, comme s'il attendait qu'on les tienne.
+Il avait les cheveux blonds de Charlotte, mais coupés court, en bataille. Ses mains reposaient sur ses genoux, ouvertes, comme s'il attendait qu'on les tienne. Ses ongles étaient propres. Trop propres. Quelqu'un les avait coupés récemment. Peut-être Charlotte, la veille. Peut-être la voisine, après. Cette précision m'a fait mal. Les ongles d'un enfant. Comme si la mort avait commencé par les petites choses.
 
 — Bonjour Malo, ai-je dit en me penchant.
 
@@ -256,7 +320,7 @@ Il n'a pas levé les yeux.
 
 Rien.
 
-J'ai tendu la main. Il ne l'a pas prise. Il ne l'a pas non plus repoussée. Il a simplement continué à regarder devant lui.
+J'ai tendu la main. Il ne l'a pas prise. Il ne l'a pas non plus repoussée. Il a simplement continué à regarder devant lui, dans ce vide où je n'entrais pas. J'ai voulu poser ma paume sur son dos, juste entre les omoplates, là où les enfants portent leur peur. Je n'ai pas osé. Je ne savais pas encore si j'avais le droit de le toucher. Si j'avais le droit d'être sa tante.
 
 — Laisse-le, a dit Paul sans me regarder. Il ne parle à personne.
 
@@ -264,15 +328,49 @@ J'ai tendu la main. Il ne l'a pas prise. Il ne l'a pas non plus repoussée. Il a
 
 — Surtout pas à moi.
 
-Le prêtre a commencé à parler. Des mots doux, convenus. Une vie fauchée trop tôt. Une mère aimante. Une femme généreuse.
+Sa voix avait une dureté que je n'avais pas entendue avant. Ou que je n'avais pas remarquée. Paul, l'homme qui souriait à tout, parlait de son fils comme d'un mur. Comme si le mutisme de Malo était une insulte personnelle, une preuve supplémentaire que Charlotte lui avait volé quelque chose jusqu'au bout.
 
-J'ai pensé à la lettre. *Si tu lis cette lettre, c'est que je suis morte.* Qui écrit ce genre de chose ?
+Le prêtre a commencé à parler.
 
-Quand on a descendu le cercueil, quelqu'un a sangloté derrière moi. Je me suis retournée. Une femme aux cheveux roux, le visage caché par un chapeau noir. Elle a croisé mon regard une seconde. Puis elle a baissé les yeux.
+Sa voix était douce, un peu nasale, habituée aux discours. Il a dit les mots qu'on dit dans ces cas-là. Une vie fauchée trop tôt. Une mère aimante. Une femme généreuse. Une présence qui manquerait à tous. J'ai écouté sans vraiment entendre. C'étaient des mots pour une autre Charlotte. La Charlotte des pot-au-feu et des sourires de bienvenue. Pas la Charlotte de la lettre bleue. Pas celle qui écrivait *Si tu lis cette lettre, c'est que je suis morte* comme on écrit une liste de courses.
+
+J'ai regardé le cercueil.
+
+Du chêne, probablement. Verni. Les poignées en laiton. On aurait dit un meuble qu'on pourrait ranger dans un salon. J'ai pensé à la chaleur du corps de Charlotte, quand nous étions petites et que nous dormions dans le même lit. Elle était toujours brûlante, comme une pile électrique. Moi, j'avais les pieds froids. Elle me les chauffait contre ses jambes en disant que j'étais un vampire.
+
+Maintenant elle était là-dedans. Froide. Seule. Avec son costume et son maquillage de morte.
+
+Le prêtre a prononcé son prénom. Charlotte Vaillant. Le son a résonné sous les voûtes. J'ai frissonné. C'était la première fois que je l'entendais nommée officiellement depuis mon arrivée. Charlotte Vaillant. Comme une inconnue. Elle avait pris le nom de Paul, bien sûr. Moi, j'avais gardé Barreau, le nom de mon premier amour raté. Elle avait changé de nom pour une histoire d'amour. Moi, j'avais gardé le mien par paresse, ou par défi. Je ne savais plus lequel des deux.
+
+J'ai pensé à la lettre. *Si tu lis cette lettre, c'est que je suis morte.* Qui écrit ce genre de chose ? Une femme qui anticipe sa mort, ou une femme qui anticipe le drame ? Charlotte avait toujours confondu les deux. Pour elle, chaque adieu était une scène. Chaque peur, une prophétie. Chaque absence, un coup de théâtre.
+
+Mais cette fois, le drame était réel.
+
+Le cercueil a commencé à descendre.
+
+C'était un mouvement lent, presque respectueux. Deux hommes en bleu de travail tenaient les sangles. La pluie s'était un peu calmée, juste assez pour entendre le grincement des poulies. J'ai regardé la fosse. De la terre noire, détrempée, qui attendait. On aurait dit une bouche ouverte.
+
+Denise a sangloté plus fort. Paul a fermé les yeux. Moi, je n'ai pas pleuré.
+
+Je ne savais pas pourquoi. J'avais les larmes là, quelque part, coincées derrière les paupières. Mais elles ne sortaient pas. C'était comme si mon corps refusait de croire que la boîte contenait vraiment Charlotte. Tant que je ne pleurais pas, peut-être que ce n'était pas vrai. Tant que je ne pleurais pas, elle pouvait encore être quelque part, en train de préparer la suite.
+
+Quelqu'un a sangloté derrière moi.
+
+Un sanglot brusque, presque choqué, comme si la personne avait retenu sa respiration pendant tout le service et venait de lâcher prise. Je me suis retournée.
+
+Une femme aux cheveux roux, le visage caché par un chapeau noir. Elle avait les épaules minces, un manteau vert trop léger pour la saison. Elle tremblait. Pas de froid. De quelque chose de plus profond. Ses mains serraient un mouchoir froissé.
+
+Elle a croisé mon regard une seconde.
+
+Des yeux clairs, verts peut-être, ou gris. La couleur importait peu. Ce qui m'a frappée, c'était l'intensité. Une reconnaissance. Une attente. Comme si elle m'avait cherchée pendant longtemps et m'avait enfin trouvée.
+
+Puis elle a baissé les yeux.
 
 Je ne savais pas qui c'était.
 
 Mais elle m'a regardée comme si elle me connaissait.
+
+Comme si elle savait quelque chose sur moi que j'ignorais encore.
 
 ---
 
