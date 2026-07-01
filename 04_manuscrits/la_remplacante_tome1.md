@@ -847,19 +847,19 @@ Comme si quelqu'un m'écoutait.
 
 Le lendemain, j'ai ouvert l'armoire de Charlotte.
 
-Je ne sais pas pourquoi. Curiosité malsaine, sans doute. Ou besoin de comprendre ce qu'elle m'avait préparé.
+Je ne sais pas pourquoi. Curiosité malsaine, sans doute. Ou besoin de comprendre ce qu'elle m'avait préparé. Ou peut-être simple logique : si j'allais vivre dans cette maison, dans cette peau, il me fallait des vêtements.
 
-L'armoire coulissante occupait tout un mur de la chambre principale. Celle qui avait été la chambre de Charlotte et Paul. Je n'avais pas osé y dormir. J'avais choisi la chambre d'amis, plus petite, plus neutre.
+L'armoire coulissante occupait tout un mur de la chambre principale. Celle qui avait été la chambre de Charlotte et Paul. Je n'avais pas osé y dormir. J'avais choisi la chambre d'amis, plus petite, plus neutre, moins habitée. La chambre principale sentait encore le parfum de Charlotte. Quelque chose de fleuri et de froid, comme du lys coupé.
 
 Mais l'armoire, je l'ai ouverte.
 
 Le premier coup d'œil m'a coupé le souffle.
 
-Des rangées de vêtements. Robes, blouses, pantalons, manteaux. Tous soigneusement rangés par couleur, comme les livres. Du blanc au noir, en passant par le bleu, le rose, le beige.
+Des rangées de vêtements. Robes, blouses, pantalons, manteaux. Tous soigneusement rangés par couleur, comme les livres. Du blanc au noir, en passant par le bleu, le rose, le beige. Chaque cintre était espacé du suivant d'un même centimètre. Pas de froissement. Pas d'affaire oubliée au fond. Un musée de la garde-robe féminine.
 
 Et sur chaque cintre, une étiquette.
 
-J'ai plissé les yeux. Je me suis approchée.
+J'ai plissé les yeux. Je me suis approchée. J'ai cru d'abord qu'il s'agissait des marques, des matières, des instructions de nettoyage. Je portais des vêtements de supermarché. Je ne connaissais pas les conventions des armoires riches.
 
 Sur la robe noire, une étiquette blanche avec un mot écrit à la main : *Clémence.*
 
@@ -873,15 +873,15 @@ Sur la blouse ivoire : *Clémence.*
 
 J'ai reculé.
 
-Je suis retombée sur le lit.
+Je suis retombée sur le lit. Le matelas a émis un bruit étouffé, presque indiscret. J'ai regardé l'armoire comme on regarde une personne qu'on vient de découvrir morte dans sa baignoire.
 
 Elle avait étiqueté ses vêtements à mon nom. Charlotte avait choisi, parmi toutes ses affaires, celles qui m'iraient. Qui me transformeraient en elle.
 
-Je suis restée assise un long moment à regarder ces étiquettes.
+Je suis restée assise un long moment à regarder ces étiquettes. Elles étaient écrites d'une écriture que je connaissais trop bien. Celle de Charlotte. Petite, penchée, parfaitement régulière. L'écriture d'une femme qui n'avait jamais douté de ce qu'elle écrivait.
 
 Puis, lentement, j'ai pris la robe noire.
 
-Je l'ai tenue contre moi. Elle était lourde, de bonne qualité. J'ai regardé l'étiquette de taille. Un 38.
+Je l'ai tenue contre moi. Elle était lourde, de bonne qualité. Le tissu coulait entre mes doigts comme de l'eau sombre. J'ai regardé l'étiquette de taille. Un 38.
 
 Ma taille.
 
@@ -889,14 +889,18 @@ J'ai pris le pantalon gris. Un 38.
 
 Le manteau beige. Un 38.
 
+Le pull bleu marine. Un 38.
+
 Tout était ma taille.
+
+Pas un 36. Pas un 40. Pas une robe qu'elle aurait aimé et que j'aurais dû maigrir pour enfiler. Ma taille exacte. Charlotte avait mesuré mon corps sans jamais me toucher.
 
 Je me suis levée et je me suis approchée du miroir en pied. J'ai mis la robe noire devant moi. Le reflet m'a fait l'effet d'un choc.
 
 Parce que, pendant une demi-seconde, j'ai cru voir Charlotte.
 
+Et pendant cette demi-seconde, je n'ai pas su si c'était elle que je voyais, ou moi.
 
----
 
 ### Chapitre 13
 
