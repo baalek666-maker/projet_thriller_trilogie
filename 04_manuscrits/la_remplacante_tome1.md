@@ -1706,13 +1706,15 @@ J'avais confié Malo à Inès pour la journée. Elle avait insisté pour le pren
 
 — Tu as besoin de temps pour toi, avait-elle dit. Ne t'inquiète pas. Je connais les rituels.
 
-Je conduisais la voiture de Charlotte. Une Volvo noire, impeccable, qui sentait encore son parfum.
+Les rituels. Elle avait employé le même mot que Charlotte dans ses listes. J'avais hoché la tête sans rien dire. Je n'avais pas envie de savoir comment elle les connaissait.
+
+Je conduisais la voiture de Charlotte. Une Volvo noire, impeccable, qui sentait encore son parfum. Le siège était réglé à sa taille. Je devais m'asseoir plus droite pour atteindre le volant. Pendant tout le trajet, j'avais l'impression de conduire dans sa posture.
 
 J'avais mis le pull bleu marine. J'avais pris le carnet. J'avais vérifié dix fois l'adresse de Lucie.
 
 Rennes m'a parue étrangère.
 
-Après une semaine à Kerfany, je ne savais plus vivre en ville. Les klaxons, les passages piétons, les regards croisés. Tout me semblait hostile.
+Après une semaine à Kerfany, je ne savais plus vivre en ville. Les klaxons, les passages piétons, les regards croisés. Tout me semblait hostile. J'ai cru reconnaître des gens que je connaissais. À chaque coin de rue, une silhouette me renvoyait mon propre visage.
 
 J'ai garé la voiture près de la gare et j'ai marché jusqu'à l'adresse.
 
@@ -1720,7 +1722,7 @@ Rue du Chapitre, au-dessus d'une librairie ancienne. Une porte verte avec une so
 
 J'ai sonné.
 
-Une femme a ouvert. Jeune, les cheveux rasés, des tatouages aux mains.
+Une femme a ouvert. Jeune, les cheveux rasés, des tatouages aux mains. Des anneaux aux doigts. Un regard qui ne laissait rien passer.
 
 — Faustine ? ai-je demandé.
 
@@ -1728,12 +1730,10 @@ Une femme a ouvert. Jeune, les cheveux rasés, des tatouages aux mains.
 
 — Je suis Clémence Barreau. La sœur de Charlotte Vaillant.
 
-Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas.
+Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas. Lentement. Comme si elle vérifiait un croquis.
 
 — Ah, a-t-elle dit enfin. La remplaçante.
 
-
----
 
 ### Chapitre 24
 
