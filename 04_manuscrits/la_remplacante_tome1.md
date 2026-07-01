@@ -492,7 +492,7 @@ Je ne sais pas pourquoi j'ai signé aussi vite. Par orgueil. Par culpabilité. P
 
 En sortant du cabinet, la pluie s'était arrêtée. L'air sentait la mer et l'algue. Kerfany-Plage était à dix minutes à pied, mais j'ai pris la voiture. Je ne voulais pas marcher à côté de Denise. Je ne voulais pas entendre ce qu'elle allait dire. Surtout pas maintenant.
 
-J'ai garé la Clio devant l'ancien hôtel des Bains, fermé depuis septembre. La façade orange pâlissait. Les volets étaient clos, comme des paupières qu'on n'ose pas ouvrir. Je suis descendue vers la plage par l'escalier de béton qui longe la cale.
+J'ai garé la Scénic devant l'ancien hôtel des Bains, fermé depuis septembre. La façade orange pâlissait. Les volets étaient clos, comme des paupières qu'on n'ose pas ouvrir. Je suis descendue vers la plage par l'escalier de béton qui longe la cale.
 
 Il y avait du vent. Pas de touristes. Juste quelques chiens qui couraient après des morceaux de bois et un couple en imperméable qui regardait les vagues de loin, sans se toucher. J'ai marché jusqu'à ce que mes chaussures soient pleines de sable. Le sable humide s'est infiltré par les coutures, froid et granuleux entre mes orteils.
 
@@ -512,7 +512,7 @@ Je me suis assise sur un rocher. Le granit était froid à travers mon pantalon.
 
 La mer était grise, immense, indifférente. Elle n'avait aucun avis sur Charlotte. Aucun avis sur moi. Elle existait, c'était tout. Pendant quelques minutes, j'ai envié ça. L'existence sans jugement.
 
-J'ai sorti mon téléphone. Pas de message. Pas d'appel. Personne à Paris ne savait encore que j'étais partie pour de bon. Mon patron m'avait donné une semaine de congé forcé. *« Prends le temps, Clémence. On se revoit lundi. »* Lundi était déjà passé. Je n'avais pas prévenu que je ne reviendrais pas.
+J'ai sorti mon téléphone. Pas de message. Pas d'appel. Personne à Rennes ne savait encore que j'étais partie pour de bon. Mon patron m'avait donné une semaine de congé forcé. *« Prends le temps, Clémence. On se revoit lundi. »* Lundi était déjà passé. Je n'avais pas prévenu que je ne reviendrais pas.
 
 Quelque part derrière moi, dans le village, il y avait une maison pleine de vêtements à ma taille. Un petit garçon qui ne parlait pas. Un beau-frère froid. Une mère hostile.
 
@@ -1477,7 +1477,7 @@ J'ai senti mon sang se figer.
 
 — Vous avez dit ça à la police ?
 
-— Ils m'ont écouté. Ils ont noté. Puis ils m'ont expliqué que les radios dentaires confirmaient l'identité du corps.
+— Ils m'ont écouté. Ils ont noté. Puis ils m'ont expliqué que le corps était trop brûlé pour les radios dentaires. Ils avaient identifié Charlotte à sa chevalière et à ses papiers.
 
 Il a haussé les épaules.
 
@@ -1725,7 +1725,6 @@ Je suis partie pour Rennes le mardi matin.
 J'avais confié Malo à Inès pour la journée. Elle avait insisté pour le prendre. Trop, peut-être. Son sourire était trop large. Sa voix trop douce.
 
 — Tu as besoin de temps pour toi, avait-elle dit. Ne t'inquiète pas. Je connais les rituels.
-— Tu as besoin de temps pour toi, avait-elle dit. Ne t'inquiète pas. Je connais les rituels.
 
 Elle avait dit ça en ramassant les chaussettes de Malo. Un geste banal. Mais la façon dont elle les avait roulées, en boule serrée, identique à celle de Charlotte quand elle rangeait le linge. Je l'avais vue faire. Sur la liste. Inès rangeait les chaussettes comme Charlotte.
 
@@ -1774,13 +1773,11 @@ Une femme a ouvert. Jeune, les cheveux rasés, des tatouages aux mains. Des anne
 — Oui.
 
 — Je suis Clémence Barreau. La sœur de Charlotte Vaillant.
-— Je suis Clémence Barreau. La sœur de Charlotte Vaillant.
 
 Son visage n'a pas bougé. Pas un muscle. Comme si elle attendait cette visite depuis longtemps. Comme si elle savait que je viendrais.
 
 Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas. Lentement. Comme si elle vérifiait un croquis.
 
-— Ah, a-t-elle dit enfin. La remplaçante.
 — Ah, a-t-elle dit enfin. La remplaçante.
 
 Le mot est tombé entre nous. Lourd. Définitif. Comme une clé qu'on pose sur une table.
@@ -1808,7 +1805,6 @@ Elle m'a fait asseoir sur un canapé bas.
 
 — Non.
 
-— Dommage. J'ai un excellent rooibos.
 — Dommage. J'ai un excellent rooibos.
 
 Elle a versé quand même. Deux tasses. La vapeur a grimpé entre nous comme un écran.
@@ -1842,7 +1838,6 @@ Faustine a posé ses coudes sur ses genoux. Elle m'a regardée fixement. Ses yeu
 — Charlotte voulait que je sois elle.
 
 — Charlotte voulait que tu sois sa version améliorée. Plus discrète, plus douce, plus facile à contrôler.
-— Charlotte voulait que tu sois sa version améliorée. Plus discrète, plus douce, plus facile à contrôler.
 
 Elle a marqué une pause. Puis elle a ajouté, plus basse :
 
@@ -1861,7 +1856,6 @@ J'ai sorti le carnet. Il était lourd dans ma main.
 — Elle m'a surveillée pendant des années.
 
 — C'est la première étape. Observer. Comprendre les gestes, les intonations, les peurs. Pour pouvoir les imiter.
-— C'est la première étape. Observer. Comprendre les gestes, les intonations, les peurs. Pour pouvoir les imiter.
 
 — Les peurs ?
 
@@ -1878,13 +1872,11 @@ Faustine a souri. Le même sourire. Toujours sans les yeux.
 — Parce qu'on m'y a forcée.
 
 — Personne ne force qui que ce soit à devenir un double. On vous pousse. Vous marchez.
-— Personne ne force qui que ce soit à devenir un double. On vous pousse. Vous marchez.
 
 Elle a posé sa tasse. Le fond a cliqué contre la soucoupe. Un son minuscule, presque intime.
 
 — Je ne marcherai pas.
 
-— C'est ce que disent toutes les remplaçantes. Au début.
 — C'est ce que disent toutes les remplaçantes. Au début.
 
 Elle m'a regardée. Longtemps. Comme si elle attendait que je comprenne moi-même quelque chose que je refusais encore de voir.
@@ -2080,7 +2072,7 @@ Il a hoché la tête. Lentement. Comme quelqu'un qui pèse chacun de ses gestes.
 
 J'ai regardé la cuillère dans ma main.
 
-Je l'avais posée contre la tasse de la même façon que Charlotte. Sans m'en rendre compte. Le même angle. Le même petit clic. Le métal froid contre la porcelaine. Ce tintement précis, sec, à peine audible. Un bruit que je n'aurais jamais remarqué si un enfant de sept ans ne venait pas de me le signaler.
+Je l'avais posée contre la tasse de la même façon que Charlotte. Sans m'en rendre compte. Le même angle. Le même petit clic. Le métal froid contre la porcelaine. Ce tintement précis, sec, à peine audible. Un bruit que je n'aurais jamais remarqué si un enfant de six ans ne venait pas de me le signaler.
 
 — Je ne fais pas exprès, ai-je dit.
 
@@ -2335,6 +2327,18 @@ Charlotte était vivante.
 
 Et elle avait prévu tout ça depuis le début.
 
+Mais quelque chose ne collait pas.
+
+Les lettres dataient d'un mois avant l'accident. « Ariane est formée. Elle est prête à mourir à ta place. » Et pourtant, quand j'avais vu Ariane dans le couloir de la maison, elle était vivante. Bien vivante. Elle n'avait pas l'air d'une femme revenue d'entre les morts.
+
+Si Ariane n'était pas morte dans la voiture, alors qui ?
+
+Une autre. Une troisième. Une femme sans nom, sans famille, sans personne pour la réclamer. Une autre Double — une de ces ombres que Faustine formait et effaçait. Une femme qui avait accepté de mourir pour de l'argent, ou par dévotion, ou par néant. Une femme qu'on avait mise dans la voiture de Charlotte, avec sa chevalière et ses papiers, avant de l'envoyer sur la route de Pont-Aven.
+
+Ariane avait été désignée. Mais Ariane avait refusé. Ou elle avait fui. Ou Charlotte avait changé de plan à la dernière minute. Une chose était sûre : le corps dans cette voiture n'était pas celui d'Ariane. Et ce n'était pas celui de Charlotte non plus.
+
+C'était un corps de remplacement. Une doublure de doublure. Un chaînon dans une chaîne dont je ne voyais pas le bout.
+
 ### Chapitre 31
 
 Je n'ai pas dormi.
@@ -2443,6 +2447,14 @@ J'ai senti la colère me submerger. Une colère ancienne, pas seulement contre A
 Elle a ri. Un rire bref, sans joie. Un rire qui sonnait comme une correction.
 
 — Non. Je suis celle qui va prendre la place de Charlotte. Comme elle voulait prendre la tienne. On est toutes des chaînons.
+
+— Mais tu étais censée mourir. Les lettres disaient que tu étais « prête à mourir à sa place ».
+
+— C'était le plan, oui. J'étais censée monter dans cette voiture. Mais je n'ai pas pu. Pas ce soir-là. Pas comme ça. Charlotte a trouvé quelqu'un d'autre. Une femme de la communauté, sans famille, sans personne. Je ne connais même pas son vrai nom. On l'appelait « la Transit ». C'est tout ce que je sais.
+
+— Et elle est morte.
+
+— Elle est morte. À ma place. À la place de tout le monde.
 
 — Des chaînons ?
 
@@ -2837,7 +2849,7 @@ Ariane a froncé les sourcils.
 
 — Maman, elle sentait la vanille. Toi, tu sens le feu.
 
-Pour un enfant de cinq ans, c'était la chose la plus précise qu'il ait dite depuis des jours. La plus courageuse aussi. Une observation de chimiste, pas de victime.
+Pour un enfant de six ans, c'était la chose la plus précise qu'il ait dite depuis des jours. La plus courageuse aussi. Une observation de chimiste, pas de victime.
 
 Ariane a hésité une fraction de seconde. Pas longtemps. Un battement de cil. L'espace d'un doute. Le doute de quelqu'un qui se croit parfait et qui, pour la première fois, voit la faille.
 
@@ -3148,7 +3160,7 @@ Kerfany portait le poids de Charlotte. De Paul, le mari tué sans que personne n
 
 — On ira la voir. Quand elle ira mieux.
 
-Il a hoché la tête et s'est blotti contre moi. Sa tête s'est posée contre mon épaule. Il ne pesait pas lourd. Cinq ans de poids. Cinq ans de peur. Cinq ans de mère défaillante, de père absent, de doubles et de remplaçantes.
+Il a hoché la tête et s'est blotti contre moi. Sa tête s'est posée contre mon épaule. Il ne pesait pas lourd. Six ans de poids. Six ans de peur. Six ans de mère défaillante, de père absent, de doubles et de remplaçantes.
 
 Pour la première fois depuis des jours, il m'a fait confiance. Non pas parce que je ressemblais à sa mère. Mais parce que je ne lui ressemblais pas.
 
@@ -3245,7 +3257,7 @@ J'ai regardé ma sœur. Cette femme qui avait mon visage. Cette femme qui, penda
 
 Le mot est tombé. Lourd. Définitif. Charlotte ne niait plus. Ne se justifiait plus. Elle énonçait les faits, un par un, comme si elle les lisait dans un dossier. Comme si elle se racontait de l'extérieur. Comme si elle s'était déjà quittée elle-même.
 
-J'ai regardé Charlotte. Cette femme qui avait mon visage. Cette femme qui, pendant trois ans, avait porté mon nom, vécu dans ma peau, touché un enfant avec mes mains. Je n'arrivais pas à la haïr. Je n'arrivais pas à la plaindre. Quelque chose entre les deux. Quelque chose de plus dur que les deux.
+
 
 — Tu ne mérites pas qu'elle t'ait sauvée.
 
@@ -3279,7 +3291,7 @@ Le départ a eu lieu trois jours plus tard.
 
 Trois jours pour vider une vie qui ne m'appartenait pas. Pour effacer les traces de Charlotte de cette maison qui avait été la sienne — et, pendant quelques semaines, la mienne.
 
-J'ai vendu la voiture de Charlotte. Une Peugeot grise, propre, sans histoire apparente. L'acheteur n'a pas posé de questions. Il m'a tendu l'argent en billets, j'ai signé le papier de cession, et c'était fait. La voiture est partie. Comme si elle n'avait jamais existé.
+J'ai vendu la voiture de Charlotte. La Volvo noire, impeccable, qui avait traversé ma vie comme un fantôme sur quatre roues. L'acheteur n'a pas posé de questions. Il m'a tendu l'argent en billets, j'ai signé le papier de cession, et c'était fait. La voiture est partie. Comme si elle n'avait jamais existé.
 
 J'ai donné les vêtements aux associations — les robes, les chaussures, les manteaux. Tout ce qui sentait elle. Ce parfum qu'elle portait, que je n'ai jamais identifié — quelque chose de floral et de âcre à la fois. Les sacs sont partis dans le coffre d'une camionnette, et l'odeur a mis deux jours à quitter la maison.
 
@@ -3343,7 +3355,7 @@ Elle ne pourra pas le voir grandir. Mais elle saura qu'il grandit.
 
 Et moi ?
 
-J'ai regardé mon reflet dans la vitre du métro ce matin. Un visage de femme. Des cernes. Des cheveux attachés. Un manteau trop grand. Je ne sais toujours pas très bien qui je suis. Pas Clémence, la sœur jumelle. Pas Charlotte, la remplaçante. Pas la mère de Malo. Pas l'amante de Gilles. Pas la fille de Denise.
+J'ai regardé mon reflet dans la vitre du métro ce matin. Un visage de femme. Des cernes. Des cheveux attachés. Un manteau trop grand. Je ne sais toujours pas très bien qui je suis. Pas Clémence, la sœur jumelle. Pas Charlotte, la remplaçante. Pas la mère de Malo. Pas la fille de Denise.
 
 Mais pour la première fois, je ne cherche plus à ressembler à Charlotte. Et je ne cherche plus à fuir ce que je suis.
 
