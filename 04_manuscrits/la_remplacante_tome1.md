@@ -3039,17 +3039,29 @@ Le mot est tombé comme une pierre. Sans excuse. Sans décor. Charlotte ne se d�
 
 — Qu'est-ce qui va se passer maintenant ? ai-je demandé.
 
-— L'inspecteur Le Goff va m'inculper. Et Ariane aussi. Paul, c'est elle qui l'a tué. Pas moi.
+Charlotte a regardé le plafond. Les néons de la chambre d'hôpital baignaient tout dans une lumière blafarde, qui effaçait les traits et rendait les visages méconnaissables.
+
+— L'inspecteur Le Goff va m'inculper. Usurpation d'identité, séquestration de mineur, complicité dans la mort de Paul. Et Ariane aussi. Paul, c'est elle qui l'a tué. Pas moi.
 
 — Mais c'est toi qui lui as donné l'idée.
 
-— Oui.
+— Oui. Je lui ai dit ce qu'il fallait faire. Je lui ai dit quand. Je lui ai dit comment. Mais c'est elle qui a poussé.
 
 — Et Ariane ?
 
-— Elle était folle amoureuse de moi. Ou de l'idée que je lui donnais. Elle aurait fait n'importe quoi.
+— Elle était folle amoureuse de moi. Ou de l'idée que je lui donnais. L'idée d'être quelqu'un d'autre. Elle était personne, avant. Une femme sans visage, sans nom, sans passé. Je lui ai donné un but. Remplacer. Devenir. Exister.
 
-J'ai regardé Charlotte.
+— Tu as manipulé une femme fragile.
+
+— Oui.
+
+— Comme tu m'as manipulée, moi.
+
+— Oui.
+
+Le mot est tombé. Lourd. Définitif. Charlotte ne niait plus. Ne se justifiait plus. Elle énonçait les faits, un par un, comme si elle les lisait dans un dossier.
+
+J'ai regardé Charlotte. Cette femme qui avait mon visage. Cette femme qui, pendant trois ans, avait porté mon nom, vécu dans ma peau, touché un enfant avec mes mains.
 
 — Tu ne mérites pas qu'elle t'ait sauvée.
 
@@ -3057,7 +3069,7 @@ J'ai regardé Charlotte.
 
 — Mais tu ne mérites pas non plus que je t'abandonne.
 
-Elle a ouvert les yeux.
+Elle a ouvert les yeux. Des yeux surpris. Des yeux qui ne s'attendaient pas à ça.
 
 — Qu'est-ce que tu dis ?
 
@@ -3071,9 +3083,9 @@ Elle a ouvert les yeux.
 
 — Surtout si c'est laid.
 
-Elle a tendu la main. Je l'ai prise.
+Elle a tendu la main. La main blessée, celle qui portait le plâtre et les traces de perfusion. Je l'ai prise.
 
-Ses doigts étaient froids. Mais pour la première fois depuis des années, le contact n'était pas une menace.
+Ses doigts étaient froids. Mais pour la première fois depuis des années, le contact n'était pas une menace. C'était un contact de quelqu'un qui n'avait plus rien à voler. Plus rien à cacher. Juste une main dans une main. Le geste le plus simple du monde. Le geste que nous n'avions jamais su faire.
 
 ---
 
@@ -3081,15 +3093,15 @@ Ses doigts étaient froids. Mais pour la première fois depuis des années, le c
 
 Le départ a eu lieu trois jours plus tard.
 
-J'ai vendu la voiture de Charlotte. J'ai donné les vêtements aux associations. J'ai emporté peu de choses.
+J'ai vendu la voiture de Charlotte. J'ai donné les vêtements aux associations — les robes, les chaussures, les manteaux. Tout ce qui sentait elle. J'ai emporté peu de choses.
 
-Le carnet. La photo de nous deux enfants. La lettre bleue.
+Le carnet. La photo de nous deux enfants, en maillot de bain, sur la plage de Kerfany, avant que tout ne se gâte. La lettre bleue — celle qu'elle m'avait écrite et que je n'avais jamais reçue.
 
 Et Malo.
 
-Nous sommes montés dans le train direction Nantes. Pas trop loin, pas trop près.
+Nous sommes montés dans le train direction Nantes. Pas trop loin, pas trop près. Une ville moyenne, ni trop grande pour se perdre, ni trop petite pour être trouvée.
 
-Inès est venue nous dire au revoir sur le quai.
+Inès est venue nous dire au revoir sur le quai. Elle portait son manteau gris, celui qu'elle mettait toujours quand il faisait froid. Ses yeux étaient rouges mais elle ne pleurait pas. Inès ne pleurait jamais devant les gens. Elle pleurait après, seule, dans sa cuisine.
 
 — Tu vas t'en sortir, a-t-elle dit.
 
@@ -3099,13 +3111,13 @@ Inès est venue nous dire au revoir sur le quai.
 
 — Je sais.
 
-Elle a embrassé Malo sur le front.
+Elle a embrassé Malo sur le front. Malo a laissé faire. Il ne reculait plus devant les gestes. C'était nouveau. C'était un progrès.
 
 — Sois sage. Et parle. La vie est trop courte pour rester silencieux.
 
-Malo a hoché la tête.
+Malo a hoché la tête. Il a pris ma main. Sa main était petite, chaude, ferme. La main d'un enfant qui a décidé de faire confiance.
 
-Le train s'est mis en marche. J'ai regardé Kerfany s'éloigner par la fenêtre.
+Le train s'est mis en marche. Un sillage de ferraille et de vapeur. J'ai regardé Kerfany s'éloigner par la fenêtre. Les toits d'ardoise, le clocher, les ruelles étroites, la mer au loin.
 
 La mer brillait un dernier coup, puis a disparu.
 
@@ -3115,9 +3127,13 @@ La mer brillait un dernier coup, puis a disparu.
 
 Nantes, un mois plus tard.
 
-Nous avons trouvé un petit appartement près d'une bibliothèque. J'ai repris un travail à mi-temps. Malo est entré dans une nouvelle école.
+Nous avons trouvé un petit appartement près d'une bibliothèque. Au troisième étage, sans ascenseur, avec une fenêtre qui donne sur une rue pavée. Les murs sont fins. On entend les voisins. Mais c'est chez nous.
 
-Il parle davantage. Pas beaucoup. Mais davantage.
+J'ai repris un travail à mi-temps. Aide-bibliothécaire. Les mêmes livres, les mêmes étagères, la même odeur de papier. Comme avant. Comme si rien ne s'était passé. Sauf que tout s'était passé.
+
+Malo est entré dans une nouvelle école. L'institutrice m'a dit qu'il était silencieux mais qu'il observait tout. Qu'il dessinait beaucoup. Des maisons, des bateaux, des baleines. Toujours la mer, dans ses dessins. La mer qu'il avait laissée derrière lui.
+
+Il parle davantage. Pas beaucoup. Mais davantage. Des mots sortent, parfois, quand il ne s'y attend pas. Des phrases complètes. Des questions. Le soir, avant de dormir, il me demande des choses. Des choses d'enfant et des choses de vieillard.
 
 Hier, il m'a demandé : « Est-ce que maman est une méchante ? »
 
@@ -3127,21 +3143,26 @@ Hier, il m'a demandé : « Est-ce que maman est une méchante ? »
 
 — Moi aussi. Mais on guérit.
 
-Il a semblé satisfait de la réponse.
+Il a semblé satisfait de la réponse. Il a hoché la tête, a fermé les yeux, et s'est endormi en moins de cinq minutes. Comme si ma réponse avait fermé une porte qu'il gardait ouverte depuis des mois.
 
-Charlotte est transférée dans un centre psychiatrique judiciaire la semaine prochaine. Je l'irai voir. Je lui raconterai Malo. Je lui dirai qu'il dessine. Qu'il aime les livres sur les baleines. Qu'il commence à rire.
+Charlotte est transférée dans un centre psychiatrique judiciaire la semaine prochaine. Je l'irai voir. Je lui raconterai Malo. Je lui dirai qu'il dessine. Qu'il aime les livres sur les baleines. Qu'il commence à rire — un rire timide, qui ne dure pas, mais qui vient.
 
 Elle ne pourra pas le voir grandir. Mais elle saura qu'il grandit.
 
 Et moi ?
 
-J'ai regardé mon reflet dans la vitre du métro ce matin. Je ne sais toujours pas très bien qui je suis.
+J'ai regardé mon reflet dans la vitre du métro ce matin. Un visage de femme. Des cernes. Des cheveux attachés. Un manteau trop grand. Je ne sais toujours pas très bien qui je suis. Pas Clémence, la sœur jumelle. Pas Charlotte, la remplaçante. Pas la mère de Malo. Pas l'amante de Gilles. Pas la fille de Denise.
 
-Mais pour la première fois, je ne cherche plus à ressembler à Charlotte.
+Mais pour la première fois, je ne cherche plus à ressembler à Charlotte. Et je ne cherche plus à fuir ce que je suis.
 
 Je ressemble à quelqu'un qui a survécu.
 
 C'est déjà ça.
 
-FIN DU TOME 1
+**FIN DU TOME 1**
+
+---
+
+*La Remplaçante — Tome 2 : Les Chaînons*
+*À paraître*
 
