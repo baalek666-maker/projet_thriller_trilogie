@@ -2689,9 +2689,9 @@ Elle a souri, le souffle court. Allongée sur le carrelage, les cheveux en éven
 
 ### Chapitre 39
 
-J'ai appelé les secours.
+J'ai appelé les secours. Mes doigts tremblaient sur le clavier du téléphone. J'ai dicté l'adresse trois fois parce que je n'arrivais pas à articuler. L'opératrice m'a dit de respirer. Je n'arrivais pas non plus.
 
-Puis j'ai retenu la pression sur la plaie de Charlotte. Le sang coulait entre mes doigts. Elle était pâle. Très pâle.
+Puis j'ai retenu la pression sur la plaie de Charlotte. Le sang coulait entre mes doigts — chaud, épais, pulsé. Chaque battement de son cœur en faisait jaillir un peu plus. Elle était pâle. Très pâle. Ses lèvres avaient la couleur de la cire.
 
 — Tu vas t'en sortir, ai-je dit.
 
@@ -2703,17 +2703,25 @@ Puis j'ai retenu la pression sur la plaie de Charlotte. Le sang coulait entre me
 
 — Chut.
 
-Malo était assis dans un coin, les genoux contre la poitrine. Il ne pleurait pas. Il regardait.
+Ce « chut » était la chose la plus difficile que j'aie jamais dite. Parce que je le pensais. Pas par charité. Pas par courage. Mais parce qu'elle était ma sœur et que je n'avais pas le droit de la laisser mourir, même si elle m'avait volé ma vie. Même si elle avait tout préparé — la maison, le carnet, les Doubles, Ariane, Malo. Même si j'étais là, les mains rouges de son sang, uniquement à cause d'elle.
+
+La violence de la pensée m'a tenaillée. Je détestais cette femme. Et je la soignais.
+
+Malo était assis dans un coin de la pièce, les genoux contre la poitrine, les bras autour des jambes. Il ne pleurait pas. Il regardait. Ses yeux allaient de Charlotte à Ariane, d'Ariane à moi, de moi au sang sur le carrelage. Il enregistrait. Comme une caméra. Sans comprendre, mais sans rien oublier.
 
 — Maman va s'en sortir, ai-je dit.
 
-Je ne savais pas si c'était vrai.
+Je ne savais pas si c'était vrai. Je ne savais même pas si Charlotte était sa maman — ou si Ariane l'était — ou si aucune des deux ne l'était vraiment. Malo avait été une pièce dans un jeu. Un objet qu'on déplace. Un pion.
 
-Les pompiers sont arrivés dix minutes plus tard. Ils ont emmené Charlotte. La police a emmené Ariane.
+Les pompiers sont arrivés dix minutes plus tard. Dix minutes qui ont duré un siècle. Le bruit des sirènes a déchiré le silence de la côte. Des torches ont balayé les murs. Des voix ont donné des ordres.
 
-Moi, je suis restée avec Malo sur le pas de la porte, regardant les gyrophares déchirer la nuit.
+Ils ont emmené Charlotte sur un brancard. Un masque sur le visage. Le bleu de l'uniforme des secouristes contrastait avec le blanc de sa peau.
 
-Inès est arrivée peu après.
+La police a emmené Ariane. Menottée. Elle n'a pas résisté. Elle souriait encore. Ce sourire que je ne comprendrais jamais — pas un sourire de triomphe, ni de défaite. Le sourire de quelqu'un qui a joué une partie et qui, même en perdant, trouve le résultat intéressant.
+
+Moi, je suis restée avec Malo sur le pas de la porte, regardant les gyrophares déchirer la nuit. Rouge. Bleu. Rouge. Bleu. Les couleurs tournaient sur les murs de la maison grise, sur l'herbe morte, sur le visage de Malo.
+
+Inès est arrivée peu après. Elle a garé sa voiture sur le bas-côté. Elle a couru vers nous. Elle n'avait plus l'air coupable. Elle avait l'air terrifié.
 
 — Tu l'as trouvé, a-t-elle dit.
 
@@ -2734,15 +2742,17 @@ Elle a hoché la tête.
 
 Charlotte a survécu.
 
-L'opération a duré six heures. La balle avait traversé l'épaule et perforé un poumon. Les médecins disaient que c'était limite.
+L'opération a duré six heures. La balle avait traversé l'épaule gauche, perforé le poumon et s'était logée contre une côte. Les chirurgiens l'ont extraite. Ils ont recousu. Ils ont dit que c'était limite — cinq millimètres de plus et l'artère aurait été sectionnée.
 
-Je suis restée à l'hôpital jusqu'à l'aube.
+Je suis restée à l'hôpital jusqu'à l'aube. Assise sur une chaise en plastique dans le couloir. Les néons grésillaient. L'odeur de désinfectant imprégnait tout — mes cheveux, mes vêtements, ma peau. Le sang de Charlotte s'était séché sous mes ongles. Je n'avais pas réussi à le laver.
 
-Inès avait emmené Malo. Elle m'a envoyé un message : *« Il dort. On est chez moi. »*
+Inès avait emmené Malo. Elle m'a envoyé un message : *« Il dort. On est chez moi. Ne t'inquiète pas. »*
 
-J'ai regardé par la fenêtre du couloir. Le ciel devenait rose au-dessus de la baie.
+Ne pas s'inquiéter. Comme si c'était possible.
 
-Une infirmière est passée.
+J'ai regardé par la fenêtre du couloir. Le ciel devenait rose au-dessus de la baie. Les nuages s'étaient dégagés. Une lumière douce, presque tendre, se posait sur la ville. Le genre de lever de soleil qui donne envie de croire que tout va bien. Mais tout n'allait pas bien. Rien n'allait bien. Une femme avait été tirée. Une autre était en garde à vue. Un enfant dormait chez une étrangère. Et moi, je restais là, les mains sales, attendant des nouvelles d'une sœur qui m'avait volé mon visage.
+
+Une infirmière est passée. Je l'ai vue s'arrêter. Elle m'a regardée, puis a vérifié son dossier.
 
 — Vous êtes la sœur ?
 
@@ -2754,13 +2764,19 @@ Une infirmière est passée.
 
 — Elle a dit : « Dis-lui que je suis désolée. »
 
-Je n'ai pas su quoi répondre.
+Je n'ai pas su quoi répondre. Les mots s'étaient accumulés dans ma gorge — trop de mots, trop de questions, trop de colère, trop de tristesse. Rien n'est sorti.
+
+L'infirmière m'a tapé sur l'épaule et est partie.
 
 Désolée.
 
-Le mot me paraissait ridicule. Trop petit pour tout ce qu'elle avait fait.
+Le mot me paraissait ridicule. Trop petit pour tout ce qu'elle avait fait. Trop simple pour trois ans de manipulation, une fausse mort, une remplaçante, un enfant volé, un mari assassiné.
 
-Mais c'était peut-être le seul mot qu'elle avait trouvé.
+Mais c'était peut-être le seul mot qu'elle avait trouvé. Peut-être que, dans les secondes où elle avait failli mourir, entre le poumon perforé et le masque d'oxygène, tout ce qu'elle avait vu se résumait à ça : une sœur qu'elle avait fait souffrir et un mot qu'elle n'avait jamais su dire.
+
+Désolée.
+
+Je l'ai regardé, ce mot, comme on regarde un caillou dans une rivière. Trop petit. Mais net.
 
 ---
 
@@ -2768,7 +2784,9 @@ Mais c'était peut-être le seul mot qu'elle avait trouvé.
 
 La police m'a interrogée pendant deux heures.
 
-Un inspecteur sec, nommé Le Goff, prenait des notes sans jamais me regarder.
+Une salle sans fenêtre, au commissariat de Quimper. Murs beige. Table en formica. Une tasse de café froid devant moi, que je n'ai pas touchée.
+
+Un inspecteur sec, nommé Le Goff, prenait des notes sans jamais me regarder. Il écrivait avec un stylo à pointe fine, en lettres minuscules, alignées comme des fourmis. Son visage était impassible. Pas d'accusation ouverte, pas de sympathie. Une neutralité professionnelle qui était pire que les deux.
 
 — Vous êtes allée seule à la maison.
 
@@ -2782,11 +2800,33 @@ Un inspecteur sec, nommé Le Goff, prenait des notes sans jamais me regarder.
 
 — J'avais peur pour lui.
 
+— Peur de quoi ?
+
+— Que la femme qui l'avait pris ne lui fasse du mal si elle voyait des policiers.
+
+Le Goff a noté. Son stylo n'a pas hésité.
+
 — Vous avez trouvé une femme blessée par balle. Et une autre armée d'un pistolet.
 
 — Oui.
 
-L'inspecteur a levé les yeux.
+— Le pistolet, c'est vous qui l'avez récupéré ?
+
+— Oui. Après l'avait lâché.
+
+— Après l'avoir percutée ?
+
+— Oui.
+
+— Vous saviez vous servir d'une arme ?
+
+— Non. Je n'ai jamais tiré.
+
+— Mais vous l'avez braquée dessus.
+
+— Oui.
+
+L'inspecteur a levé les yeux. Pour la première fois en deux heures, il m'a regardée. Ses yeux étaient gris, calmes, sans hostilité mais sans bienveillance non plus.
 
 — Vous savez que votre sœur est en état d'arrestation ? Même à l'hôpital.
 
@@ -2796,9 +2836,9 @@ L'inspecteur a levé les yeux.
 
 — Elle est folle.
 
-— Peut-être. Mais elle a des papiers soigneusement préparés. Des fausses identités. Des documents qui la désignent comme vous.
+— Peut-être. Mais elle a des papiers soigneusement préparés. Des fausses identités. Des documents qui la désignent comme vous. Un passeport, une carte vitale, un permis de conduire. Tout est en règle. Tout est faux.
 
-J'ai serré les poings.
+J'ai serré les poings sous la table.
 
 — Elle voulait prendre ma place.
 
@@ -2812,9 +2852,15 @@ J'ai serré les poings.
 
 — C'est votre version.
 
-J'ai regardé l'inspecteur droit dans les yeux.
+J'ai regardé l'inspecteur droit dans les yeux. Mon cœur cognait. Mes mains tremblaient encore — les mêmes mains qui, quelques heures plus tôt, tenaient un pistolet. Ou qui pressaient une plaie. Ou qui touchaient les cheveux d'un enfant qui ne m'appartenait pas.
 
 — Ma version, c'est que j'ai failli mourir. Et que j'ai sauvé un enfant. C'est suffisant ?
+
+Le Goff a noté. Son stylo a continué à écrire. Il n'a pas répondu.
+
+Le silence a duré. Long. épais. Puis il a fermé son carnet.
+
+— Vous êtes libre d'y aller. Ne quittez pas la région.
 
 ---
 
