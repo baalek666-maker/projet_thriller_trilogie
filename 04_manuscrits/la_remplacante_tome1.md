@@ -797,11 +797,11 @@ Ma main, toujours vide, portait les empreintes de personnes qui n'étaient pas l
 
 La première nuit dans la maison de Charlotte, je n'ai pas dormi.
 
-Ce n'était pas le bruit. Il n'y en avait presque pas. Juste le vent contre les vitres, le cliquetis occasionnel du chauffage, le tic-tac d'une horloge que je n'arrivais pas à localiser.
+Ce n'était pas le bruit. Il n'y en avait presque pas. Juste le vent contre les vitres, le cliquetis occasionnel du chauffage, le tic-tac d'une horloge que je n'arrivais pas à localiser. Un tic-tac régulier, presque trop régulier, comme si quelqu'un l'avait calibré pour couvrir d'autres bruits.
 
 C'était le silence.
 
-Le silence d'une maison qui n'est pas la mienne. Le silence d'une vie qui ne m'appartient pas. Le silence de Charlotte, partout.
+Le silence d'une maison qui n'est pas la mienne. Le silence d'une vie qui ne m'appartient pas. Le silence de Charlotte, partout. Dans l'odeur du savon liquide près de l'évier. Dans la pile de magazines parfaitement alignés sur la table basse. Dans l'absence de poussière sur le rebord des étagères.
 
 J'ai arpenté les pièces une à une, sans allumer. La lune entrait par les grandes baies et dessinait des rectangles blancs sur le sol. Je reconnaissais les meubles sans les avoir vus le jour : le canapé bas, la table basse en marbre, la bibliothèque avec ses livres rangés par couleur.
 
@@ -809,25 +809,29 @@ Charlotte rangeait ses livres par couleur.
 
 Moi, je les rangeais par cote.
 
-Dans la cuisine, j'ai ouvert le réfrigérateur. Il était plein. Inès avait fait les courses, ou peut-être quelqu'un d'autre. Yaourts bio, légumes sans pesticide, jus de betterave pressé à froid. Rien que je savais manger.
+C'était peut-être le détail le plus stupide, le plus révélateur. Charlotte voyait le monde en surface. Moi, je voulais savoir ce qu'il y avait dedans.
+
+Dans la cuisine, j'ai ouvert le réfrigérateur. Il était plein. Inès avait fait les courses, ou peut-être quelqu'un d'autre. Yaourts bio, légumes sans pesticide, jus de betterave pressé à froid. Rien que je savais manger. Rien qui sentait le réconfort. Tout avait l'air de nourrir un corps qu'on voulait optimiser.
 
 J'ai pris une pomme.
 
-Elle était parfaite. Rouge uniforme, sans une tache. Quand je l'ai croquée, elle était sucrée à l'excès.
+Elle était parfaite. Rouge uniforme, sans une tache. Quand je l'ai croquée, elle était sucrée à l'excès. Je l'ai mangée entière, le cœur, les pépins. J'avais faim d'autre chose, mais je ne savais pas quoi.
 
 Je suis montée à l'étage. Malo dormait dans la chambre à côté de la mienne. La porte était entrouverte. J'ai jeté un œil à l'intérieur.
 
-Il dormait sur le côté, recroquevillé, les genoux contre la poitrine. Il tenait une couverture entre ses doigts, comme un doudou.
+Il dormait sur le côté, recroquevillé, les genoux contre la poitrine. Il tenait une couverture entre ses doigts, comme un doudou. Sa respiration était courte, saccadée, celle d'un enfant qui fait semblant de dormir ou qui rêve trop fort.
 
 J'ai retenu mon souffle.
 
-Il ressemblait tellement à Charlotte. Pas seulement les cheveux. La façon dont il dormait. Le pli de ses paupières. L'arrondi de son menton.
+Il ressemblait tellement à Charlotte. Pas seulement les cheveux. La façon dont il dormait. Le pli de ses paupières. L'arrondi de son menton. Le mouvement de sa mâchoire, comme s'il serrait les dents contre quelque chose qu'il refusait de dire.
 
 J'ai fermé la porte très doucement.
 
-Dans le couloir, il y avait des cadres. Des photos de Charlotte et Paul. De Charlotte et Malo. De Charlotte seule, souriante, triomphante.
+Dans le couloir, il y avait des cadres. Des photos de Charlotte et Paul. De Charlotte et Malo. De Charlotte seule, souriante, triomphante. Charlotte à la plage, Charlotte au volant, Charlotte dans un restaurant avec un verre à la main.
 
 Aucune de moi.
+
+Pas une seule photo de nous deux. Pas de photo d'enfance. Pas de photo de mariage. Rien. Comme si notre histoire n'avait pas eu lieu dans cette maison. Comme si je n'avais jamais existé.
 
 Je suis entrée dans ma chambre et j'ai fermé la porte à clé.
 
