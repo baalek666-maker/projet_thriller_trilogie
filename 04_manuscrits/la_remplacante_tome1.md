@@ -1977,9 +1977,11 @@ Denise m'a appelée le samedi matin.
 
 — Parce qu'il y a des choses que tu dois savoir sur ta sœur. Et que personne d'autre ne te dira.
 
-J'ai confié Malo à Inès pour la journée. Elle a accepté sans poser de questions.
+Sa voix était plus basse que d'habitude. Presque humaine.
 
-La maison de Denise était la même qu'à mon arrivée. Propre, froide, sans âme. Une maison de retraite avant l'heure.
+J'ai confié Malo à Inès pour la journée. Elle a accepté sans poser de questions. Juste un : *« Tu es sûre ? »* J'ai dit oui sans savoir de quoi.
+
+La maison de Denise était la même qu'à mon arrivée. Propre, froide, sans âme. Une maison de retraite avant l'heure. Les stores étaient baissés à moitié. La lumière tombait en travers sur la table basse.
 
 Elle m'a fait entrer dans le salon et m'a servi un café que je ne voulais pas.
 
@@ -1995,7 +1997,7 @@ Ce n'était pas une question.
 
 — Vers la vérité.
 
-Denise a posé sa tasse.
+Denise a posé sa tasse. Elle n'avait pas bu non plus.
 
 — Charlotte et toi, vous n'avez pas toujours été proches. Tu le sais. Mais ce que tu ignores, c'est pourquoi.
 
@@ -2015,7 +2017,6 @@ J'ai senti des larmes me brûler les yeux.
 
 — Elle voulait te ressembler. Te remplacer. T'effacer. Depuis l'enfance.
 
----
 
 ### Chapitre 29
 
