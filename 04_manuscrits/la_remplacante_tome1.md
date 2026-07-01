@@ -1633,7 +1633,7 @@ Elle voulait que je devienne elle.
 
 J'ai appelé Lucie à midi.
 
-Lucie était ma collègue de la bibliothèque de Rennes. Elle était un peu folle, beaucoup trop bavarde, et elle connaissait tout le monde. Si quelque chose d'étrange se tramait dans la région, Lucie le savait.
+Lucie était ma collègue de la bibliothèque de Rennes. Elle était un peu folle, beaucoup trop bavarde, et elle connaissait tout le monde. Si quelque chose d'étrange se tramait dans la région, Lucie le savait. Elle avait des cousins partout, des ex-petits amis dans la police, une sœur voyante à Concarneau. Lucie était un relais.
 
 — Clémence ? a-t-elle dit en décrochant. Tu es vivante ? On dirait que tu as disparu.
 
@@ -1641,11 +1641,13 @@ Lucie était ma collègue de la bibliothèque de Rennes. Elle était un peu foll
 
 — Ah oui. J'ai entendu parler pour ta sœur. Mes condoléances.
 
+Sa voix avait changé. Elle était devenue prudente.
+
 J'ai hésité.
 
 — Lucie, tu connais un truc qui s'appelle les Doubles ?
 
-Le silence a duré trois secondes.
+Le silence a duré trois secondes. Longues. Pendant lesquelles j'ai entendu le réfrigérateur de Lucie ronronner dans son appartement.
 
 — Pourquoi tu me demandes ça ?
 
@@ -1661,15 +1663,15 @@ J'ai senti mon pouls s'accélérer.
 
 — Quand la vie devient trop lourde ?
 
-— Quand ils veulent disparaître. Mourir socialement sans mourir physiquement. Laisser quelqu'un d'autre porter leurs dettes, leurs échecs, leurs erreurs.
+— Quand ils veulent disparaître. Mourir socialement sans mourir physiquement. Laisser quelqu'un d'autre porter leurs dettes, leurs échecs, leurs erreurs. Ou leurs enfants.
 
 — Et la personne qu'on laisse derrière ?
 
 — Elle continue la vie. Elle devient vous.
 
-J'ai serré le téléphone.
+J'ai serré le téléphone. Le plastique a craqué sous mes doigts.
 
-— QuiFaustine ?
+— Qui est Faustine ?
 
 — Une initiatrice. Elle repère les gens. Les doubleurs, comme elle dit. Ceux qui ont le bon physique, le bon profil psychologique. Elle les forme.
 
@@ -1683,7 +1685,7 @@ J'ai serré le téléphone.
 
 — Parce que je crois que Charlotte n'est pas morte. Et que quelqu'un veut que je la remplace pour de bon.
 
-Lucie a respiré fort.
+Lucie a respiré fort. J'ai entendu le bruit d'une allumette, puis une inhalation. Elle fumait quand elle était nerveuse.
 
 — Tu es sûre que tu veux savoir ? Parce que si elle t'a choisie, c'est que tu remplis les conditions. Tu es proche d'elle. Tu lui ressembles. Et tu es seule.
 
@@ -1695,7 +1697,6 @@ Lucie a respiré fort.
 
 — Méfie-toi des gens qui disent vouloir t'aider à trouver la vérité. Ils veulent souvent t'entraîner dedans.
 
----
 
 ### Chapitre 23
 
