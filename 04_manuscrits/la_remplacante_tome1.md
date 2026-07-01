@@ -1419,19 +1419,19 @@ J'avais mis ce matin-là le pull bleu marine de Charlotte. Celui avec l'étiquet
 
 Le voisin m'a interceptée le samedi.
 
-Je sortais les poubelles. Un geste banal, presque réconfortant. La maison de Charlotte sentait toujours un peu trop bon. J'avais besoin d'air, même l'air chargé de sel de Kerfany.
+Je sortais les poubelles. Un geste banal, presque réconfortant. La maison de Charlotte sentait toujours un peu trop bon. J'avais besoin d'air, même l'air chargé de sel de Kerfany. Même l'odeur des algues mortes et du gasoil des bateaux.
 
 — Madame Vaillant ?
 
 J'ai relevé la tête.
 
-Un homme se tenait de l'autre côté de la haie. Grand, mince, des lunettes rondes, un chien berger à ses côtés.
+Un homme se tenait de l'autre côté de la haie. Grand, mince, des lunettes rondes, un chien berger à ses côtés. Le labrador noir que j'avais déjà aperçu. Il devait avoir au moins douze ans. Ses yeux étaient laiteux.
 
 — Non, ai-je dit. Clémence Barreau. La sœur de Charlotte.
 
 — Ah. Pardon. Vous vous ressemblez tellement.
 
-Il a souri. Un sourire un peu triste.
+Il a souri. Un sourire un peu triste, aux coins abîmés.
 
 — Gilles Lemoine. Votre voisin. Enfin, celui d'à côté.
 
@@ -1441,13 +1441,13 @@ Il a souri. Un sourire un peu triste.
 
 — Vous la connaissiez bien ?
 
-Il a hésité.
+Il a hésité. Le temps de deux battements de cœur.
 
 — Assez. Nous parlions de temps en temps. De la mer. Des tempêtes. Des bateaux. Elle aimait beaucoup les bateaux.
 
 — Oui.
 
-Le chien a reniflé ma main. Je l'ai laissé faire.
+Le chien a reniflé ma main. Je l'ai laissé faire. Son museau était humide, froid.
 
 — Vous êtes venue pour le petit, j'imagine.
 
@@ -1459,9 +1459,9 @@ J'ai regardé Gilles.
 
 — Silencieux ? Charlotte ?
 
-— Oh, elle parlait. Beaucoup même. Mais elle disait rarement ce qu'elle pensait vraiment. Elle cachait toujours quelque chose derrière son sourire.
+— Oh, elle parlait. Beaucoup même. Mais elle disait rarement ce qu'elle pensait vraiment. Elle cachait toujours quelque chose derrière son sourire. Un secret, ou une peur. Parfois les deux.
 
-Il a baissé la voix.
+Il a baissé la voix. Le vent s'est levé entre nous, comme s'il voulait l'aider à ne pas être entendu.
 
 — C'est pour ça que je ne suis pas sûr qu'elle soit morte.
 
@@ -1473,7 +1473,7 @@ J'ai senti mon sang se figer.
 
 — Elle vivait ici. C'est normal.
 
-— Non. Elle était… différente. Comme si elle attendait quelque chose. Ou quelqu'un.
+— Non. Elle était… différente. Comme si elle attendait quelque chose. Ou quelqu'un. Et elle avait un sac avec elle. Un gros sac de voyage. Marine, avec des bandes blanches.
 
 — Vous avez dit ça à la police ?
 
@@ -1483,7 +1483,7 @@ Il a haussé les épaules.
 
 — La science, c'est la science. Mais les gens, parfois, ils changent de peau.
 
-Son regard s'est posé sur moi.
+Son regard s'est posé sur moi. Il était gris, de la couleur de l'eau par mauvais temps.
 
 — Vous savez, quand on a des jumeaux, on ne sait jamais vraiment qui est qui.
 
@@ -1491,14 +1491,12 @@ Son regard s'est posé sur moi.
 
 — Non. Mais presque.
 
-Il a sifflé son chien et s'est éloigné.
+Il a sifflé son chien et s'est éloigné. Le labrador a traîné les pattes derrière lui.
 
 Je suis restée avec la poubelle à la main, le cœur battant.
 
 Presque.
 
-
----
 
 ### Chapitre 20
 
