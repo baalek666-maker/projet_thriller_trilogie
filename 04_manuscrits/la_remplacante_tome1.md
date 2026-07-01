@@ -1575,15 +1575,23 @@ Et je pensais au tiroir du bureau.
 
 Le lendemain matin, j'ai ouvert le tiroir.
 
-Je savais que je ne devais pas. Après un appel anonyme, après une nuit sans sommeil, après un petit garçon qui avait sangloté dans mes bras, je savais que la chose intelligente était de prévenir la police. Ou de partir. De prendre Malo et de partir loin de cette maison.
+Je savais que je ne devais pas. Après un appel anonyme, après une nuit sans sommeil, après un petit garçon qui avait sangloté dans mes bras, je savais que la chose intelligente était de prévenir la police. Ou de partir. De prendre Malo et de partir loin de cette maison, loin de Kerfany, loin de l'odeur de sel et de bois mouillé qui s'infiltrait partout.
 
 Mais je n'ai pas pu m'empêcher.
 
+Mes doigts tremblaient. La maison dormait encore. En bas, le réveil de la cuisine marquait six heures et demie. Dehors, la mer était grise, aplatie sous un ciel sans lumière. Malo respirait dans la chambre d'à côté, un souffle lent, régulier, celui d'un enfant qui a appris à dormir loin des bruits des adultes.
+
 Le tiroir de droite du bureau. Celui que j'avais ouvert la veille sans y prêter attention.
+
+J'ai tiré doucement. Le bois a grogné dans ses gonds.
 
 Dedans, il y avait un carnet. Noir, avec un fermoir en cuivre usé. Il n'était pas poussiéreux. Quelqu'un l'avait tenu récemment. Ou l'avait nettoyé.
 
+Le cuivre était tiède sous mon pouce. Comme si le carnet venait d'être refermé à l'instant. Comme si quelqu'un était sorti de la pièce juste avant que je n'entre.
+
 J'ai soulevé le fermoir. Il a cliqué.
+
+Un petit son net, qui a résonné dans le silence de la pièce. J'ai sursauté. J'ai retenu mon souffle. Rien. Personne. Juste le tic-tac de l'horloge, régulier, indifférent.
 
 La première page portait une date. Il y avait trois ans.
 
@@ -1593,9 +1601,13 @@ J'ai tourné la page.
 
 *« Clémence a déménagé à Rennes. Un appartement dans le quartier Sainte-Anne. Elle a une plante sur le balcon. Elle l'a appelée Marcel. »*
 
+J'ai refermé les yeux. Marcel. Elle savait pour Marcel. Personne ne savait pour Marcel. Pas même Lucie. Marcel, la plante que j'avais achetée un dimanche de pluie parce que l'appartement était trop vide, parce qu'il me fallait quelque chose à arroser, quelque chose qui dépendrait de moi.
+
 Encore une page.
 
 *« Clémence a commencé à travailler à la médiathèque de Rennes. Elle a coupé ses cheveux. C'est mieux. Elle ressemble moins à nous. »*
+
+*« C'est mieux. »* Deux mots qui m'ont traversée comme une lame. Charlotte avait noté que je lui ressemblais moins. Et que c'était une bonne chose.
 
 Le carnet entier était consacré à moi.
 
@@ -1605,13 +1617,15 @@ Des photos. Des adresses. Des horaires. Des observations. Des détails que je n'
 *« Clémence a un collègue, Lucien. Elle ne l'aime pas. »*
 *« Clémence a rencontré un homme, Théo, en novembre. Relation de trois semaines. Elle l'a quitté. »*
 
-J'ai tourné les pages de plus en plus vite. L'écriture restait la même. Régulière. Patient. Celle d'une femme qui avait du temps devant elle.
+Théo. Trois semaines. Je n'avais parlé de Théo à personne. Pas à Lucie. Pas à ma mère. Personne. Et pourtant, Charlotte le savait. Elle savait quand ça avait commencé. Elle savait quand ça avait fini. Elle avait probablement su avant moi que ça finirait.
+
+J'ai tourné les pages de plus en plus vite. Mes doigts laissaient des traces de sueur sur le papier. L'écriture restait la même. Régulière. Patient. Celle d'une femme qui avait du temps devant elle. Celle d'une femme qui savourait.
 
 Puis je suis tombée sur une page différente.
 
 *« Le Plan. »*
 
-Sous le titre, une liste.
+Sous le titre, une liste. L'encre était différente. Plus noire. Plus appuyée. Comme si, en écrivant ces lignes, Charlotte avait pressé le stylo plus fort. Comme si le simple fait de les formuler avait quelque chose de définitif.
 
 *1. Organiser la disparition.*
 *2. Former une remplaçante.*
@@ -1620,13 +1634,19 @@ Sous le titre, une liste.
 *5. Effacer mes traces.*
 *6. Reprendre ma vie sous son nom.*
 
-J'ai lâché le carnet.
+J'ai lâché le carnet. Il est tombé sur le parquet avec un bruit sourd.
 
 Charlotte avait tout organisé. Ma surveillance. Ma venue. La tutelle. Tout.
+
+Chaque étape de ma vie depuis trois ans était là, couchée sur le papier, prévue, orchestrée. Rennes n'était pas un hasard. La médiathèque n'était pas un hasard. La solitude n'était pas un hasard. Charlotte m'avait conduite, pas à pas, vers cette maison. Vers ce bureau. Vers ce tiroir.
 
 Elle ne voulait pas que je m'occupe de Malo.
 
 Elle voulait que je devienne elle.
+
+J'ai regardé mes mains. Elles tremblaient. Mes mains. Mais pas tout à fait. Les ongles étaient coupés court, comme les siens. La peau était sèche, comme la sienne. Je portais son pull. Je sentais son parfum. Je respirais dans sa posture.
+
+Et je me suis demandé, pour la première fois, si je n'étais pas déjà en train de devenir elle.
 
 
 ### Chapitre 22
@@ -1702,13 +1722,34 @@ Lucie a respiré fort. J'ai entendu le bruit d'une allumette, puis une inhalatio
 
 Je suis partie pour Rennes le mardi matin.
 
-J'avais confié Malo à Inès pour la journée. Elle avait insisté pour le prendre.
+J'avais confié Malo à Inès pour la journée. Elle avait insisté pour le prendre. Trop, peut-être. Son sourire était trop large. Sa voix trop douce.
 
 — Tu as besoin de temps pour toi, avait-elle dit. Ne t'inquiète pas. Je connais les rituels.
+— Tu as besoin de temps pour toi, avait-elle dit. Ne t'inquiète pas. Je connais les rituels.
+
+Elle avait dit ça en ramassant les chaussettes de Malo. Un geste banal. Mais la façon dont elle les avait roulées, en boule serrée, identique à celle de Charlotte quand elle rangeait le linge. Je l'avais vue faire. Sur la liste. Inès rangeait les chaussettes comme Charlotte.
 
 Les rituels. Elle avait employé le même mot que Charlotte dans ses listes. J'avais hoché la tête sans rien dire. Je n'avais pas envie de savoir comment elle les connaissait.
 
+Malo m'a tirée par la manche avant que je parte.
+
+— Tu reviens ? a-t-il demandé.
+
+— Ce soir.
+
+— Promis ?
+
+— Promis.
+
+Il a hésité. Puis il a ajouté, très bas :
+
+— Ne va pas là-bas.
+
+Je n'ai pas demandé où. Je n'ai pas voulu savoir comment il savait.
+
 Je conduisais la voiture de Charlotte. Une Volvo noire, impeccable, qui sentait encore son parfum. Le siège était réglé à sa taille. Je devais m'asseoir plus droite pour atteindre le volant. Pendant tout le trajet, j'avais l'impression de conduire dans sa posture.
+
+Le rétroviseur me renvoyait un visage que je ne reconnaissais plus tout à fait.
 
 J'avais mis le pull bleu marine. J'avais pris le carnet. J'avais vérifié dix fois l'adresse de Lucie.
 
@@ -1716,11 +1757,15 @@ Rennes m'a parue étrangère.
 
 Après une semaine à Kerfany, je ne savais plus vivre en ville. Les klaxons, les passages piétons, les regards croisés. Tout me semblait hostile. J'ai cru reconnaître des gens que je connaissais. À chaque coin de rue, une silhouette me renvoyait mon propre visage.
 
+J'ai marché vite. Trop vite. Les passants me bousculaient sans me voir. J'aurais pu disparaître au milieu d'eux et personne ne l'aurait remarqué.
+
 J'ai garé la voiture près de la gare et j'ai marché jusqu'à l'adresse.
 
-Rue du Chapitre, au-dessus d'une librairie ancienne. Une porte verte avec une sonnette en laiton.
+Rue du Chapitre, au-dessus d'une librairie ancienne. Une porte verte avec une sonnette en laiton. Le laiton était oxydé, vert-de-gris dans les creux. Quelqu'un avait gravé un symbole à côté du bouton. Un cercle. Traversé d'un trait.
 
 J'ai sonné.
+
+Le son est resté longtemps dans l'escalier. Puis un bruit de pas. Lents. Qui descendaient.
 
 Une femme a ouvert. Jeune, les cheveux rasés, des tatouages aux mains. Des anneaux aux doigts. Un regard qui ne laissait rien passer.
 
@@ -1729,17 +1774,33 @@ Une femme a ouvert. Jeune, les cheveux rasés, des tatouages aux mains. Des anne
 — Oui.
 
 — Je suis Clémence Barreau. La sœur de Charlotte Vaillant.
+— Je suis Clémence Barreau. La sœur de Charlotte Vaillant.
+
+Son visage n'a pas bougé. Pas un muscle. Comme si elle attendait cette visite depuis longtemps. Comme si elle savait que je viendrais.
 
 Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas. Lentement. Comme si elle vérifiait un croquis.
 
 — Ah, a-t-elle dit enfin. La remplaçante.
+— Ah, a-t-elle dit enfin. La remplaçante.
+
+Le mot est tombé entre nous. Lourd. Définitif. Comme une clé qu'on pose sur une table.
 
 
 ### Chapitre 24
 
 Faustine m'a fait entrer.
 
+L'escalier était étroit. Les marches étaient usées au centre, creusées par des années de pas. L'odeur d'encens descendait vers moi. Elle marchait devant, sans se retourner. Je ne voyais que sa nuque, rasée, et les anneaux qui cliquetaient contre la rampe.
+
 L'appartement était sombre, encombré de livres et de plantes. Une odeur de thé froid et d'encens. Des tapis partout, même dans la cuisine. Les murs étaient couverts de photographies encadrées : des visages que je ne connaissais pas, mais tous semblables. Mêmes pommettes, mêmes angles de mâchoire. Comme un catalogue.
+
+Je me suis arrêtée devant l'une d'elles. Une femme brune, le visage ovale, un sourire crispé. Elle ressemblait à quelqu'un. Je n'arrivais pas à dire à qui. Faustine a suivi mon regard.
+
+— Elle s'appelait Marion. Elle a remplacé sa sœur jumelle il y a six ans. Elle vit encore sous son nom.
+
+— Et la vraie ?
+
+— La vraie qui ?
 
 Elle m'a fait asseoir sur un canapé bas.
 
@@ -1748,10 +1809,15 @@ Elle m'a fait asseoir sur un canapé bas.
 — Non.
 
 — Dommage. J'ai un excellent rooibos.
+— Dommage. J'ai un excellent rooibos.
+
+Elle a versé quand même. Deux tasses. La vapeur a grimpé entre nous comme un écran.
 
 — Je ne suis pas là pour boire.
 
 Elle s'est assise en face de moi, les jambes croisées. Ses tatouages descendaient jusqu'aux poignets. Des mots dans une langue que je n'ai pas reconnue.
+
+J'ai voulu lire les mots. Elle a retourné ses mains. Lentement. Comme si elle avait senti mon regard.
 
 — Charlotte m'a parlé de toi. Avant l'accident.
 
@@ -1759,13 +1825,13 @@ Elle s'est assise en face de moi, les jambes croisées. Ses tatouages descendaie
 
 — Que tu étais parfaite.
 
-J'ai senti ma gorge se serrer.
+J'ai senti ma gorge se serrer. Le mot *parfaite* a résonné dans la pièce. Faustine l'avait dit sans ironie. Sans complaisance. Comme un diagnostic.
 
 — Parfaite pour quoi ?
 
 — Pour la remplacer.
 
-Faustine a posé ses coudes sur ses genoux.
+Faustine a posé ses coudes sur ses genoux. Elle m'a regardée fixement. Ses yeux étaient clairs, presque translucides. Des yeux qui ne cillaient pas.
 
 — Les Doubles, ce n'est pas un culte. C'est un service. Des gens veulent disparaître. Mourir sans mourir. Ils paient pour ça. Beaucoup.
 
@@ -1776,45 +1842,77 @@ Faustine a posé ses coudes sur ses genoux.
 — Charlotte voulait que je sois elle.
 
 — Charlotte voulait que tu sois sa version améliorée. Plus discrète, plus douce, plus facile à contrôler.
+— Charlotte voulait que tu sois sa version améliorée. Plus discrète, plus douce, plus facile à contrôler.
+
+Elle a marqué une pause. Puis elle a ajouté, plus basse :
+
+— Et plus difficile à retrouver.
 
 — Contrôler ?
 
 — Tout le monde veut contrôler son double. C'est le rêve de l'original : être deux endroits à la fois, sans assumer les conséquences.
+
+Elle a souri. Un sourire qui n'atteignait pas ses yeux.
+
+— Tu penses que c'est rare ? Non. La moitié des gens qui viennent me voir veulent exactement ça. Un double. Une ombre. Quelqu'un pour porter le poids à leur place.
 
 J'ai sorti le carnet. Il était lourd dans ma main.
 
 — Elle m'a surveillée pendant des années.
 
 — C'est la première étape. Observer. Comprendre les gestes, les intonations, les peurs. Pour pouvoir les imiter.
+— C'est la première étape. Observer. Comprendre les gestes, les intonations, les peurs. Pour pouvoir les imiter.
+
+— Les peurs ?
+
+— Surtout les peurs. C'est ce qui trahit. On peut apprendre à imiter un rire, une démarche, une façon de tenir une tasse. Mais la peur, elle, elle vient de plus profond. Charlotte savait ça. Elle a noté chaque chose qui t'effraie. Le noir. Les hauteurs. Le bruit d'une porte qui claque. Le silence dans une maison vide.
+
+J'ai reculé sur le canapé. Elle savait. Elle savait tout.
 
 — Et si je refuse ?
 
-Faustine a souri.
+Faustine a souri. Le même sourire. Toujours sans les yeux.
 
 — Tu as déjà commencé. Tu portes ses vêtements. Tu dors dans sa maison. Tu élèves son fils.
 
 — Parce qu'on m'y a forcée.
 
 — Personne ne force qui que ce soit à devenir un double. On vous pousse. Vous marchez.
+— Personne ne force qui que ce soit à devenir un double. On vous pousse. Vous marchez.
+
+Elle a posé sa tasse. Le fond a cliqué contre la soucoupe. Un son minuscule, presque intime.
 
 — Je ne marcherai pas.
 
 — C'est ce que disent toutes les remplaçantes. Au début.
+— C'est ce que disent toutes les remplaçantes. Au début.
+
+Elle m'a regardée. Longtemps. Comme si elle attendait que je comprenne moi-même quelque chose que je refusais encore de voir.
 
 
 ### Chapitre 25
 
 Quand je suis rentrée, j'ai cherché la garde-robe.
 
+Le trajet de retour avait été long. La Volvo roulait trop vite. Mes mains serraient le volant. Le carnet de Charlotte était sur le siège passager, fermé. Je n'arrivais pas à le regarder. Je n'arrivais pas à ne pas le regarder.
+
 Faustine m'avait donné un indice.
+
+Avant que je parte, elle m'avait prise par le poignet. Ses doigts étaient froids. Ses anneaux m'avaient marqué la peau.
 
 *« Regarde derrière le miroir de la chambre principale. Charlotte avait tout préparé. »*
 
 J'ai grimpé l'escalier. Malo dormait déjà, chez Inès. La maison était silencieuse. J'entendais le tic-tac du réveil de la cuisine, trop fort sans lui.
 
+Chaque marche grinçait. Je connaissais déjà lesquelles. La troisième. La cinquième. La septième. Je les évitais sans y penser. Comme Charlotte les évitait, sans doute. Mes pieds connaissaient sa maison.
+
 Dans la chambre principale, j'ai poussé le grand miroir en pied. Il était lourd. Le cadre a grincé contre le parquet.
 
+Mon reflet a bougé dans la glace. Distordu. Étiré. Pendant un instant, ce n'était plus moi. C'était elle.
+
 Derrière, une porte discrète, presque invisible dans le lambris. Pas de poignée. Juste une encoche pour les doigts.
+
+J'ai glissé mes doigts dans l'encoche. Le bois était lisse, poli par l'usage. Quelqu'un l'avait ouverte souvent. Beaucoup plus souvent qu'on ne le ferait pour un simple placard.
 
 J'ai ouvert.
 
@@ -1824,9 +1922,17 @@ Plus petite que la première. Mais plus terrifiante.
 
 Des vêtements suspendus. Des vêtements neufs, sans étiquette. Tous à ma taille. Tous dans le style de Charlotte. Des jeans que je n'aurais jamais choisis. Des chemisiers blancs impeccables. Une veste en cuir noire que je l'avais vue porter une dizaine de fois.
 
+J'ai touché la veste. Le cuir était souple, tiède. Il sentait encore son parfum. Ce mélange de néroli et de tabac froid qu'elle portait toujours. J'ai retiré ma main. Les doigts me démangeaient.
+
 Mais ce n'était pas tout.
 
 Sur les étagères, il y avait des perruques. Des perruques blondes, comme les cheveux de Charlotte. Des lentilles de contact. Des produits de maquillage. Des tutoriels imprimés : *« Comment claircir ses sourcils »*, *« Imitation de grain de beauté au menton »*.
+
+J'ai pris l'une des perruques. Je l'ai retournée. À l'intérieur, une étiquette. Une date. C'était mon tour. Cette perruque avait été faite pour moi. Pour me transformer en elle.
+
+Il y avait aussi un carnet. Plus petit que l'autre. Avec des schémas. Des dessins de mon visage, vus de face, de profil, de trois quarts. Des annotations dans l'écriture de Charlotte. *« Rendre la mâchoire plus anguleuse. Couper les cheveux plus court. Atténuer la cicatrice au sourcil gauche. »*
+
+La cicatrice au sourcil gauche. Je l'avais faite à sept ans, en tombant d'un vélo. Charlotte était là. Elle avait pleuré. Ou peut-être pas.
 
 Et des papiers.
 
@@ -1834,26 +1940,42 @@ Des passeports.
 
 J'ai pris le premier. Photo de Charlotte. Nom : Clémence Barreau.
 
+J'ai frémi. Le passeport était neuf. Tamponné. Valide. Elle avait un passeport à mon nom. Elle pouvait partir. Elle pouvait être moi. N'importe où. N'importe quand.
+
 J'ai pris le deuxième. Photo de moi. Nom : Charlotte Vaillant.
 
+Celui-ci était plus usé. Plus ancien. Les coins étaient arrondis. Il y avait des tampons dedans. Des pays. Des dates. Charlotte voyageait. Depuis des années. Sous mon nom. À ma place.
+
 J'ai lâché les passeports.
+
+Ils sont tombés sur le parquet. L'un sur l'autre. Le bruit a résonné dans la garde-robe vide.
 
 Charlotte avait préparé un échange total. Elle allait devenir moi. Et j'allais devenir elle.
 
 Pour toujours.
+
+Je me suis assise sur le parquet. Le froid remontait dans mes jambes. J'ai refermé les yeux. Dans le noir, j'ai vu le visage de Charlotte. Le mien. Le sien. Ils se confondaient. Ils avaient toujours été confondus.
+
+Et j'ai compris que le piège n'était pas la garde-robe. Ni les passeports. Ni les perruques. Le piège, c'était que je n'avais nulle part ailleurs où aller.
 
 
 ### Chapitre 26
 
 Inès a installé les nouvelles caméras le lendemain.
 
+Elle est arrivée à huit heures. Un carton sous le bras. Elle n'a pas sonné. Elle est entrée avec sa clé. Comme chez elle.
+
 — C'est temporaire, a-t-elle dit. Jusqu'à ce que tu te sentes en sécurité.
+
+J'aurais voulu lui demander qui avait commandé ces caméras. Si c'était elle. Si c'était Charlotte. Si c'était quelqu'un d'autre, quelqu'un que je n'avais pas encore vu.
 
 — Je ne me sens pas en sécurité.
 
 — C'est normal. Ça prend du temps.
 
 Elle a placé une caméra dans le couloir, une dans le salon, une devant la porte d'entrée. Des petites sphères noires, discrètes. J'ai pensé aux yeux de Charlotte, partout, tout le temps.
+
+Elle travaillait en silence. Un tournevis. Des fils. Des vis qu'elle enfonçait dans le plâtre sans mesurer. Elle savait où. Comme si elle connaissait les angles. Comme si elle les avait déjà choisis.
 
 — Tu as déjà regardé les enregistrements ? ai-je demandé.
 
@@ -1863,11 +1985,31 @@ Elle a placé une caméra dans le couloir, une dans le salon, une devant la port
 
 — Surtout si c'est moi qui les ai installés.
 
+Il y avait quelque chose dans sa voix. Une pointe. Presque un avertissement.
+
+Elle a rangé ses outils. Elle a lavé ses mains dans l'évier de la cuisine. J'ai regardé l'eau couler sur ses doigts. Elle les a essuyées une par une, lentement, avec un chiffon propre.
+
 Elle est partie peu après. Elle a laissé une clé USB sur la table. Les mots de passe étaient écrits au dos d'une carte postale du bourg. Son écriture était fine, presque enfantine.
+
+À la porte, elle s'est retournée.
+
+— Clémence.
+
+— Oui ?
+
+— Si tu vois quelque chose sur les enregistrements. Quelque chose que tu ne comprends pas. Ne viens pas me voir d'abord. Réfléchis.
+
+— Réfléchir à quoi ?
+
+Elle n'a pas répondu. Elle a refermé la porte. J'ai entendu ses pas s'éloigner sur le gravier.
 
 Cette nuit-là, j'ai regardé les enregistrements.
 
+Malo dormait. La maison était silencieuse. J'avais branché la clé USB sur l'ordinateur de Charlotte. Son ordinateur. Son mot de passe. Tout était à moi. Tout était à elle.
+
 Rien de spécial pendant des heures. La maison dormait. Les images en noir et blanc défilaient, hypnotiques. J'entendais le vent dans les arbres, amplifié par le micro de la caméra extérieure.
+
+Le silence des images était pire que le bruit. On attendait. On guettait. On regardait une maison endormie comme on regarde un animal mort.
 
 Puis, à 3h23, j'ai vu quelque chose.
 
@@ -1877,15 +2019,21 @@ Une femme. Une femme en robe sombre, debout près de la baie vitrée.
 
 Elle regardait à l'intérieur.
 
+Je n'arrivais pas à respirer. Mon doigt était figé sur la souris. L'image tremblait un peu, à cause du vent dans l'objectif. Mais la femme, elle, ne tremblait pas.
+
 Je me suis penchée sur l'écran.
 
 Elle portait une longue robe noire. Ses cheveux étaient attachés en arrière. Son visage était dans l'ombre.
+
+J'ai augmenté le contraste. J'ai grossi l'image. Les pixels se sont élargis, puis recomposés. Le menton. Les pommettes. La ligne du front. Je connaissais cette géométrie. Je la voyais tous les matins dans la salle de bain.
 
 Elle a levé la main. Elle a posé la paume contre la vitre.
 
 Comme si elle attendait qu'on lui ouvre.
 
 Comme si elle connaissait la maison par cœur.
+
+Comme si elle savait que je regardais.
 
 Puis elle est partie. Sans se presser. Sans se retourner.
 
@@ -1895,11 +2043,17 @@ J'ai regardé l'heure.
 
 J'ai enregistré la vidéo. J'ai regardé encore et encore.
 
+À chaque fois, je cherchais un détail. Un geste qui ne ressemblait pas à Charlotte. Une démarche différente. Un truc qui prouverait que ce n'était pas elle.
+
 À chaque fois, la même chose.
 
 La femme en robe noire.
 
 Et sa main contre la vitre.
+
+Le paume ouverte. Les doigts écartés. Exactement comme Charlotte posait sa main sur la vitre quand elle attendait que quelqu'un vienne lui ouvrir.
+
+Exactement comme moi.
 
 
 ### Chapitre 27
