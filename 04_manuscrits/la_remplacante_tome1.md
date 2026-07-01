@@ -3342,7 +3342,11 @@ La phrase s'est posée dans le couloir. À la place de tout le monde. Comme si m
 
 Elle a baissé la voix, comme si elle révélait un détail technique.
 
-— Les caméras, c'était moi. Charlotte voulait savoir si tu tenais le rôle. Si tu devenais crédible. Et l'appel, celui à trois heures du matin... c'était moi aussi. Je voulais t'entendre craquer. Voir si tu étais déjà assez Charlotte pour avoir peur comme elle.
+— Les caméras, c'était moi. Charlotte voulait savoir si tu tenais le rôle. Si tu devenais crédible.
+
+Elle a fait une pause. Pas pour reprendre son souffle. Pour que je comprenne.
+
+— Et l'appel, celui à trois heures du matin... c'était moi aussi. Je voulais t'entendre craquer. Voir si tu étais déjà assez Charlotte pour avoir peur comme elle.
 
 — Pourquoi ? ai-je soufflé.
 
@@ -4750,6 +4754,8 @@ Je ressemble à quelqu'un qui a survécu.
 
 C'est déjà ça.
 
+La lettre bleue de Charlotte, je l'ai ouverte dans le train. Je l'ai lue une fois. Puis je l'ai refermée. Elle était courte. Trop courte. *« Si tu lis cette lettre, c'est que tu es dedans. Ce n'était pas un hasard. Je t'ai choisie parce que tu es la seule à pouvoir finir ce que j'ai commencé. Prends soin de Malo. Il est le seul qui ne ment jamais. »* C'était tout. Pas d'explication. Pas de pardon. Juste une ordonnance, et une plaie.
+
 Ce matin, en sortant de la bibliothèque, j'ai reçu un appel. Numéro masqué. J'ai décroché. Personne. Un silence. Long. Pas un silence de mauvaise qualité, de mauvaise connexion. Un silence intentionnel. Quelqu'un qui écoutait. Quelqu'un qui ne voulait pas parler. Pas encore.
 
 — Allô ? ai-je dit.
@@ -4776,7 +4782,7 @@ J'ai regardé l'enveloppe. Je ne l'ai pas ouverte à nouveau. Je savais que je l
 
 Parce que je savais, au fond, que ce n'était pas fini. Que ça ne serait jamais fini. Que les mots *c'est déjà ça* n'étaient pas une fin. Juste une pause. Le genre de pause qui précède autre chose.
 
-La lettre bleue de Charlotte, je l'ai ouverte dans le train. Je l'ai lue une fois. Puis je l'ai refermée. Elle était courte. Trop courte. *« Si tu lis cette lettre, c'est que tu es dedans. Ce n'était pas un hasard. Je t'ai choisie parce que tu es la seule à pouvoir finir ce que j'ai commencé. Prends soin de Malo. Il est le seul qui ne ment jamais. »* C'était tout. Pas d'explication. Pas de pardon. Juste une ordonnance, et une plaie. Elle est dans le tiroir de la table, avec le carnet, la photo, et maintenant l'enveloppe blanche. Tout est dans ce tiroir. Tout ce qui pourrait répondre. Tout ce qui pourrait détruire.
+La lettre bleue est dans le tiroir de la table, avec le carnet, la photo, et maintenant l'enveloppe blanche. Tout est dans ce tiroir. Tout ce qui pourrait répondre. Tout ce qui pourrait détruire.
 
 Je tire le tiroir. Je le referme. Je tire. Je referme.
 
