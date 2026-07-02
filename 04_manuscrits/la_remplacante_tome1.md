@@ -3999,6 +3999,20 @@ Sa voix était rauque. Epuisée. Le masque avait craqué entièrement. En dessou
 
 Le doigt sur la détente. Un gramme. Peut-être moins.
 
+Je n'ai pas tiré.
+
+Je ne sais pas quand j'ai relâché la pression. Si c'était quand Malo a bougé derrière moi, ou quand j'ai vu le sang sur la lèvre d'Ariane, ou quand j'ai compris que si j'appuyais, je ne serais plus la remplaçante. Je deviendrais Charlotte. Je deviendrais elle.
+
+Le pistolet est tombé de mes mains. Pas lancé. Tombé. Il a heurté le carrelage avec un bruit sec, ridicule, et il est resté là. Je suis restée à le regarder. L'objet noir sur le sol. La frontière que je n'avais pas franchie.
+
+Puis je me suis retournée vers Charlotte.
+
+Elle était pâle. Le sang sortait de son épaule, régulier, comme un robinet mal fermé. Je me suis mise à genoux à côté d'elle. J'ai enlevé mes mains — mes mains vides, sans arme — et je les ai posées sur la plaie. Le sang a jailli entre mes doigts. Chaud. Épais. Vivant.
+
+— Tu ne vas pas mourir, ai-je dit.
+
+Je ne savais pas si c'était une promesse ou une menace.
+
 
 
 ## Chapitre 39 : Le sang et les sirènes
@@ -4233,6 +4247,8 @@ On voyait le mien.
 
 
 La police m'a interrogée pendant deux heures.
+
+Pendant deux heures, j'ai répété en moi-même la seule chose qui comptait : je n'avais pas tiré. Le pistolet était dans ma main. La détente sous mon doigt. Et j'avais choisi de lâcher. C'était ça, ma version. Pas celle de Charlotte. Pas celle d'Ariane. La mienne. Celle d'une femme qui avait failli devenir ce qu'elle haïssait, et qui s'était arrêtée au bord.
 
 Une salle sans fenêtre, au commissariat de Quimper. Murs beige. Table en formica. Une tasse de café froid devant moi, que je n'ai pas touchée. Le café sentait la poudre. Pas la poudre de la balle. La poudre du mauvais café d'administration. Les deux, dans ma mémoire, finiraient par se confondre.
 
