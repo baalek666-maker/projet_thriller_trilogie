@@ -3208,7 +3208,7 @@ Celle que j'avais vue sur sa table de nuit, le jour de l'enterrement.
 
 Elle était là, dans le faux fond. Charlotte l'y avait cachée elle-même. Ou elle y était revenue.
 
-Pas d'adresse d'expéditeur. Juste un tampon de Rennes, à l'encre violette, presque effacé. Le papier était épais, grainé, comme du papier d'écriture ancien. Les lettres étaient manuscrites, encre noire, écriture soignée et impersonnelle.
+J'ai pris la première enveloppe. Pas d'adresse d'expéditeur. Juste un tampon de Rennes, à l'encre violette, presque effacé. Le papier était épais, grainé, comme du papier d'écriture ancien. Les lettres étaient manuscrites, encre noire, écriture soignée et impersonnelle.
 
 La première, datée de l'année précédente.
 
