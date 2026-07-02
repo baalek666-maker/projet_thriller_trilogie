@@ -2392,6 +2392,10 @@ J'ai serré le téléphone. Le plastique a craqué sous mes doigts. Le son étai
 
 — Elle forme des remplaçants.
 
+— Et ça s'arrête jamais ? ai-je demandé.
+
+— Jamais. Tant qu'il reste un maillon à ajouter. Elles appellent ça les Chaînons, entre elles. Pas un nom officiel. Une façon de dire que chaque remplacée en fabrique une autre.
+
 Il y avait une différence. Je l'ai sentie. Lucie l'avait marquée. Un sosie imite. Un remplaçant remplace. Un sosie joue un rôle. Un remplaçant efface l'original et prend sa place pour de bon. Pour toujours. Sans retour.
 
 — Lucie, il faut que je la trouve.
