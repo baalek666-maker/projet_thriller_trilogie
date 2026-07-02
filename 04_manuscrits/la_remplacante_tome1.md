@@ -181,7 +181,7 @@ Et la terreur de cette pensée m'a paru si absurde, si disproportionnée, que j'
 
 Je suis rentrée à la bibliothèque avec les doigts engourdis et l'estomac noué.
 
-L'après-midi a duré une éternité.
+À seize heures, j'ai fermé. Trois heures de route. Trois heures avant de devenir quelqu'un que je ne connaissais pas.
 
 
 ## Chapitre 3 : L'arrivée
