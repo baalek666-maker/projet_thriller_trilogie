@@ -3763,7 +3763,7 @@ Charlotte s'est appuyée contre le chambranle de la porte. Elle a croisé les br
 
 Elle a marqué une pause. Sa mâchoire s'est crispée. Un tic que je connaissais — le même que le mien, le même que celui que j'avais vu dans le miroir sans comprendre d'où il venait.
 
-— Tu te souviens de l'été de nos dix-huit ans ? Tu lisais sur la plage. Tu n'avais besoin de personne. Moi, je devais appeler quatre amies pour supporter la même plage. Tu étais seule et tu étais complete. Je te détestais pour ça.
+— Tu te souviens de l'été de nos dix-huit ans ? Tu lisais sur la plage. Tu n'avais besoin de personne. Moi, je devais appeler quatre amies pour supporter la même plage. Tu étais seule et tu étais complète. Je te détestais pour ça.
 
 — Je ne le savais pas.
 
