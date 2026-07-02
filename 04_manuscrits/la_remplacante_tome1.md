@@ -1786,7 +1786,9 @@ Malo a fini par sourire une fois. Juste une fois. Un sourire court, timide, qui 
 
 Ça m'a suffi.
 
-J'ai range la liste dans le tiroir. Je ne l'ai pas jetée. Je ne l'ai pas suivie non plus. Je l'ai juste rangée. Parce que Charlotte l'avait écrite. Et que les écrits de Charlotte, même morts, avaient un pouvoir.
+J'ai rangé la liste dans le tiroir. Je ne l'ai pas jetée. Je ne l'ai pas suivie non plus. Je l'ai juste rangée. Parce que Charlotte l'avait écrite. Et que les écrits de Charlotte, même morts, avaient un pouvoir.
+
+Le vendredi, j'ai découvert lequel.
 
 ---
 
