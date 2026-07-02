@@ -3188,6 +3188,14 @@ Le bureau de Charlotte était un meuble massif, en chêne, trop lourd pour la pi
 
 J'ai vidé le contenu. Stylos, carnets, un passeport au nom de Charlotte Vaillant, des factures. Puis j'ai appuyé sur le fond. Il a cédé avec un clic discret. En dessous, un espace étroit. Et trois enveloppes.
 
+À côté des enveloppes, quelque chose brillait.
+
+La bague de Charlotte. Celle qu'elle portait toujours.
+
+Celle que j'avais vue sur sa table de nuit, le jour de l'enterrement.
+
+Elle était là, dans le faux fond. Charlotte l'y avait cachée elle-même. Ou elle y était revenue.
+
 Pas d'adresse d'expéditeur. Juste un tampon de Rennes, à l'encre violette, presque effacé. Le papier était épais, grainé, comme du papier d'écriture ancien. Les lettres étaient manuscrites, encre noire, écriture soignée et impersonnelle.
 
 La première, datée de l'année précédente.
