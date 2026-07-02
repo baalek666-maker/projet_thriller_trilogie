@@ -559,6 +559,8 @@ Je suis remontée vers la voiture.
 
 Le sable dans mes chaussures craquait à chaque pas.
 
+Denise m'attendait à la porte. Elle m'a dit que ma chambre était prête. Ma chambre d'amis.
+
 ---
 
 
