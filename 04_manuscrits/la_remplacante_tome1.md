@@ -2969,6 +2969,8 @@ Malo a mangé sa crêpe en silence. Il n'a plus rien dit. Il mâchait lentement,
 
 Le vent a claqué contre la vitre. J'ai sursauté. Malo n'a pas bougé. Lui, avait l'habitude.
 
+Une heure plus tard, Denise m'a appelée. Elle avait enfin décidé de parler.
+
 ---
 
 ## Chapitre 28 : Ce que personne ne te dira
