@@ -705,6 +705,10 @@ Il a recraché la fumée. Elle s'est dissipée aussitôt, emportée par le vent.
 
 — Je te l'ai dit. Ce n'est pas mon fils. Pas vraiment.
 
+Il a détourné les yeux vers la mer. Quand il a repris la parole, sa voix était plus basse, presque adressée aux vagues.
+
+— Charlotte m'avait prévenu qu'un jour quelqu'un viendrait prendre sa place. Je pensais qu'elle parlait de toi.
+
 Le mot est tombé entre nous, lourd, comme une pierre qu'on lâche dans l'eau. Pas vraiment. Qu'est-ce que ça voulait dire, pas vraiment ? Que Malo n'était pas le sien ? Que Charlotte avait eu quelqu'un d'autre ? Ou que Paul, simplement, n'avait jamais su être père ?
 
 — C'est quand même ta responsabilité.
@@ -1837,6 +1841,12 @@ Et au centre, une grande feuille avec un titre.
 Deux mots. Au marqueur noir. Lettres capitales. L'encre avait légèrement bavé sur le papier, comme si la main avait tremblé en les écrivant. Ou comme si elle avait appuyé trop fort. Parce que c'était important. Parce que ça devait tenir.
 
 J'ai voulu la lire. Mes mains tremblaient trop. Je les ai posées sur le bureau pour essayer de me calmer. Le bois était froid. Poussiéreux. Sous mes paumes, je sentais des aspérités, des échardes, le grain du bois. Il y avait des taches d'encre sur le bureau. Bleues, noires, rouges. Les couleurs de Charlotte. Les couleurs de sa folie.
+
+J'ai tiré le tiroir du haut. Il a grincé. Dedans, rangés avec soin : des stylos, des trombones dans une boîte métallique, et une enveloppe bleue posée sur le côté. Mon nom était écrit dessus, de l'écriture de Charlotte. Rien d'autre. Pas d'adresse. Pas de timbre. Juste *Clémence*.
+
+Je l'ai tenue entre mes doigts. Le papier était usé aux coins, comme s'il avait été manié, lu, caché, relu. Je savais que je devais l'ouvrir. Je savais aussi que je n'en avais pas la force. Pas maintenant. Pas avec ce mur derrière moi.
+
+Je l'ai reposée dans le tiroir. Je l'ai refermé.
 
 J'ai approché la feuille de mes yeux. Le papier était épais, du A3 plié en deux. Des flèches partaient du titre, reliant des cases dessinées au feutre. Des dates. Des noms. Des étapes. Je n'ai pas tout saisi. J'étais trop occupée à lutter contre le vertige qui montait. Le Plan n'était pas une idée. C'était une séquence. Un calendrier. Une trajectoire.
 
@@ -3235,6 +3245,18 @@ Je n'ai pas dormi.
 
 Les trois lettres étalées sur la table de la cuisine, sous la lampe qui oscillait avec le vent. Le tampon de Rennes, l'encre violette. Le nom d'Ariane, répété, insistant. Ariane. Ariane. Ariane. Le nom tournait dans ma tête comme une toupie qui ne s'arrête pas. Je le voyais écrit sur les enveloppes, sur les murs, sur le carrelage, sur le plafond quand je fermais les yeux.
 
+Vers deux heures du matin, j'ai entendu un moteur.
+
+J'ai soulevé le rideau de la cuisine. Une voiture roulait lentement sur le chemin. Une vieille Renault grise. Gilles au volant. Il conduisait comme quelqu'un qui ne veut pas réveiller le quartier. À côté de lui, sur le siège passager, une valise.
+
+Il a levé les yeux vers la fenêtre.
+
+Nos regards se sont croisés une seconde. Puis il a accéléré, sans saluer, sans ralentir. Comme s'il avait peur. Comme s'il fuyait.
+
+J'ai baissé le rideau. Le cœur battait trop fort.
+
+Gilles partait.
+
 Vers trois heures du matin, j'ai ouvert l'ordinateur de Charlotte. Son vieux Dell gris, celui qu'elle gardait dans le bureau. Le mot de passe était mon prénom. Bien sûr. Clémence. Comme tout le reste. Comme les étiquettes dans l'armoire. Comme le carnet. Comme les perruques. Tout était à mon nom. Tout était pour moi. Tout était un piège.
 
 J'ai tapé « Ariane » dans le moteur de recherche. Puis « Ariane Doubles ». Puis « Ariane disparition Bretagne ».
@@ -3405,6 +3427,20 @@ J'ai entendu ses pas sur le gravier. Puis le silence.
 Le silence de la maison. Le silence de la nuit qui se termine. Le silence d'une femme qui reste debout dans un couloir, le dos contre un mur, en train de se demander si elle existe encore.
 
 Je me suis adossée au mur. Le miroir me renvoyait mon visage. Mais je ne savais plus si c'était le mien ou le sien.
+
+Mon téléphone a vibré dans la poche de mon manteau.
+
+Un message.
+
+*Lucie.*
+
+« Il faut qu'on parle. C'est revenu. »
+
+J'ai relu les mots. Trois fois. *C'est revenu.* Quoi ? Qu'est-ce qui était revenu ? Je n'ai pas répondu. Pas encore. Je ne savais pas ce que je pourrais lui dire sans tout lui dire — sans lui avouer que la maison n'était plus la mienne, que le miroir me renvoyait un visage que je ne reconnaissais plus, qu'une femme qui n'était pas ma sœur venait de me promettre qu'elle me prendrait tout.
+
+Mais le silence de la maison n'était plus vide.
+
+Quelqu'un, quelque part, pensait encore que j'existais.
 
 ---
 
@@ -4117,9 +4153,17 @@ Je suis redescendue dans le hall. Les néons y étaient moins agressifs. Une lum
 
 Le monde continuait. Comme si de rien n'était. Comme si, pendant que je perdais ma sœur et que je la retrouvais et que je la perdais encore, le monde avait continué de tourner. Les gens allaient travailler. Les bateaux sortaient du port. Les mouettes cherchaient du poisson. Rien ne s'arrête. Jamais. Pas même pour le pire jour de votre vie.
 
-J'ai sorti mon téléphone. L'écran s'est allumé. Trois messages d'Inès. Un de ma mère — ma mère, qui ne savait rien, qui ne saurait jamais rien, à qui je ne pourrais jamais rien expliquer. Un numéro inconnu.
+J'ai sorti mon téléphone. L'écran s'est allumé. Trois messages d'Inès. Un de ma mère — ma mère, qui ne savait rien, qui ne saurait jamais rien, à qui je ne pourrais jamais rien expliquer. Un numéro inconnu. Et un appel manqué de Lucie, avec un vocal.
 
-J'ai regardé le numéro inconnu. Je n'ai pas ouvert.
+Je n'ai pas ouvert le numéro inconnu.
+
+Le vocal de Lucie, par contre, je l'ai écouté. Sa voix était basse, presque étouffée. Derrière elle, le bruit d'une bibliothèque — des pages qui tournaient, des pas sur du parquet, quelqu'un qui toussait au loin.
+
+« Clémence. Ne rentre pas chez toi. Pas tout de suite. Quelqu'un est venu me poser des questions. Sur Charlotte. Sur toi. Sur la maison. Il a dit qu'il était de la famille. Il ne l'était pas. Je... je t'envoie une adresse. Viens me voir. Pas au téléphone. »
+
+Le message s'était coupé. Elle avait envoyé une adresse. Quimper. Pas Rennes.
+
+J'ai regardé l'écran longtemps. Puis j'ai éteint le téléphone sans répondre. Tout me semblait trop loin. Trop tard. Trop vrai.
 
 Je suis sortie de l'hôpital. L'air frais m'a frappée. Sel. Vent. Le soleil sur le visage. J'ai fermé les yeux. Une seconde. Deux secondes. Et dans le noir, j'ai vu le visage de Charlotte. Et le mien. Et celui d'Ariane. Trois visages. Trois reflets. Une seule femme, démultipliée.
 
@@ -4765,6 +4809,18 @@ J'ai repris un travail à mi-temps. Aide-bibliothécaire. Les mêmes livres, les
 Je range des livres. J'enregistre des prêts. Je réponds aux lecteurs. Je dis *bonjour*, *au revoir*, *à bientôt*. Je fais les choses qu'on fait quand on est quelqu'un. Quelqu'un de banal. Quelqu'un qui a un travail, un appartement, un enfant à récupérer à l'école à seize heures. Quelqu'un dont on ne soupçonne pas le passé. Quelqu'un qui ne porte pas son histoire sur le visage.
 
 Ma collègue s'appelle Hélène. Elle porte des lunettes rondes et des pulls trop grands. Elle ne pose pas de questions. Elle m'a dit, le premier jour : « Ici, on parle des livres. Pas des gens. » Ça m'allait. Ça m'allait parfaitement.
+
+Un soir, j'ai appelé la bibliothèque de Rennes. Je ne savais pas ce que je dirais si elle décrochait. Je ne savais pas ce que je dirais si elle ne décrochait pas.
+
+C'est une remplaçante qui a répondu. Une voix jeune, pressée, qui m'a demandé ce que je voulais. J'ai dit son prénom. Lucie. La directrice adjointe. Il y a eu un silence, du papier qu'on tourne, le cliquetis d'un clavier.
+
+— Elle a démissionné. Il y a trois semaines. Du jour au lendemain.
+
+Pas d'adresse. Pas de transfert. Pas de message.
+
+— Elle est partie comme elle était venue, a ajouté la voix. Très vite.
+
+J'ai raccroché. Je suis restée devant la fenêtre. Dehors, la rue pavée était humide, et les réverbères dessinaient des taches jaunes sur les pavés. Quelqu'un, quelque part, avait essayé de me prévenir. Et maintenant, elle aussi avait disparu.
 
 Malo est entré dans une nouvelle école. L'institutrice m'a dit qu'il était silencieux mais qu'il observait tout. Qu'il dessinait beaucoup. Des maisons, des bateaux, des baleines. Toujours la mer, dans ses dessins. La mer qu'il avait laissée derrière lui.
 
