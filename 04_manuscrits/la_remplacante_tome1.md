@@ -3653,6 +3653,8 @@ Elle m'a donné un couteau. Petit, tranchant. Une lame de chasse, à la poignée
 
 Peut-être. Charlotte avait peur. La femme qui planifiait tout, qui contrôlait tout, qui savait tout, avait peur de sa propre création. De la femme qu'elle avait formée. Du double qu'elle avait fabriqué. Et elle gardait un couteau dans une boîte à chaussures. Comme une enfant garde un caillou sous son oreiller. Comme un talisman. Comme une preuve que le monde peut encore faire mal.
 
+J'ai mis le couteau dans ma poche. Il pesait plus lourd qu'il n'en avait l'air.
+
 ---
 
 ## Chapitre 35 : La maison grise
