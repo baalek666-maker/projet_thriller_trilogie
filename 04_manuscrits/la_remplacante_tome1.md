@@ -1009,6 +1009,8 @@ Le silence est revenu. Pas un silence vide. Un silence plein. Un silence de gens
 
 Je n'ai pas osé déranger.
 
+Ce n'est que dans le noir que j'ai entendu le tic-tac. Quelqu'un avait calibré le silence.
+
 ---
 
 
