@@ -999,6 +999,8 @@ Je suis restée sur le seuil encore longtemps. La lumière baissait. Le ciel dev
 
 Dans le hall, le trousseau de clés pesait dans ma poche. Je l'ai sorti. Cinq clés, dont deux que je ne reconnaissais pas. L'appartement de Rennes. Le garage. Des espaces de Charlotte que je n'avais jamais vus et que je devais désormais posséder. J'ai posé les clés sur le meuble de l'entrée. Elles ont tinté contre le bois. Le bruit a résonné dans le hall vide. Trop fort. Trop net. Le bruit de quelqu'un qui s'installe.
 
+J'ai regardé les clés. Rennes. L'appartement. Ma vie d'avant. J'aurais pu appeler un taxi, disparaître avant le jour, laisser la maison et l'enfant à la police ou à Inès. Mais Malo était dans le salon, par terre, face au goéland. Il n'avait personne d'autre. Et moi, depuis trop longtemps, je fuyais dès que quelqu'un avait besoin de moi. Je ne suis pas partie.
+
 Malo était assis dans le salon. Pas sur le canapé. Par terre, contre le mur, les jambes croisées. Il n'avait allumé aucune lampe. Il regardait la baie vitrée. Dehors, un goéland s'est posé sur la terrasse. Il a tourné la tête vers la vitre. Lui et Malo se sont regardés un long moment.
 
 Je me suis assise à l'autre bout du salon. Pas trop près. Pas sur le canapé non plus. Par terre, comme lui, contre le mur opposé. Le parquet était froid sous moi. Je n'ai rien dit. Lui non plus.
