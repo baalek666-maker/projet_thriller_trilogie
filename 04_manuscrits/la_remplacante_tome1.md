@@ -4926,6 +4926,8 @@ Et pourtant.
 
 J'ai regardé l'enveloppe. Je ne l'ai pas ouverte à nouveau. Je savais que je le ferais. Pas ce soir. Pas maintenant. Plus tard. Quand Malo serait à l'école. Quand je serais seule. Quand je serais prête à savoir.
 
+J'ai regardé la porte. J'ai vérifié la serrure. Rien. J'ai regardé par la fenêtre. La rue était vide. Ça le serait peut-être demain aussi. Ou pas.
+
 Parce que je savais, au fond, que ce n'était pas fini. Que ça ne serait jamais fini. Que les mots *c'est déjà ça* n'étaient pas une fin. Juste une pause. Le genre de pause qui précède autre chose.
 
 La lettre bleue est dans le tiroir de la table, avec le carnet, la photo, et maintenant l'enveloppe blanche. Tout est dans ce tiroir. Tout ce qui pourrait répondre. Tout ce qui pourrait détruire.
