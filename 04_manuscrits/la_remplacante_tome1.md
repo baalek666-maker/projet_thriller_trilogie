@@ -3842,7 +3842,7 @@ Sa voix a explosé. Le même ton que dans mes cauchemars. Le même son que j'ava
 
 Malo s'est figé. Son petit corps tremblait. Ses mains, petites, pâles, serraient le bas de son pyjama. Mais il n'est pas revenu en arrière. Il est resté là, entre Charlotte et moi, immobile, têtu, comme un animal qui ne sait pas où aller mais qui refuse de reculer.
 
-Il avait les yeux de Charlotte. La même forme. La même couleur. Mais dedans, il n'y avait pas la dureté. Pas encore. Il y avait quelque chose de plus ancien, de plus fragile. La confiance. Ce qu'il en restait. Les derniers grams de foi envers les adultes. Je me suis demandé combien il en restait après cette nuit. Combien survivraient.
+Il avait les yeux de Charlotte. La même forme. La même couleur. Mais dedans, il n'y avait pas la dureté. Pas encore. Il y avait quelque chose de plus ancien, de plus fragile. La confiance. Ce qu'il en restait. Les derniers grammes de foi envers les adultes. Je me suis demandé combien il en restait après cette nuit. Combien survivraient.
 
 — Viens, ai-je dit doucement.
 
