@@ -3372,6 +3372,8 @@ Elle a souri. Pas offensée. Pas blessée. Un sourire indulgent, presque materne
 
 Le mot « méritait » m'a frappée comme une gifle. Pas « voulait ». Pas « désirait ». *Méritait.* Comme si ma vie m'avait été prêtée et que le bail expirait. Comme si je n'étais qu'une locataire de mon existence. Une passante. Une femme qui avait vécu dans une peau qui, finalement, ne lui appartenait pas.
 
+J'ai repensé au notaire. À la maison mise à disposition pour un an. À la clause qui me la retirerait si je lâchais Malo. Charlotte avait tout prévu avec une *précision remarquable*. Pas par amour. Par architecture.
+
 J'ai senti la colère me submerger. Une colère ancienne, pas seulement contre Ariane — contre Charlotte, contre Denise, contre cette famille qui fabriquait des doubles depuis des générations comme d'autres fabriquent des tapis. Contre cette histoire de jumelles, de ressemblances, de substitutions. Contre cette idée que deux femmes qui se ressemblent peuvent s'échanger comme des manteaux. Que l'une peut prendre la place de l'autre et que personne, personne, ne verra la différence.
 
 — Elle est morte, ai-je dit. Elle est morte dans un accident.
