@@ -1983,6 +1983,8 @@ Je suis restée seule dans la cuisine. Le thé refroidissait. Le soleil avait di
 
 Je me suis approchée du verre. J'ai soufflé dessus. La buée s'est formée, effaçant mon visage une seconde. Quand elle s'est dissipée, j'ai cru voir Charlotte. Le même menton. Les mêmes pommettes. Le même angle du regard. J'ai reculé d'un pas. Puis je suis revenue. Je ne pouvais pas détourner les yeux. C'était comme regarder une photo qui bouge. Comme parler à quelqu'un qui n'était plus là. Comme si la mort, soudain, avait pris mon visage.
 
+J'ai fermé les yeux. J'ai compté jusqu'à dix. Puis j'ai pris une décision simple, presque enfantine : je ne retournerais pas dans le bureau. Je ne lirais pas l'enveloppe. Je ne chercherais pas ce que Charlotte avait voulu faire de moi. Je resterais Clémence. Je ferais les crêpes, je raccompagnerais Malo à l'école, je sortirais les poubelles. Je referais le monde normal, pièce par pièce, jusqu'à ce que le mur se fane derrière moi. C'était du déni. Je le savais. Mais le déni, ce soir-là, ressemblait à du courage.
+
 ---
 
 
