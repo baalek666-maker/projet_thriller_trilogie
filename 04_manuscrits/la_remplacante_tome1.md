@@ -2697,6 +2697,14 @@ J'ai lâché les passeports.
 
 Ils sont tombés sur le parquet. L'un sur l'autre. Le bruit a résonné dans la garde-robe vide. Un bruit de papier qui tombe. Un bruit de chose qui se pose. Un bruit de verdict.
 
+Et au fond, derrière les perruques, un compartiment dissimulé dans le bois.
+
+J'ai posé la main sur le panneau. Il a cédé sans résistance. À l'intérieur, un téléphone. Un vieux modèle, éteint, le chargeur enroulé autour. Pas le téléphone de Charlotte. Pas le mien. Un autre. Un téléphone qu'elle n'était pas censée avoir.
+
+Je l'ai pris. L'écran était noir. Je l'ai allumé. La batterie était à quatorze pour cent. Le fond d'écran était une photo de nous deux, enfants, devant la maison de Nantes. On avait sept ans. On souriait. On se ressemblait déjà trop.
+
+Je l'ai éteint. Je ne savais pas encore ce que je cherchais. Mais je savais que je ne devais pas le laisser ici.
+
 Charlotte avait préparé un échange total. Elle allait devenir moi. Et j'allais devenir elle.
 
 Pour toujours.
@@ -2829,6 +2837,26 @@ La paume ouverte. Les doigts écartés. Exactement comme Charlotte posait sa mai
 Exactement comme moi.
 
 J'ai éteint l'écran. L'obscurité a avalé la pièce. Je suis restée assise dans le noir, les mains sur le clavier, le cœur cognant contre mes côtes. En bas, dans le couloir, le miroir d'entrée me renvoyait un reflet que je refusais de regarder. Parce que je savais ce que j'y verrais. Son visage. Le mien. Le sien.
+
+J'ai pensé au téléphone. Celui que j'avais pris dans la garde-robe et glissé dans le tiroir de la table de nuit, sous une pile de chaussettes. Je me suis levée. Mes jambes tremblaient. J'ai fermé la porte de la chambre à clé.
+
+Je l'ai allumé dans le noir. La lueur bleue m'a aveuglée un instant. L'écran a demandé un code. J'ai essayé son année de naissance. Non. La mienne. Non. Puis notre date de naissance, le jour, le mois, l'année. L'écran s'est déverrouillé.
+
+Charlotte n'avait pas de secret que je ne connaisse.
+
+Les applications étaient vides. Pas d'appels. Pas de messages reçus. Mais dans les brouillons, il y en avait trois. Trois messages non envoyés, datés des semaines avant sa disparition.
+
+Le premier : « Il sait que je sais. »
+Le deuxième : « Paul n'est pas celui qu'il croit. »
+Et le troisième, adressé à un numéro inconnu : « Si je disparais, c'est Paul. »
+
+J'ai relu ce dernier ligne par ligne. Si je disparais. C'est Paul. Les mots dansaient sur l'écran. Le sang battait dans mes tempes. Paul. Son mari. L'homme qui avait pleuré devant la tombe. L'homme qui m'avait regardée comme une étrangère et une sœur à la fois. L'homme qui avait dit que Charlotte était morte.
+
+Je l'ai éteint. Je l'ai remis sous les chaussettes. J'ai regardé la porte de la chambre comme si quelqu'un allait l'ouvrir.
+
+Personne n'est venu.
+
+Mais j'ai compris que la femme dans le jardin n'était peut-être pas celle que je croyais.
 
 ---
 
@@ -4106,6 +4134,24 @@ Le mot tournait dans ma tête. Comme un caillou dans une rivière.
 Désolée.
 
 Trop petit. Mais net.
+
+C'est alors que le téléphone a vibré dans ma poche.
+
+Pas mon téléphone. L'autre. Celui de la garde-robe. Je l'avais emporté sans savoir pourquoi, peut-être par peur de le laisser seul dans la maison.
+
+Je l'ai sorti. L'écran s'était allumé. Un message entrant, d'un numéro inconnu.
+
+« Tu avances bien. »
+
+J'ai regardé le couloir. Vide. La porte de Charlotte. Fermée. Le néon. Le grésillement.
+
+Puis, sous le message, une photo. Floue, prise de nuit. Une femme en robe sombre, debout devant une baie vitrée, la paume contre la vitre.
+
+La femme du jardin.
+
+Et cette fois, on voyait son visage.
+
+On voyait le mien.
 
 ---
 
