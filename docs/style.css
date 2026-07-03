@@ -1,0 +1,456 @@
+/* ===== Variables ===== */
+:root {
+  --bg: #0d0d0d;
+  --bg-elevated: #141414;
+  --text: #f2f2f2;
+  --text-muted: #a8a8a8;
+  --orange: #ff5c1c;
+  --orange-dark: #e64a0d;
+  --blue: #2a5caa;
+  --blue-light: #3d75c9;
+  --radius: 8px;
+  --max-width: 1100px;
+  --font: "Segoe UI", Roboto, Helvetica, Arial, sans-serif;
+}
+
+/* ===== Reset ===== */
+* {
+  margin: 0;
+  padding: 0;
+  box-sizing: border-box;
+}
+
+html {
+  scroll-behavior: smooth;
+}
+
+body {
+  font-family: var(--font);
+  background: var(--bg);
+  color: var(--text);
+  line-height: 1.6;
+  font-size: 17px;
+}
+
+a {
+  color: inherit;
+  text-decoration: none;
+}
+
+img {
+  max-width: 100%;
+  display: block;
+}
+
+.container {
+  width: 90%;
+  max-width: var(--max-width);
+  margin: 0 auto;
+}
+
+.narrow {
+  max-width: 760px;
+}
+
+.centered {
+  text-align: center;
+}
+
+/* ===== Buttons ===== */
+.btn {
+  display: inline-block;
+  padding: 0.85rem 1.6rem;
+  border-radius: var(--radius);
+  font-weight: 700;
+  text-transform: uppercase;
+  letter-spacing: 0.04em;
+  font-size: 0.9rem;
+  transition: transform 0.15s ease, box-shadow 0.15s ease, background 0.15s ease;
+  border: 2px solid transparent;
+}
+
+.btn:hover {
+  transform: translateY(-2px);
+}
+
+.btn-primary {
+  background: var(--orange);
+  color: #fff;
+  box-shadow: 0 4px 18px rgba(255, 92, 28, 0.35);
+}
+
+.btn-primary:hover {
+  background: var(--orange-dark);
+  box-shadow: 0 6px 22px rgba(255, 92, 28, 0.45);
+}
+
+.btn-secondary {
+  background: transparent;
+  color: var(--orange);
+  border-color: var(--orange);
+}
+
+.btn-secondary:hover {
+  background: var(--orange);
+  color: #fff;
+}
+
+.btn-ghost {
+  background: transparent;
+  color: var(--text);
+  border-color: rgba(255, 255, 255, 0.35);
+}
+
+.btn-ghost:hover {
+  border-color: var(--text);
+  background: rgba(255, 255, 255, 0.05);
+}
+
+.btn-small {
+  padding: 0.5rem 1rem;
+  font-size: 0.75rem;
+}
+
+.btn-large {
+  padding: 1rem 2rem;
+  font-size: 1rem;
+}
+
+/* ===== Topbar ===== */
+.topbar {
+  position: sticky;
+  top: 0;
+  z-index: 100;
+  background: rgba(13, 13, 13, 0.92);
+  backdrop-filter: blur(8px);
+  border-bottom: 1px solid rgba(255, 255, 255, 0.08);
+  padding: 0.9rem 0;
+}
+
+.topbar .container {
+  display: flex;
+  align-items: center;
+  justify-content: space-between;
+}
+
+.logo {
+  font-weight: 800;
+  letter-spacing: 0.08em;
+  text-transform: uppercase;
+  font-size: 0.95rem;
+}
+
+/* ===== Hero ===== */
+.hero {
+  padding: 5rem 0 4rem;
+  background:
+    radial-gradient(circle at 80% 20%, rgba(255, 92, 28, 0.12), transparent 45%),
+    radial-gradient(circle at 10% 80%, rgba(42, 92, 170, 0.12), transparent 40%),
+    var(--bg);
+}
+
+.hero-grid {
+  display: grid;
+  grid-template-columns: 1fr 1.3fr;
+  gap: 4rem;
+  align-items: center;
+}
+
+/* Book cover mockup */
+.hero-book {
+  display: flex;
+  justify-content: center;
+  perspective: 1200px;
+}
+
+.book-cover {
+  position: relative;
+  width: 240px;
+  height: 360px;
+  transform-style: preserve-3d;
+  transform: rotateY(-18deg) rotateX(3deg);
+  box-shadow: 20px 30px 60px rgba(0, 0, 0, 0.6);
+}
+
+.book-spine {
+  position: absolute;
+  left: 0;
+  top: 0;
+  width: 40px;
+  height: 100%;
+  background: linear-gradient(180deg, #b83a0c 0%, #8c2600 100%);
+  transform: rotateY(90deg) translateZ(-20px);
+  transform-origin: left;
+  border-radius: 2px 0 0 2px;
+}
+
+.book-front {
+  position: absolute;
+  left: 0;
+  top: 0;
+  width: 240px;
+  height: 360px;
+  background: linear-gradient(135deg, #ff6b35 0%, #e64a0d 60%, #a83200 100%);
+  border-radius: 2px 6px 6px 2px;
+  padding: 1.8rem;
+  display: flex;
+  flex-direction: column;
+  justify-content: space-between;
+  box-shadow: inset 0 0 60px rgba(0, 0, 0, 0.25);
+  overflow: hidden;
+}
+
+.book-front::before {
+  content: "";
+  position: absolute;
+  inset: 0;
+  background:
+    radial-gradient(circle at 30% 20%, rgba(255, 255, 255, 0.18), transparent 35%),
+    radial-gradient(circle at 80% 90%, rgba(0, 0, 0, 0.25), transparent 40%);
+  pointer-events: none;
+}
+
+.book-author {
+  position: relative;
+  z-index: 2;
+  color: rgba(0, 0, 0, 0.75);
+  font-weight: 700;
+  font-size: 0.85rem;
+  text-transform: uppercase;
+  letter-spacing: 0.12em;
+}
+
+.book-title {
+  position: relative;
+  z-index: 2;
+  color: #fff;
+  font-size: 2.6rem;
+  line-height: 1.05;
+  font-weight: 900;
+  text-transform: uppercase;
+  letter-spacing: 0.02em;
+  text-shadow: 0 4px 14px rgba(0, 0, 0, 0.35);
+}
+
+.book-tagline {
+  position: relative;
+  z-index: 2;
+  color: rgba(255, 255, 255, 0.85);
+  font-weight: 600;
+  font-size: 0.85rem;
+  letter-spacing: 0.1em;
+}
+
+.blue-letter {
+  position: absolute;
+  bottom: 1.8rem;
+  right: 1.8rem;
+  width: 50px;
+  height: 36px;
+  background: linear-gradient(135deg, var(--blue-light), var(--blue));
+  border-radius: 3px;
+  transform: rotate(-8deg);
+  box-shadow: 0 6px 18px rgba(0, 0, 0, 0.35);
+  z-index: 2;
+}
+
+.blue-letter::after {
+  content: "";
+  position: absolute;
+  top: 0;
+  right: 0;
+  width: 0;
+  height: 0;
+  border-style: solid;
+  border-width: 0 14px 14px 0;
+  border-color: transparent rgba(255, 255, 255, 0.25) transparent transparent;
+}
+
+/* Hero copy */
+.hero-copy {
+  max-width: 620px;
+}
+
+.eyebrow {
+  color: var(--orange);
+  font-weight: 800;
+  text-transform: uppercase;
+  letter-spacing: 0.12em;
+  font-size: 0.8rem;
+  margin-bottom: 1rem;
+}
+
+.hook {
+  font-size: clamp(1.8rem, 4vw, 2.8rem);
+  line-height: 1.1;
+  font-weight: 900;
+  margin-bottom: 1.2rem;
+}
+
+.lead {
+  font-size: 1.15rem;
+  color: var(--text-muted);
+  margin-bottom: 1.8rem;
+}
+
+.hero-actions {
+  display: flex;
+  flex-wrap: wrap;
+  gap: 1rem;
+  margin-bottom: 1rem;
+}
+
+.microcopy {
+  font-size: 0.8rem;
+  color: #666;
+}
+
+/* ===== Sections ===== */
+section {
+  padding: 4.5rem 0;
+}
+
+.section-title {
+  font-size: clamp(1.5rem, 3vw, 2.1rem);
+  font-weight: 800;
+  line-height: 1.2;
+  margin-bottom: 1.5rem;
+}
+
+.dark {
+  background: var(--bg-elevated);
+}
+
+.problem p,
+.agitate p,
+.author p {
+  margin-bottom: 1.1rem;
+  color: #d6d6d6;
+}
+
+blockquote {
+  margin: 1.8rem 0;
+  padding: 1.2rem 1.6rem;
+  border-left: 4px solid var(--blue);
+  background: rgba(42, 92, 170, 0.1);
+  font-size: 1.25rem;
+  font-style: italic;
+  color: #fff;
+}
+
+/* ===== Testimonials ===== */
+.testimonials {
+  display: grid;
+  grid-template-columns: repeat(auto-fit, minmax(260px, 1fr));
+  gap: 1.5rem;
+  margin-top: 2.5rem;
+}
+
+.card {
+  background: var(--bg-elevated);
+  border: 1px solid rgba(255, 255, 255, 0.08);
+  border-radius: var(--radius);
+  padding: 1.6rem;
+}
+
+.card p {
+  font-size: 1.05rem;
+  margin-bottom: 1rem;
+  font-style: italic;
+}
+
+.card span {
+  color: var(--orange);
+  font-weight: 700;
+  font-size: 0.85rem;
+}
+
+/* ===== CTA ===== */
+.cta-section .big {
+  font-size: 1.15rem;
+  color: #d6d6d6;
+  margin-bottom: 2rem;
+}
+
+.buy-options {
+  display: flex;
+  flex-wrap: wrap;
+  justify-content: center;
+  gap: 1rem;
+  margin-bottom: 1rem;
+}
+
+.note {
+  font-size: 0.8rem;
+  color: #666;
+}
+
+/* ===== Footer ===== */
+.footer {
+  padding: 2rem 0;
+  border-top: 1px solid rgba(255, 255, 255, 0.08);
+  text-align: center;
+  color: #666;
+  font-size: 0.85rem;
+}
+
+.footer a {
+  color: var(--text-muted);
+  text-decoration: underline;
+}
+
+.footer p + p {
+  margin-top: 0.4rem;
+}
+
+/* ===== Responsive ===== */
+@media (max-width: 900px) {
+  .hero-grid {
+    grid-template-columns: 1fr;
+    gap: 2.5rem;
+  }
+
+  .hero-book {
+    order: -1;
+  }
+
+  .book-cover {
+    width: 200px;
+    height: 300px;
+  }
+
+  .book-front {
+    width: 200px;
+    height: 300px;
+    padding: 1.4rem;
+  }
+
+  .book-title {
+    font-size: 2.1rem;
+  }
+
+  .blue-letter {
+    width: 40px;
+    height: 28px;
+  }
+}
+
+@media (max-width: 520px) {
+  .hero {
+    padding: 3rem 0 2.5rem;
+  }
+
+  .hero-actions,
+  .buy-options {
+    flex-direction: column;
+  }
+
+  .btn {
+    width: 100%;
+    text-align: center;
+  }
+
+  section {
+    padding: 3rem 0;
+  }
+}
