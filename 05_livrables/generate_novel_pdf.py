@@ -80,37 +80,28 @@ css = """
 @page {
     size: 140mm 210mm;  /* A5 — format roman français */
     margin: 2cm 2.2cm 2.5cm 2.2cm;
+    background: white;
     
     @bottom-center {
         content: counter(page);
-        font-family: 'Georgia', 'Times New Roman', serif;
+        font-family: 'Liberation Serif', 'Times New Roman', serif;
         font-size: 9pt;
         color: #999;
         vertical-align: bottom;
     }
-    
-    @top-center {
-        content: "La Remplaçante";
-        font-family: 'Georgia', 'Times New Roman', serif;
-        font-size: 8pt;
-        color: #bbb;
-        font-style: italic;
-        vertical-align: top;
-    }
 }
 
 @page:first {
-    @top-center { content: none; }
     @bottom-center { content: none; }
 }
 
 /* ── Body ─────────────────────────────────────────────── */
 body {
-    font-family: 'Georgia', 'Times New Roman', serif;
+    font-family: 'Liberation Serif', 'Times New Roman', serif;
     font-size: 10pt;
     line-height: 1.55;
     color: #1c1c1c;
-    background: #fdfaf6;
+    background: white;
     text-align: justify;
     text-justify: inter-word;
     hyphens: auto;
@@ -137,7 +128,7 @@ p:first-child {
 }
 
 .title-page h1 {
-    font-family: 'Georgia', 'Times New Roman', serif;
+    font-family: 'Liberation Serif', 'Times New Roman', serif;
     font-size: 22pt;
     font-weight: normal;
     color: #1c1c1c;
@@ -161,9 +152,10 @@ p:first-child {
 /* ── Copyright Page ───────────────────────────────────── */
 .copyright-page {
     page-break-before: always;
+    page-break-after: always;
     padding-top: 5cm;
     text-align: center;
-    font-family: 'Georgia', 'Times New Roman', serif;
+    font-family: 'Liberation Serif', 'Times New Roman', serif;
     font-size: 9pt;
     color: #666;
     line-height: 1.8;
@@ -197,7 +189,7 @@ p:first-child {
 }
 
 .chapter-title {
-    font-family: 'Georgia', 'Times New Roman', serif;
+    font-family: 'Liberation Serif', 'Times New Roman', serif;
     font-size: 15pt;
     font-weight: normal;
     color: #1c1c1c;
@@ -206,7 +198,7 @@ p:first-child {
 }
 
 .chapter-num {
-    font-family: 'Georgia', 'Times New Roman', serif;
+    font-family: 'Liberation Serif', 'Times New Roman', serif;
     font-size: 9pt;
     color: #999;
     text-transform: uppercase;
