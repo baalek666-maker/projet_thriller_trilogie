@@ -2420,7 +2420,7 @@ Lucie a respiré fort. J'ai entendu le bruit d'une allumette, puis une inhalatio
 
 — C'est exactement ce qui m'effraie.
 
-— Je vais te te donner son adresse. Mais Clémence…
+— Je vais te donner son adresse. Mais Clémence…
 
 — Oui ?
 
@@ -3358,9 +3358,9 @@ Mais je n'ai pas crié. J'ai serré les poings. Les ongles dans les paumes. La d
 
 — Que fais-tu ici ? ai-je demandé.
 
-Ma voix résonnait dans le couloir vide. Je n'avais pas allumé la lumière. Les seules lueurs venaient du dehors — le lampadaire de la route, filtré par les rideaux — et elles découpaient le visage d'Ariane en ombres nettes. Des ombres qui bougeaient quand elle bougeait. Des ombres qui, même immobiles, donnaient l'impression de vivre. Comme si elle portait son propre théâtre avec elle. Comme si chaque pièce qu'elle traversait devenait une scène.
+Ma voix résonnait dans le couloir vide. Je n'avais pas allumé la lumière. Le lampadaire de la route filtrait à travers les rideaux, découpant le visage d'Ariane en ombres nettes.
 
-Ariane a fait un pas vers moi. Un seul. Calme. Ses cheveux blonds, trop blonds — ce blond cendré, artificiel, qui ne venait pas de mère nature mais d'un salon ou d'une boîte de teinture — brillaient sous la lumière. Elle se mouvait comme quelqu'un qui connaît les lieux. Qui a répéré les meubles, les angles, les seuils. Comme quelqu'un qui a répété. Qui a fait les gestes. Qui a marché dans cette maison, encore et encore, en silence, en fermant les yeux, jusqu'à ce que les murs soient les siens.
+Elle a fait un pas vers moi. Un seul. Ses cheveux trop blonds — ce blond cendré de teinture — brillaient. Elle se mouvait comme quelqu'un qui connaît les lieux. Qui a répété.
 
 — Je viens voir mon fils.
 
@@ -3370,23 +3370,21 @@ Ariane a fait un pas vers moi. Un seul. Calme. Ses cheveux blonds, trop blonds �
 
 — Protéger de quoi ?
 
-— De devenir elle. De devenir Charlotte. Comme tu essaies de devenir Charlotte maintenant.
+— De devenir elle. Comme tu essaies de devenir Charlotte maintenant.
 
 — Tu es folle.
 
-Elle a souri. Pas offensée. Pas blessée. Un sourire indulgent, presque maternel, comme si je disais une bêtise d'enfant. Comme si j'étais la petite fille qui ne comprend pas et qui a besoin qu'on lui explique. Lentement. Avec des mots simples.
+Elle a souri. Un sourire indulgent, presque maternel. Le sourire qu'on fait à un enfant qui dit une bêtise.
 
-— C'est ce que disent les gens quand ils ne comprennent pas. Charlotte n'était pas folle. Elle était lucide. Elle savait que le monde ne lui devait rien. Alors elle a décidé de prendre.
+— Charlotte n'était pas folle. Elle était lucide. Elle a décidé de prendre.
 
 — Prendre quoi ?
 
 — Ta vie. Elle la méritait plus que toi.
 
-Le mot « méritait » m'a frappée comme une gifle. Pas « voulait ». Pas « désirait ». *Méritait.* Comme si ma vie m'avait été prêtée et que le bail expirait. Comme si je n'étais qu'une locataire de mon existence. Une passante. Une femme qui avait vécu dans une peau qui, finalement, ne lui appartenait pas.
+Le mot « méritait » m'a frappée. Pas « voulait ». Pas « désirait ». *Méritait.* Comme si ma vie m'avait été prêtée et que le bail expirait.
 
-J'ai repensé au notaire. À la maison mise à disposition pour un an. À la clause qui me la retirerait si je lâchais Malo. Charlotte avait tout prévu avec une *précision remarquable*. Pas par amour. Par architecture.
-
-J'ai senti la colère me submerger. Une colère ancienne, pas seulement contre Ariane — contre Charlotte, contre Denise, contre cette famille qui fabriquait des doubles depuis des générations comme d'autres fabriquent des tapis. Contre cette histoire de jumelles, de ressemblances, de substitutions. Contre cette idée que deux femmes qui se ressemblent peuvent s'échanger comme des manteaux. Que l'une peut prendre la place de l'autre et que personne, personne, ne verra la différence.
+J'ai senti la colère monter. Contre Charlotte, contre Denise, contre cette famille qui fabriquait des doubles depuis des générations. Contre cette idée que deux femmes qui se ressemblent peuvent s'échanger comme des manteaux.
 
 — Elle est morte, ai-je dit. Elle est morte dans un accident.
 
@@ -3394,79 +3392,77 @@ J'ai senti la colère me submerger. Une colère ancienne, pas seulement contre A
 
 — C'est toi, Ariane.
 
-Elle a ri. Un rire bref, sans joie. Un rire qui sonnait comme une correction. Le rire de quelqu'un qui a trop entendu cette erreur et qui, chaque fois, doit la rectifier. Patiemment. Inlassablement.
+Elle a ri. Un rire sec, sans joie.
 
 — Non. Je suis celle qui va prendre la place de Charlotte. Comme elle voulait prendre la tienne. On est toutes des chaînons.
 
-— Mais tu étais censée mourir. Les lettres disaient que tu étais « prête à mourir à sa place ».
+— Mais tu étais censée mourir. Les lettres disaient—
 
-— C'était le plan, oui. J'étais censée monter dans cette voiture. Mais je n'ai pas pu. Pas ce soir-là. Pas comme ça. Charlotte a trouvé quelqu'un d'autre. Une femme de la communauté, sans famille, sans personne. Je ne connais même pas son vrai nom. On l'appelait « la Transit ». C'est tout ce que je sais.
+— C'était le plan. Mais je n'ai pas pu. Pas ce soir-là. Charlotte a trouvé quelqu'un d'autre. Une femme sans famille. On l'appelait « la Transit ». Je ne connais même pas son vrai nom.
 
 — Et elle est morte.
 
-— Elle est morte. À ma place. À la place de tout le monde.
+— Elle est morte. À ma place.
 
-La phrase s'est posée dans le couloir. À la place de tout le monde. Comme si mourir était une fonction. Un poste qu'on attribue et qu'on délègue. Une tâche qu'on donne à celle qui n'a personne pour pleurer. Une femme sans nom. Sans visage retenu. Sans main pour la retenir au bord du trou.
+Le silence a rempli le couloir. Mourir comme une fonction. Un poste qu'on délègue à celle qui n'a personne pour pleurer.
 
-— Des chaînons ?
+— Les caméras, c'était moi, a-t-elle dit. Charlotte voulait savoir si tu tenais le rôle. Et l'appel, à trois heures du matin... je voulais t'entendre craquer.
 
-— Une remplacée remplace une autre. C'est le principe. Les Doubles ne sont pas un groupe. C'est un mouvement. Une transmission.
+— Pourquoi moi ?
 
-— C'est délirant.
+— Tu n'étais pas la première. Il y en a eu d'autres. Des sœurs, des cousines. Personne n'a tenu. Toi, tu as tenu.
 
-— C'est la seule chose qui ait du sens.
+Elle a tendu la main vers ma joue. J'ai reculé. Mon dos a heurté la table de l'entrée. Le vase — celui de Charlotte, en grès bleu, celui que je détestais — a oscillé.
 
-Elle a baissé la voix, comme si elle révélait un détail technique.
+— Tu as peur, a-t-elle dit. C'est normal. Tu sens que tu vas disparaître.
 
-— Les caméras, c'était moi. Charlotte voulait savoir si tu tenais le rôle. Si tu devenais crédible.
+Sa main est restée suspendue. Puis elle a plongé dans sa poche.
 
-Elle a fait une pause. Pas pour reprendre son souffle. Pour que je comprenne.
+Le cran d'arrêt a jailli avec un claquement sec. La lame brillait sous la lumière du lampadaire. Je reconnaissais le manche en os. La fissure près de la garde. Le couteau de la boîte à chaussures. Celui que j'avais vu dans le placard de Charlotte et que je n'avais pas trouvé en rentrant.
 
-— Et l'appel, celui à trois heures du matin... c'était moi aussi. Je voulais t'entendre craquer. Voir si tu étais déjà assez Charlotte pour avoir peur comme elle.
+— Elle te l'a donné, ai-je dit.
 
-— Pourquoi ? ai-je soufflé.
+— Charlotte m'a tout donné. Y compris la permission de te faire partir si tu résistais.
 
-— Parce que tu n'étais pas la première. Il y en a eu d'autres avant toi. Des sœurs, des cousines, des inconnues. Charlotte testait tout le monde. Personne n'a tenu. Toi, tu as tenu. C'est pour ça qu'elle t'a choisie.
+J'ai attrapé le vase à deux mains. Le grès était froid, lourd. Je l'ai levé devant moi.
 
-Ariane a tendu la main. Ses doigts étaient longs, les ongles coupés court — pas les ongles de Charlotte ni les miens. Elle a touché ma joue. Sa peau était froide. Sèche. Comme du papier. Comme le papier des lettres dans le tiroir. Le papier des dossiers, des passeports, des plans. Sa peau à elle aussi était un faux. Un document. Une surface qu'on a remplie, qu'on a imprimée, qu'on a pliée pour qu'elle ressemble à quelque chose.
+— Pose ça, a-t-elle dit.
 
-— Tu as peur. C'est normal. Tu sens que tu vas disparaître.
+— Sors de chez moi.
 
-J'ai reculé. Le mur derrière moi. Pas de sortie. Le couloir étroit, les porte-manteaux, le miroir d'entrée dans lequel je voyais deux silhouettes identiques se faire face. Deux femmes. Deux reflets. Deux versions. Et quelque part, une troisième — Charlotte — qui n'était pas là mais qui était partout. Dans les murs. Dans les odeurs. Dans le parfum de bergamote qui flottait entre nous comme un fantôme.
+— Ce n'est pas chez toi. C'est chez elle. Et bientôt—
 
-— Sors de ma maison.
+— Sors.
 
-— Ce n'est pas ta maison. C'est la sienne. Et bientôt, ce sera la mienne.
+J'ai levé le vase plus haut. Pas pour la frapper. Pour qu'elle voie. Pour qu'elle comprenne que la femme qui rangeait des livres, qui buvait du thé, qui évitait les conflits — cette femme-là était en train de disparaître. Et celle qui restait tenait un vase au-dessus de sa tête et n'avait plus peur de le briser.
 
-Elle a retiré sa main. Elle a regardé autour d'elle, lentement, comme une acheteuse qui visite un bien immobilier. Ses yeux ont balayé les murs, les meubles, les cadres. Elle notait. Elle mesurait. Elle se l'appropriait déjà.
+Ariane m'a regardée. Ses yeux allaient du vase à mon visage. Elle calculait.
 
-— Tu as fait des changements, a-t-elle dit. Les coussins. Les fleurs. Charlotte n'aurait pas aimé.
+Puis elle a replié la lame. Le claquement a résonné dans le couloir.
 
-— Charlotte n'est plus là.
+— Tu changes, a-t-elle dit. Charlotte aurait aimé voir ça.
 
-— C'est ce que tu crois.
+Elle a reculé vers la porte de derrière. Sans me quitter des yeux.
 
-Elle est sortie par la porte de derrière. Sans se presser. Sans regarder derrière elle. Comme si la maison lui appartenait déjà. Comme si je n'étais qu'une locataire de passage. Une femme qui occupe temporairement un espace qui, bientôt, sera repris. Comme une plante qu'on arrose en attendant que le propriétaire revienne.
+— On se reverra, Clémence.
 
-J'ai entendu ses pas sur le gravier. Puis le silence.
+Le gravier a crissé. Puis le silence.
 
-Le silence de la maison. Le silence de la nuit qui se termine. Le silence d'une femme qui reste debout dans un couloir, le dos contre un mur, en train de se demander si elle existe encore.
+J'ai reposé le vase. Mes mains tremblaient. Le miroir de l'entrée me renvoyait mon visage — les mêmes traits, mais quelque chose avait bougé dans le regard. Quelque chose qui n'était ni Clémence ni Charlotte.
 
-Je me suis adossée au mur. Le miroir me renvoyait mon visage. Mais je ne savais plus si c'était le mien ou le sien.
+Quelque chose de neuf.
 
-Mon téléphone a vibré dans la poche de mon manteau.
+Mon téléphone a vibré.
 
-Un message.
-
-*Lucie.*
+Un message. *Lucie.*
 
 « Il faut qu'on parle. C'est revenu. »
 
-J'ai relu les mots. Trois fois. *C'est revenu.* Quoi ? Qu'est-ce qui était revenu ? Je n'ai pas répondu. Pas encore. Je ne savais pas ce que je pourrais lui dire sans tout lui dire — sans lui avouer que la maison n'était plus la mienne, que le miroir me renvoyait un visage que je ne reconnaissais plus, qu'une femme qui n'était pas ma sœur venait de me promettre qu'elle me prendrait tout.
+J'ai relu les mots. Trois fois. Je n'ai pas répondu. Pas tout de suite.
 
-Mais le silence de la maison n'était plus vide.
+Le silence de la maison n'était plus vide.
 
-Quelqu'un, quelque part, pensait encore que j'existais.
+Quelqu'un pensait encore que j'existais.
 
 ---
 
@@ -3725,95 +3721,95 @@ Le nom est sorti tout seul. Comme une prière. Comme un appel. Comme le dernier 
 
 Charlotte est apparue dans l'encadrement de la porte.
 
-D'abord, je n'ai pas reconnu ce que je voyais. Une silhouette. Un mouvement. Le cerveau ne comprend pas tout de suite quand l'impossible se matérialise. Quand les morts reviennent. On cherche une explication rationnelle. Un mirage. Un reflet mal interprété. Mais il n'y en avait pas. Il y avait seulement elle, et le froid qui montait du carrelage, et l'odeur de pluie sur ses vêtements, et cette certitude qui s'enfonçait en moi comme une vrille.
+D'abord, je n'ai pas compris. Le cerveau refuse l'impossible. Mais c'était elle. Plus mince — les clavicules saillaient sous le col du pull. La peau translucide, bleutée aux tempes. Les cheveux ternes, collés au crâne. Des cernes violacés jusqu'au milieu des joues. Une femme qui avait fondu de l'intérieur.
 
-Elle était là. En chair. En os.
+— Clémence.
 
-Elle était différente. Plus mince — les clavicules saillaient sous le col de son pull. On aurait dit qu'elle avait fondu de l'intérieur, que quelque chose l'avait consumée lentement, nuit après nuit. Plus pâle, la peau translucide, presque bleutée aux tempes. Des cernes profonds, violacés, creusés sous les yeux. Les cheveux avaient poussé, ternes, sans éclat, collés par endroits contre son crâne. Mais c'était elle.
-
-Vraiment elle.
-
-Le visage que j'avais vu dans le miroir pendant des semaines. Le visage que j'avais cru voir dans les photos, dans les vêtements, dans les murs de sa maison. Le visage que je portais comme un masque depuis mon arrivée à Kerfany. Mon visage à moi, déformé. Usé par une vie que je n'avais pas vécue.
-
-— Clémence, a-t-elle dit.
-
-Sa voix m'a transpercée. Pas parce qu'elle ressemblait à la mienne — elle ne lui ressemblait plus. Elle était plus sourde, plus usée, comme une corde de guitare trop souvent accordée. Une voix qui avait trop parlé dans le noir, trop chuchoté, trop supplié peut-être. Je ne la reconnaissais pas. Et c'était ça, le plus effrayant : reconnaître le visage et pas la voix. Comme un décalage. Comme un masque posé sur un autre masque.
+Sa voix. Plus sourde. Usée. Une corde tendue trop longtemps.
 
 — Tu es vivante.
 
 — Évidemment.
 
-Elle a dit ça avec une lassitude tranquille. Comme si ma surprise l'ennuyait. Comme si la question elle-même était une impolitesse.
+Un mot. Plat. Comme si ma surprise l'ennuyait.
 
-Elle est descendue les deux marches du seuil. Chaque pas était calculé. Pas la démarche d'une mourante ni d'une fugitive. La démarche de quelqu'un qui rentre chez soi. Ses pieds connaissaient le sol. La première marche grinçait — elle l'évitait. La deuxième était bancale — elle posait le talon d'abord, pour compenser. Je connaissais ces gestes. Je les avais appris. Je les faisais moi-même, sans y penser, depuis des semaines. Elle marchait comme moi je marchais maintenant. Ou plutôt : je marchais comme elle. Le constat m'a donné la nausée.
+Elle est descendue les deux marches. Chaque pas connaissait le sol. La première — évitée. La deuxième — le talon d'abord. Exactement comme moi. Ou plutôt : exactement comme elle. Et moi qui avais appris.
 
-— Tu pensais vraiment qu'Ariane pouvait me remplacer ? Elle était bonne. Mais pas aussi bonne que moi.
+— Ariane, a-t-elle dit sans me regarder. Tu pensais vraiment qu'elle pouvait me remplacer ?
 
 — Pourquoi ? ai-je demandé. Pourquoi tout ça ?
 
-Ma voix craquait. Je sentais le couteau de chasse dans ma poche droite, lourd, inutile. Mes doigts tremblaient. Je ne savais pas pourquoi je tremblais — de peur, de colère, de soulagement. Tout se mélangeait. Tout se confondait dans ma poitrine comme des courants contraires.
+Le couteau de chasse pesait dans ma poche. Mes doigts tremblaient. J'ai fait un pas vers Malo — il était près de la fenêtre, immobile, les yeux fixes sur Charlotte. Pas de peur. Pas de reconnaissance. Ce regard qu'il avait depuis le début. Comme s'il savait.
 
-Charlotte s'est appuyée contre le chambranle de la porte. Elle a croisé les bras. L'attitude d'une prof qui s'apprête à donner une explication. Patient, presque pédagogique. Son regard balayait la cuisine — le carrelage, la table, les murs — avec une possessivité tranquille. Elle inspectait ce qui lui appartenait. Ce qui n'avait jamais cessé de lui appartenir.
+Charlotte s'est appuyée contre le chambranle. Elle a croisé les bras, puis les a décroisés. Le geste même de se tenir droite lui coûtait.
 
-— Parce que je t'ai assez regardée, Clémence. Toute ma vie, je t'ai regardée. Tu avais tout. La tendresse. La solitude choisie. La vie calme. Et moi, j'avais le bruit, les dettes, un mari qui me trompait, un enfant que je ne comprenais pas.
+— Tu te souviens de nos sept ans ? a-t-elle dit.
 
-— Gilles ?
+— Sept ans ?
 
-— Gilles n'est rien. Gilles est un mur. Un mur qui te regarde sans te voir.
+— Le jour de notre anniversaire. Maman t'a offert un appareil photo. Un vrai. Un Minolta. Pour moi, une poupée.
 
-Elle a marqué une pause. Sa mâchoire s'est crispée. Un tic que je connaissais — le même que le mien, le même que celui que j'avais vu dans le miroir sans comprendre d'où il venait.
+Je ne me souvenais pas. Mais en une seconde, la scène est apparue — l'emballage jaune, le boîtier argenté entre mes mains, et Charlotte à côté, une boîte rose sur les genoux.
 
-— Tu te souviens de l'été de nos dix-huit ans ? Tu lisais sur la plage. Tu n'avais besoin de personne. Moi, je devais appeler quatre amies pour supporter la même plage. Tu étais seule et tu étais complète. Je te détestais pour ça.
+— « Clémence est l'observatrice », elle a dit. « Charlotte est la poupée. »
 
-— Je ne le savais pas.
+— Je ne me souviens pas de ça.
 
-— C'est ça, le problème. Tu ne savais jamais. Tu étais trop occupée à être heureuse.
+— Toi, non. Moi, j'y pense tous les jours depuis vingt-cinq ans. « Observatrice. » « Poupée. » Un mot chacune. Et on est devenues ça.
 
-— Alors tu voulais ma vie ?
+Sa voix s'est fêlée. Un bref instant. Puis plus rien.
 
-— Je voulais ta paix. Et j'allais l'avoir.
+— Tu as eu les livres, la liberté, la vie calme. Moi, j'ai eu Paul, les dettes, un enfant qui ne me regardait pas.
 
-Elle a dit ça calmement. Sans colère. Sans regret. Comme un projet d'entreprise. Comme un business plan qu'on présente à des investisseurs. Il y avait dans sa voix cette certitude sèche des gens qui ont tout calculé, tout anticipé, et qui ne doutent plus de leur droit. Le droit de prendre. Le droit de remplacer.
+Le mot « enfant » est resté suspendu. Malo n'a pas cillé.
 
-L'air dans la cuisine était lourd. Il sentait la poussière, le café froid, et autre chose — une odeur métallique que je n'identifiais pas encore. Une odeur qui viendrait plus tard. Le sang.
+— Alors tu as décidé de prendre ma vie.
 
-Elle s'est approchée d'Ariane. Le mouvement était souple, fluide, celui de quelqu'un qui a toujours dominé les autres — non pas par la force, mais par la certitude. Une certitude absolue. Uniquement la sienne.
+— Pas ta vie. Ton droit. Le droit d'être celle qui regarde.
 
-— Tu as failli, a-t-elle dit à la fausse blonde. Tu étais censée être discrète. Laisser Clémence s'installer. Puis disparaître.
+J'ai sorti le couteau de ma poche. Le geste était lent. Mes doigts ne tremblaient plus.
 
-Ariane s'est levée. Sa chaise a raclé le carrelage. Le son a traversé la pièce comme un couteau. Son visage avait changé. Le masque patient s'était fissuré. En dessous, il y avait autre chose. Quelque chose de dur, de tranchant, de longtemps contenu. Une colère qui avait attendu son heure.
+Charlotte a vu la lame. Elle n'a pas cillé.
 
-— Je ne suis pas ton chien, Charlotte.
+— Depuis quand es-tu là ?
 
-— Si. Tu l'es. Tu as toujours été.
-
-— J'ai donné ma vie pour toi.
-
-— Pas encore.
-
-Les mots sont tombés entre elles. Poids. Mesure. Le compte d'un arrangement que je ne connaissais pas. Un arrangement qui datait d'avant moi, d'avant Kerfany, d'avant tout. Les deux femmes se faisaient face. Deux blondes. Deux silhouettes presque identiques. Deux versions de la même obsession. Deux reflets qui se haïssent dans un miroir brisé.
-
-Et moi, la troisième, debout dans la cuisine avec un couteau de chasse dans la main, invisible entre elles. La remplaçante de la remplaçante. La copie d'une copie. Celle qui n'avait même pas sa place dans un duel qu'elle n'avait pas choisi.
-
-J'ai serré la lame. Le manche en bois était humide — ma sueur. Je respirais par la bouche. Le vent battait contre les murs de la maison, régulier, comme un cœur géant qui ne s'arrêtait pas.
-
-Ariane n'avait pas bougé. Elle se tenait près de la table, les mains posées à plat sur le bois. Ses doigts étaient longs, fins, immobiles. Des doigts de pianiste ou de chirurgien. Des doigts qui avaient appris à imiter les miens. Je la regardais et je voyais mon reflet. Non. Pire. Je voyais un reflet de mon reflet. Une copie de la copie qu'on avait faite de moi. Le vertige m'a prise.
-
-— Depuis quand es-tu là ? ai-je demandé à Charlotte.
-
-— Depuis le début.
-
-— Le début de quoi ?
-
-— Depuis ton arrivée. Depuis le premier jour. Je t'ai regardée t'installer. Te promener dans le jardin. Porter mes pulls. Tu te souviens de la nuit où tu as cru voir quelqu'un dans le jardin ? C'était moi. Je dormais dans la chambre d'amis d'Inès. À cent mètres.
-
-Ma mâchoire s'est serrée. Le souvenir revenait — la silhouette, le mouvement derrière le buisson, la peur qui m'avait prise et que j'avais attribuée à la fatigue. Elle était là. Elle avait regardé. Elle avait attendu.
+— Depuis le début. Je dormais chez Inès. À cent mètres.
 
 — Tu m'as regardée.
 
-— Je t'ai étudiée. Comme tu m'as étudiée. La différence, c'est que moi, je savais ce que je cherchais.
+— Je t'ai étudiée. Porter mes pulls. Préparer le café que tu ne bois pas. Parler à Malo.
 
-Charlotte a souri. Un sourire qui n'atteignait pas ses yeux — comme celui de Faustine. Un sourire mécanique. Un sourire de convention.
+Elle a marqué une pause. Quelque chose est passé dans ses yeux. Pas de la peur. Autre chose.
+
+— Le jour où il t'a parlé. Pour toi. Jamais pour moi. Je me suis dit : peut-être que c'est mieux. Peut-être qu'il mérite quelqu'un qui sait lui répondre.
+
+Sa voix a baissé.
+
+— J'ai failli tout arrêter.
+
+Le mot m'a figée. Charlotte ne disait jamais « failli ». Jamais « peut-être ».
+
+— Mais il était trop tard, a-t-elle dit. Ariane avait déjà commencé. Les Doubles ne s'arrêtent pas parce qu'une femme change d'avis.
+
+Elle s'est tournée vers Ariane. Le mouvement était faible — un corps qui n'avait plus d'énergie — mais le regard était intact.
+
+— Toi. Tu as failli.
+
+Ariane s'est levée. La chaise a raclé le carrelage.
+
+— Trois ans que tu me promets—
+
+— Pas encore, a coupé Charlotte.
+
+Ariane a fait un pas. Charlotte a levé la main. Une main de malade. Une main qui tremblait. Mais Ariane s'est arrêtée.
+
+— C'est fini, a dit Charlotte. Pour toi. Pour moi.
+
+Puis elle s'est tournée vers moi. Son visage était le mien. Le même moule. Le même nez trop long. Les mêmes pommettes. Mais tout le reste — la posture, la fatigue, la reddition — tout le reste était elle.
+
+— Protège-le, a-t-elle dit. C'est tout ce que je te demande.
+
+J'ai serré le couteau. J'ai regardé Malo, debout près de la fenêtre, le visage tourné vers nous. Il ne pleurait pas. Il regardait. Comme s'il avait compris ce qu'aucun de nous ne comprenait encore.
 
 ---
 
@@ -4607,8 +4603,6 @@ Et je le savais. Maintenant, je le savais. Toutes ces années où elle m'avait r
 
 Je me suis assise sur le bord du lit. Le matelas était ferme, clinique. Le drap était tiré sur sa poitrine. Sa main droite, celle qui n'était pas blessée, tremblait légèrement. Elle ne la contrôlait pas. Elle ne la cachait pas non plus. Elle la laissait trembler. C'était nouveau. Charlotte qui laissait voir. Charlotte qui ne maîtrisait plus rien — ni son corps, ni son image, ni son récit.
 
-Je me suis assise sur le bord du lit. Le matelas était ferme, clinique. Le drap était tiré sur sa poitrine. Sa main droite, celle qui n'était pas blessée, tremblait légèrement.
-
 — Dis-moi la vérité. Juste une fois.
 
 Elle a fermé les yeux. Quand elle les a rouverts, ils étaient secs. Les larmes avaient été utilisées. Il n'en restait plus. Elle avait pleuré tout ce qu'il y avait à pleurer — dans l'ambulance, dans la garde à vue, dans la nuit, dans le couloir où Denise l'avait écoutée. Elle était à sec. Un réservoir vide.
@@ -4641,7 +4635,7 @@ Sa main a tremblé plus fort. Un instant. Puis elle s'est calmée.
 
 — Je sais. C'est pour ça que je l'ai laissé avec toi. Parce que toi, tu sauras.
 
-Le « tu sauras » est resté dans l'air. Pas comme une compliment. Comme une condamnation. Comme si elle me transférait la garde, le fardeau, l'amour — tout ce qu'elle n'avait pas su porter. Comme si l'enfant était un relais qu'elle me passait, et que la course continuerait, avec moi, ailleurs, sous un autre ciel, dans une autre odeur.
+Le « tu sauras » est resté dans l'air. Pas comme un compliment. Comme une condamnation. Comme si elle me transférait la garde, le fardeau, l'amour — tout ce qu'elle n'avait pas su porter. Comme si l'enfant était un relais qu'elle me passait, et que la course continuerait, avec moi, ailleurs, sous un autre ciel, dans une autre odeur.
 
 
 
@@ -4793,7 +4787,7 @@ J'ai emporté peu de choses.
 
 Le carnet. La photo de nous deux enfants, en maillot de bain, sur la plage de Kerfany, avant que tout ne se gâte. Nous avions cinq ans. Nous rions. Nos dents de lait brillaient. Nous étions identiques et nous ne le savions pas encore — pas comme une menace. Comme une évidence. Sur la photo, nos mains se touchent. Nos ombres se confondent. On ne sait plus où commence l'une, où finit l'autre. C'était ça, au début. Pas une substitution. Une complétude.
 
-La lettre bleue — celle qu'elle m'avait écrite et que je n'avais jamais reçue. Je l'avais trouvée au fond du bureau, dans le faux fond, avec les lettres des Doubles. Une lettre de Charlotte à Clémence, jamais envoyée. Je ne l'avais pas encore lue. Je la gardais pour le train.
+La seconde lettre bleue — celle qu'elle m'avait écrite et que je n'avais jamais reçue. Je l'avais trouvée au fond du bureau, dans le faux fond, avec les lettres des Doubles. Une lettre de Charlotte à Clémence, jamais envoyée. Je ne l'avais pas encore lue. Je la gardais pour le train.
 
 Et Malo.
 
@@ -4827,7 +4821,7 @@ Le train s'est mis en marche. Un sillage de ferraille et de vapeur. J'ai regard�
 
 Malo était assis à côté de moi. Son sac à dos posé sur les genoux. Sa baleine contre lui. Il regardait par la fenêtre, lui aussi. Il n'a pas dit au revoir. Pas à voix haute. Mais il a levé la main. Une petite main plaquée contre la vitre. Un au revoir muet. Un au revoir d'enfant qui ne sait pas encore qu'on ne revient jamais vraiment.
 
-J'ai sorti la lettre bleue de mon sac. Je l'ai tournée entre mes doigts. Le papier était doux, usé par les anses. L'encre avait un peu pâli. J'ai regardé l'écriture de Charlotte. Cette écriture que je connaissais par cœur. Cette écriture qui était la mienne, presque. Presque.
+J'ai sorti la seconde lettre de mon sac. Je l'ai tournée entre mes doigts. Le papier était doux, usé par les anses. L'encre avait un peu pâli. J'ai regardé l'écriture de Charlotte. Cette écriture que je connaissais par cœur. Cette écriture qui était la mienne, presque. Presque.
 
 Je ne l'ai pas ouverte. Pas tout de suite.
 
@@ -4900,7 +4894,7 @@ Je ressemble à quelqu'un qui a survécu.
 
 C'est déjà ça.
 
-La lettre bleue de Charlotte, je l'ai ouverte dans le train. Je l'ai lue une fois. Puis je l'ai refermée. Elle était courte. Trop courte. *« Si tu lis cette lettre, c'est que tu es dedans. Ce n'était pas un hasard. Je t'ai choisie parce que tu es la seule à pouvoir finir ce que j'ai commencé. Prends soin de Malo. Il est le seul qui ne ment jamais. »* C'était tout. Pas d'explication. Pas de pardon. Juste une ordonnance, et une plaie.
+La seconde lettre bleue, je l'ai ouverte dans le train. Je l'ai lue une fois. Puis je l'ai refermée. Elle était courte. Trop courte. *« Si tu lis cette lettre, c'est que tu es dedans. Ce n'était pas un hasard. Je t'ai choisie parce que tu es la seule à pouvoir finir ce que j'ai commencé. Prends soin de Malo. Il est le seul qui ne ment jamais. »* C'était tout. Pas d'explication. Pas de pardon. Juste une ordonnance, et une plaie.
 
 Ce matin, en sortant de la bibliothèque, j'ai reçu un appel. Numéro masqué. J'ai décroché. Personne. Un silence. Long. Pas un silence de mauvaise qualité, de mauvaise connexion. Un silence intentionnel. Quelqu'un qui écoutait. Quelqu'un qui ne voulait pas parler. Pas encore.
 
@@ -4930,7 +4924,7 @@ J'ai regardé la porte. J'ai vérifié la serrure. Rien. J'ai regardé par la fe
 
 Parce que je savais, au fond, que ce n'était pas fini. Que ça ne serait jamais fini. Que les mots *c'est déjà ça* n'étaient pas une fin. Juste une pause. Le genre de pause qui précède autre chose.
 
-La lettre bleue est dans le tiroir de la table, avec le carnet, la photo, et maintenant l'enveloppe blanche. Tout est dans ce tiroir. Tout ce qui pourrait répondre. Tout ce qui pourrait détruire.
+La seconde lettre bleue est dans le tiroir de la table, avec le carnet, la photo, et maintenant l'enveloppe blanche. Tout est dans ce tiroir. Tout ce qui pourrait répondre. Tout ce qui pourrait détruire.
 
 Je tire le tiroir. Je le referme. Je tire. Je referme.
 
