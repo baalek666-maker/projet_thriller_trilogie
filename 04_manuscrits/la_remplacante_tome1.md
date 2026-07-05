@@ -717,7 +717,7 @@ Le mot est tombé entre nous, lourd, comme une pierre qu'on lâche dans l'eau. P
 
 — Ma responsabilité, je l'assume. C'est pour ça que je te demande de t'installer dans la maison. Un an. Pour Malo. Pas pour Charlotte. Pas pour moi.
 
-J'ai regardé la maison. Le soleil commençait à percer derrière les nuages. Les vitres se sont mises à briller, aveuglantes, comme si la maison me regardait. Comme si elle avait attendu ce moment. Comme si elle savait que j'allais venir.
+J'ai regardé la maison. Le soleil commençait à percer derrière les nuages. Les vitres se sont mises à briller, aveuglantes, comme si la maison me regardait. Comme si elle savait que j'allais venir.
 
 — Je n'ai pas le droit de refuser, de toute façon.
 
@@ -1133,7 +1133,7 @@ Le premier coup d'œil m'a coupé le souffle.
 
 Des rangées de vêtements. Robes, blouses, pantalons, manteaux. Tous soigneusement rangés par couleur, comme les livres. Du blanc au noir, en passant par le bleu, le rose, le beige. Chaque cintre était espacé du suivant d'un même centimètre. Pas de froissement. Pas d'affaire oubliée au fond. Un musée de la garde-robe féminine. Un mausolée, plutôt. Un lieu où l'on venait voir ce qu'une femme avait été, pièce par pièce, couleur par couleur, saison par saison.
 
-L'air de l'armoire était légèrement plus frais que celui de la chambre. Comme si Charlotte y avait installé un climat particulier. Comme si les vêtements avaient besoin d'être conservés. Comme si les vêtements étaient un organisme vivant qu'il fallait maintenir dans un état de sommeil.
+L'air de l'armoire était légèrement plus frais que celui de la chambre. Comme si Charlotte y avait installé un climat particulier. Comme si les vêtements étaient un organisme vivant qu'il fallait maintenir en sommeil.
 
 Et sur chaque cintre, une étiquette.
 
@@ -1288,7 +1288,7 @@ J'ai souri malgré moi. Une grimace tordue qui ressemblait presque à un vrai so
 
 — C'était ma sœur.
 
-Il a hoché la tête, comme si cette information le rassurait. Comme si, enfin, quelque chose s'assemblait. Comme si, depuis qu'il ne parlait plus, il avait gardé en réserve une petite case vide, étiquetée « sœur », et que mes mots venaient enfin la remplir.
+Il a hoché la tête, comme si cette information le rassurait. Comme si, depuis qu'il ne parlait plus, il avait gardé en réserve une petite case vide, étiquetée « sœur », et que mes mots venaient enfin la remplir.
 
 — Tu vas devenir maman, maintenant ? a-t-il demandé.
 
@@ -1488,6 +1488,8 @@ J'ai refermé la porte. J'ai remis le verrou. Je suis retournée au lit.
 Je me suis rallongée.
 
 Mais je n'ai plus fermé l'œil.
+
+Paul n'avait pas appelé. Pas une fois depuis son départ. Pas pour Malo. Pas pour savoir si j'allais bien. J'avais son numéro, quelque part dans les contacts du téléphone de Charlotte, mais je ne l'avais pas cherché. Et lui non plus. Il avait posé les clés sur la table, serré son fils une dernière fois, et disparu. Comme si la maison était un poste qu'on quitte.
 
 J'ai attendu le matin en comptant les secondes, une par une, comme on compte les marches d'un escalier qu'on ne descend pas. Je n'ai pas bougé. Je n'ai pas toussé. Je n'ai pas retourné l'oreiller. Je suis restée immobile, les yeux ouverts, à fixer le plafond, à fixer l'ombre du store en lin qui bougeait contre le mur, à fixer le reflet de la lune sur la poignée de la porte.
 
@@ -1813,7 +1815,7 @@ La température était différente. Plus fraîche que dehors. Un froid humide qu
 
 Puis j'ai vu le mur.
 
-Tout le mur du fond était couvert de photos. Des centaines. Peut-être des milliers. Des photos de Charlotte, de Paul, de Malo. Des photos de famille. Des photos de vacances. Des photos de fêtes. Certaines imprimées sur papier glacé. D'autres tirées sur du papier ordinaire, gondolé par l'humidité. D'autres encore des captures d'écran, des images de surveillance, floues,(timestamp affiché en bas.
+Tout le mur du fond était couvert de photos. Des centaines. Peut-être des milliers. Des photos de Charlotte, de Paul, de Malo. Des photos de famille. Des photos de vacances. Des photos de fêtes. Certaines imprimées sur papier glacé. D'autres tirées sur du papier ordinaire, gondolé par l'humidité. D'autres encore des captures d'écran, des images de surveillance, floues (timestamp affiché en bas).
 
 Et des photos de moi.
 
@@ -2165,7 +2167,7 @@ La voix était faible, comme filtrée par du coton. Mais le timbre… le timbre 
 
 — Le jeu où tu deviens moi. Ou où tu meurs à ma place.
 
-J'ai serré le téléphone contre mon oreille. Le plastique était froid. Mon pouls cognait dans mes tempes. Les mots dansaient dans ma tête. *Mourir à ma place.* La voix disait *ma place*. Comme si Charlotte avait une place. Comme si elle avait un corps. Comme si elle était vivante.
+J'ai serré le téléphone contre mon oreille. Le plastique était froid. Mon pouls cognait dans mes tempes. Les mots dansaient dans ma tête. *Mourir à ma place.* La voix disait *ma place*. Comme si Charlotte avait une place, un corps. Comme si elle était vivante.
 
 — Tu n'es pas morte.
 
@@ -2244,7 +2246,7 @@ J'ai tiré doucement. Le bois a grogné dans ses gonds. Un son sourd, animal, qu
 
 Dedans, il y avait un carnet. Noir, avec un fermoir en cuivre usé. Il n'était pas poussiéreux. Quelqu'un l'avait tenu récemment. Ou l'avait nettoyé. Ou les deux.
 
-Le cuivre était tiède sous mon pouce. Comme si le carnet venait d'être refermé à l'instant. Comme si quelqu'un était sorti de la pièce juste avant que je n'entre. Comme si elle était encore là. Quelque part. Derrière moi. Derrière la porte. Derrière le mur.
+Le cuivre était tiède sous mon pouce. Comme si le carnet venait d'être refermé à l'instant. Comme si elle était encore là. Quelque part. Derrière moi. Derrière la porte. Derrière le mur.
 
 Je me suis retournée. Le couloir était vide. La lumière du matin commençait à filtrer par la fenêtre du palier, bleue, froide. Rien.
 
@@ -2372,7 +2374,7 @@ Pendant lesquelles j'ai entendu le réfrigérateur de Lucie ronronner dans son a
 
 — Comment tu sais ?
 
-Sa voix avait baissé. D'un cran. De deux. Elle murmurait maintenant. Comme si quelqu'un pouvait entendre. Comme si les murs de son appartement avaient des oreilles.
+Sa voix avait baissé. D'un cran. De deux. Elle murmurait maintenant. Comme si les murs de son appartement avaient des oreilles.
 
 J'ai senti mon pouls s'accélérer. Le sang cognait dans mes tempes. Le vent soufflait dans le micro du téléphone et brouillait sa voix. J'ai bouché le micro avec mon doigt pour qu'elle m'entende mieux.
 
@@ -2519,9 +2521,9 @@ Une femme a ouvert. Jeune, les cheveux rasés, des tatouages aux mains. Des anne
 
 — Je suis Clémence Barreau. La sœur de Charlotte Vaillant.
 
-Son visage n'a pas bougé. Pas un muscle. Pas un cil. Pas une ride qui se creuse ou s'efface. Comme si elle attendait cette visite depuis longtemps. Comme si elle savait que je viendrais. Comme si elle avait calculé le jour, l'heure, et même le pull que je portais.
+Son visage n'a pas bougé. Pas un muscle. Pas un cil. Pas une ride qui se creuse ou s'efface. Comme si elle attendait cette visite depuis longtemps. Comme si elle avait calculé le jour, l'heure, et même le pull que je portais.
 
-Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas. Lentement. Comme si elle vérifiait un croquis. Comme si elle comparait un objet réel à sa description. Comme si elle mesurait l'écart entre ce qu'on lui avait dit et ce qu'elle voyait. Ses yeux se sont arrêtés sur mes cheveux. Sur mes mains. Sur la bosse de mon pull, là où le carnet était caché. Elle a vu. Elle a su. Elle n'a rien dit.
+Elle ne m'a pas fait entrer tout de suite. Elle m'a regardée de haut en bas. Lentement. Comme si elle vérifiait un croquis. Comme si elle mesurait l'écart entre ce qu'on lui avait dit et ce qu'elle voyait. Ses yeux se sont arrêtés sur mes cheveux. Sur mes mains. Sur la bosse de mon pull, là où le carnet était caché. Elle a vu. Elle a su. Elle n'a rien dit.
 
 — Ah, a-t-elle dit enfin. La remplaçante.
 
@@ -2572,7 +2574,7 @@ Elle a versé quand même. Deux tasses. La vapeur a grimpé entre nous comme un 
 
 Elle s'est assise en face de moi, les jambes croisées. Ses tatouages descendaient jusqu'aux poignets. Des mots dans une langue que je n'ai pas reconnue. Des lettres fines, serrées, qui s'enroulaient autour de ses veines. Des phrases peut-être. Des incantations. Des noms.
 
-J'ai voulu lire les mots. Elle a retourné ses mains. Lentement. Comme si elle avait senti mon regard. Comme si les mots étaient privés. Comme si les mots n'étaient pas pour moi.
+J'ai voulu lire les mots. Elle a retourné ses mains. Lentement. Comme si elle avait senti mon regard. Comme si les mots n'étaient pas pour moi.
 
 — Charlotte m'a parlé de toi. Avant l'accident.
 
@@ -2610,7 +2612,7 @@ Elle a souri. Un sourire qui n'atteignait pas ses yeux. Un sourire de façade. U
 
 — Tu penses que c'est rare ? Non. La moitié des gens qui viennent me voir veulent exactement ça. Un double. Une ombre. Quelqu'un pour porter le poids à leur place.
 
-J'ai sorti le carnet. Il était lourd dans ma main. Plus lourd que la veille. Comme si les mots avaient absorbé l'humidité de ma peau. Comme si le carnet avait grossi pendant la nuit. Je l'ai posé sur la table basse, entre les deux tasses. Faustine ne l'a pas touché. Elle l'a regardé. Ses yeux sont restés dessus une seconde. Deux. Puis elle les a relevés vers moi. Sans surprise. Sans émotion. Comme si elle avait déjà vu ce carnet. Comme si elle en avait lu chaque page.
+J'ai sorti le carnet. Il était lourd dans ma main. Plus lourd que la veille. Comme si les mots avaient absorbé l'humidité de ma peau, comme si le carnet avait grossi pendant la nuit. Je l'ai posé sur la table basse, entre les deux tasses. Faustine ne l'a pas touché. Elle l'a regardé. Ses yeux sont restés dessus une seconde. Deux. Puis elle les a relevés vers moi. Sans surprise. Sans émotion. Comme si elle en avait déjà lu chaque page.
 
 — Elle m'a surveillée pendant des années.
 
@@ -2640,7 +2642,7 @@ Elle a posé sa tasse. Le fond a cliqué contre la soucoupe. Un son minuscule, p
 
 — C'est ce que disent toutes les remplaçantes. Au début.
 
-Elle m'a regardée. Longtemps. Comme si elle attendait que je comprenne moi-même quelque chose que je refusais encore de voir. Comme si la réponse était là, devant moi, écrite sur ma propre peau, et que je n'osais pas baisser les yeux.
+Elle m'a regardée. Longtemps. Comme si la réponse était là, devant moi, écrite sur ma propre peau, et que je n'osais pas baisser les yeux.
 
 J'ai baissé les yeux.
 
@@ -2778,7 +2780,7 @@ Le temps. Inès parlait du temps comme on parle d'un remède. Comme si le temps,
 
 Elle a placé une caméra dans le couloir, une dans le salon, une devant la porte d'entrée. Des petites sphères noires, discrètes. J'ai pensé aux yeux de Charlotte, partout, tout le temps. Une surveillance qui ne dormait jamais. Qui ne clignait jamais. Qui enregistrait tout, même mes silences, même mes hésitations, même la façon dont je me tenais debout dans ma propre cuisine, les bras ballants, sans savoir quoi faire de mes mains.
 
-Elle travaillait en silence. Un tournevis. Des fils. Des vis qu'elle enfonçait dans le plâtre sans mesurer. Elle savait où. Comme si elle connaissait les angles. Comme si elle les avait déjà choisis. Comme si elle les avait répétés, dans une autre maison, dans une autre vie, avec une autre femme qui portait mon visage.
+Elle travaillait en silence. Un tournevis. Des fils. Des vis qu'elle enfonçait dans le plâtre sans mesurer. Elle savait où. Comme si elle connaissait les angles. Comme si elle les avait répétés, dans une autre maison, dans une autre vie, avec une autre femme qui portait mon visage.
 
 — Tu as déjà regardé les enregistrements ? ai-je demandé.
 
@@ -3071,7 +3073,7 @@ Dedans, des dessins d'enfants. Des cahiers. Des photos. Le métal sentait le ren
 
 — Regarde, a-t-elle dit.
 
-Elle m'a tendu un dessin. Deux petites filles, côte à côte. L'une souriait. L'autre avait le visage griffé au stylo. Les yeux étaient troués. Le papier était percé, là où auraient dû être les yeux. Comme si Charlotte avait voulu non pas effacer, mais arracher. Comme si l'image de l'autre, de moi, était insupportable à regarder. Comme si mon regard, même sur un dessin, même fait de crayon et de papier, était trop. Trop présent. Trop vivant. Trop aimé.
+Elle m'a tendu un dessin. Deux petites filles, côte à côte. L'une souriait. L'autre avait le visage griffé au stylo. Les yeux étaient troués. Le papier était percé, là où auraient dû être les yeux. Comme si Charlotte avait voulu non pas effacer, mais arracher. Comme si mon regard, même sur un dessin, même fait de crayon et de papier, était trop. Trop présent. Trop vivant. Trop aimé.
 
 — Charlotte a fait ça à cinq ans. Elle griffait ton visage sur toutes les photos de famille.
 
@@ -3133,7 +3135,7 @@ Le café dans ma tasse avait complètement refroidi. Une pellicule marron, comme
 
 J'ai repris la tasse. La porcelaine a cliqué. Un son minuscule. Le son de quelque chose qui se termine, ou qui commence.
 
-Denise a regardé le fond de sa propre tasse. Comme si elle y cherchait une réponse. Comme si le marc de café pouvait lui dire ce que sa bouche refusait de dire. Ses lèvres étaient serrées. Les plis autour de sa bouche s'étaient creusés encore. Chaque mot qu'elle ne disait pas la vieillissait un peu plus. Chaque silence la marquait.
+Denise a regardé le fond de sa propre tasse. Comme si le marc de café pouvait lui dire ce que sa bouche refusait de dire. Ses lèvres étaient serrées. Les plis autour de sa bouche s'étaient creusés encore. Chaque mot qu'elle ne disait pas la vieillissait un peu plus. Chaque silence la marquait.
 
 — Il y a autre chose, a-t-elle dit.
 
@@ -3214,7 +3216,7 @@ La première, datée de l'année précédente.
 
 *« Ma chère Charlotte, je comprends ta douleur. Être celle qu'on a rejetée n'est jamais facile. Mais tu dois savoir que tu n'es pas seule. Nous existons. Les Doubles. Nous pouvons t'aider à devenir celle que tu aurais dû être. »*
 
-J'ai reposé la lettre. Mes doigts tremblaient. Pas de peur. De colère. Une colère sourde, qui montait depuis le fond de moi, depuis l'enfance peut-être, depuis l'escalier. Celle que tu aurais dû être. Comme si Charlotte avait été volée. Comme si on lui avait pris sa place, sa vie, son visage. Comme si j'étais la voleuse. Comme si ma naissance, deux minutes avant la sienne, avait été un crime.
+J'ai reposé la lettre. Mes doigts tremblaient. Pas de peur. De colère. Une colère sourde, qui montait depuis le fond de moi, depuis l'enfance peut-être, depuis l'escalier. Celle que tu aurais dû être. Comme si on lui avait pris sa place, sa vie, son visage. Comme si j'étais la voleuse. Comme si ma naissance, deux minutes avant la sienne, avait été un crime.
 
 La deuxième, six mois plus tard.
 
@@ -3347,7 +3349,7 @@ Mais je n'ai rien trouvé. Rien que ce petit grain. Ce nœud dans la corde. Et m
 
 *Pour l'instant.* Deux mots. Deux mots qui contenaient un avenir. Un avenir où je n'existais plus. Un avenir où quelqu'un d'autre portait mon nom, mes vêtements, mon odeur, ma vie. Un avenir où une femme qui n'était pas moi se levait le matin dans un appartement de Rennes, allait à la bibliothèque, rangeait les livres par cote, sentait le papier vieilli, touchait les reliures de 1887. Un avenir où cette femme rentrait le soir, se faisait un café qu'elle ne buvait pas, regardait la pellicule marron se former, et dormait dans mes draps. Mon avenir. Volé. Occupé. Habité par quelqu'un d'autre.
 
-J'ai voulu crier. La colère était là, juste sous la surface. Une colère de trente ans. Contre Charlotte. Contre ma mère. Contre cette femme debout dans mon couloir qui me disait *pour l'instant* comme on dit *demain* ou *après-demain* ou *bientôt*. Comme si ma disparition était programmée. Comme si j'avais une date de péremption. Comme si j'étais un produit qu'on remplace.
+J'ai voulu crier. La colère était là, juste sous la surface. Une colère de trente ans. Contre Charlotte. Contre ma mère. Contre cette femme debout dans mon couloir qui me disait *pour l'instant* comme on dit *demain* ou *après-demain* ou *bientôt*. Comme si ma disparition était programmée. Comme si j'étais un produit qu'on remplace.
 
 Mais je n'ai pas crié. J'ai serré les poings. Les ongles dans les paumes. La douleur m'a tenue. La douleur était réelle. La douleur m'appartenait.
 
@@ -3492,7 +3494,7 @@ La respiration a continué. Calme. Patient. Comme un chat qui guette un oiseau. 
 
 La ligne a coupé.
 
-J'ai baissé le téléphone. L'écran s'est rallumé une seconde, puis s'est éteint. Pas de numéro. Pas de trace. Comme si l'appel n'avait jamais existé. Comme si j'avais imaginé la respiration. Mais ma main tremblait. Mon pouls battait dans ma gorge. Quelque chose d'aigu, de métallique, montait derrière mes yeux.
+J'ai baissé le téléphone. L'écran s'est rallumé une seconde, puis s'est éteint. Pas de numéro. Pas de trace. Comme si j'avais imaginé la respiration. Mais ma main tremblait. Mon pouls battait dans ma gorge. Quelque chose d'aigu, de métallique, montait derrière mes yeux.
 
 Ça a duré quarante secondes. Peut-être moins. Mais quarante secondes suffisent.
 
@@ -4068,7 +4070,7 @@ Je ne sais pas à qui je parlais. À elle. À moi. À quelqu'un qui n'était pas
 
 La porte d'entrée était restée ouverte. Le vent entrait par rafales. Il apportait l'odeur de la mer. Sel. Varech. Iode. Un parfam de Bretagne qui n'avait rien à faire ici, dans cette cuisine qui sentait le fer et la poudre.
 
-Ariane était assise contre le mur. Le pistolet, je l'avais repoussé du pied, loin d'elle. Elle n'avait pas bougé. Elle ne bougerait pas. Elle me regardait. Elle me regardait avec une intensité calme, presque douée. Comme si elle prenait des notes. Comme si elle apprenait. Comme si elle se souvenait de moi pour plus tard.
+Ariane était assise contre le mur. Le pistolet, je l'avais repoussé du pied, loin d'elle. Elle n'avait pas bougé. Elle ne bougerait pas. Elle me regardait. Elle me regardait avec une intensité calme, presque douée. Comme si elle apprenait. Comme si elle se souvenait de moi pour plus tard.
 
 Ça m'a glacée. Plus que le sang. Plus que le froid. Ce regard.
 
@@ -4084,7 +4086,7 @@ L'un d'eux m'a prise par les épaules. Doucement. Il m'a écartée. Mes mains on
 
 Ils ont emmené Charlotte sur un brancard. Un masque sur le visage. Le bleu de l'uniforme des secouristes contrastait avec le blanc de sa peau. Elle avait les yeux fermés, maintenant. Je ne savais pas si elle dormait ou si elle avait perdu connaissance. La différence ne changeait rien. Elle partait. Elle partait dans une ambulance, et moi je restais debout dans une cuisine qui ressemblait à un abattoir.
 
-La police a emmené Ariane. Menottée. Elle n'a pas résisté. Elle souriait encore. Ce sourire que je ne comprendrais jamais — pas un sourire de triomphe, ni de défaite. Le sourire de quelqu'un qui a joué une partie et qui, même en perdant, trouve le résultat intéressant. Comme si rien de tout ça n'était sérieux. Comme si c'était un jeu. Comme si Charlotte, le sang, Malo, moi — tout ça n'était que des pions sur un plateau qu'elle rangerait plus tard.
+La police a emmené Ariane. Menottée. Elle n'a pas résisté. Elle souriait encore. Ce sourire que je ne comprendrais jamais — pas un sourire de triomphe, ni de défaite. Le sourire de quelqu'un qui a joué une partie et qui, même en perdant, trouve le résultat intéressant. Comme si rien de tout ça n'était sérieux, comme un jeu. Comme si Charlotte, le sang, Malo, moi — tout ça n'était que des pions sur un plateau qu'elle rangerait plus tard.
 
 Un policier l'a fait monter dans la voiture. Portière. Clic. Elle a tourné la tête vers moi à travers la vitre. Elle m'a regardée une dernière fois. Puis le véhicule est parti, gyrophares éteints, silencieux. Comme si elle n'avait jamais été là.
 
@@ -4131,7 +4133,7 @@ L'odeur de désinfectant imprégnait tout — mes cheveux, mes vêtements, ma pe
 
 Inès avait emmené Malo. Elle m'a envoyé un message : *« Il dort. On est chez moi. Ne t'inquiète pas. »*
 
-Ne pas s'inquiéter. Comme si c'était possible. Comme si quelqu'un pouvait ne pas s'inquiéter. Mon fils — pas mon fils — dormait chez une femme qui avait trahi ma confiance, dans une maison que je ne connaissais pas, après avoir vu sa mère se faire tirer dessus. Non. Je ne m'inquiétais pas.
+Ne pas s'inquiéter. Comme si quelqu'un pouvait ne pas s'inquiéter. Mon fils — pas mon fils — dormait chez une femme qui avait trahi ma confiance, dans une maison que je ne connaissais pas, après avoir vu sa mère se faire tirer dessus. Non. Je ne m'inquiétais pas.
 
 J'ai regardé par la fenêtre du couloir. Le ciel devenait rose au-dessus de la baie. Les nuages s'étaient dégagés. Une lumière douce, presque tendre, se posait sur la ville. Le genre de lever de soleil qui donne envie de croire que tout va bien. Mais tout n'allait pas bien. Rien n'allait bien. Une femme avait été tirée. Une autre était en garde à vue. Un enfant dormait chez une étrangère. Et moi, je restais là, les mains sales, attendant des nouvelles d'une sœur qui m'avait volé mon visage.
 
@@ -4189,7 +4191,7 @@ Il est parti. J'ai regardé la porte. Je ne suis pas entrée.
 
 Je suis redescendue dans le hall. Les néons y étaient moins agressifs. Une lumière naturelle entrait par les baies vitrées. Le soleil était levé, maintenant. La baie scintillait. Les bateaux immobiles sur l'eau. Des mouettes tournaient au-dessus du port.
 
-Le monde continuait. Comme si de rien n'était. Comme si, pendant que je perdais ma sœur et que je la retrouvais et que je la perdais encore, le monde avait continué de tourner. Les gens allaient travailler. Les bateaux sortaient du port. Les mouettes cherchaient du poisson. Rien ne s'arrête. Jamais. Pas même pour le pire jour de votre vie.
+Le monde continuait. Comme si, pendant que je perdais ma sœur et que je la retrouvais et que je la perdais encore, le monde avait continué de tourner. Les gens allaient travailler. Les bateaux sortaient du port. Les mouettes cherchaient du poisson. Rien ne s'arrête. Jamais. Pas même pour le pire jour de votre vie.
 
 J'ai sorti mon téléphone. L'écran s'est allumé. Trois messages d'Inès. Un de ma mère — ma mère, qui ne savait rien, qui ne saurait jamais rien, à qui je ne pourrais jamais rien expliquer. Un numéro inconnu. Et un appel manqué de Lucie, avec un vocal.
 
@@ -4678,7 +4680,7 @@ J'ai failli rire. Pas un rire joyeux. Un rire sec. Un rire de reconnaissance. Pa
 
 — Oui.
 
-Le mot est tombé. Lourd. Définitif. Charlotte ne niait plus. Ne se justifiait plus. Elle énonçait les faits, un par un, comme si elle les lisait dans un dossier. Comme si elle se racontait de l'extérieur. Comme si elle s'était déjà quittée elle-même.
+Le mot est tombé. Lourd. Définitif. Charlotte ne niait plus. Ne se justifiait plus. Elle énonçait les faits, un par un, comme si elle les lisait dans un dossier. Comme si elle s'était déjà quittée elle-même.
 
 Il y a eu un silence. Long. Le genre de silence qui pèse plus que les mots. Le genre de silence qu'on n'ose pas couper, parce que le couper, ce serait admettre qu'on a quelque chose à dire. Et je n'avais rien à dire. Pas encore.
 
@@ -4722,7 +4724,7 @@ Elle a ouvert les yeux. Des yeux surpris. Des yeux qui ne s'attendaient pas à �
 
 Elle a ri. Un rire bref. Sans joie. Un rire qui ressemblait à un hoquet, à un sanglot qui aurait fait demi-tour.
 
-— Tu n'as pas changé, a-t-elle dit. Tu as toujours cette façon de dire les choses. Comme si elles étaient simples. Comme si elles étaient évidentes. Comme si le monde était lisible.
+— Tu n'as pas changé, a-t-elle dit. Tu as toujours cette façon de dire les choses. Comme si elles étaient simples, évidentes. Comme si le monde était lisible.
 
 — Il ne l'est pas. Mais je fais avec.
 
@@ -4910,7 +4912,7 @@ J'ai regardé mon téléphone. *Numéro masqué. Appel manqué.* J'ai supprimé 
 
 Ce soir, en rentrant, j'ai trouvé une enveloppe dans la boîte aux lettres. Pas de timbre. Pas d'expéditeur. Glissée à la main, sous la porte de l'immeuble. Une enveloppe blanche, sans nom, sans adresse. Juste mes initiales. *C.*
 
-À l'intérieur, une feuille. Pliee en quatre. Un seul mot, écrit à la machine.
+À l'intérieur, une feuille. Pliée en quatre. Un seul mot, écrit à la machine.
 
 *CHAÎNONS.*
 
