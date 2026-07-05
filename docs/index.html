@@ -9,12 +9,15 @@
   <meta name="theme-color" content="#09090b">
   <link rel="preconnect" href="https://fonts.googleapis.com">
   <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin>
-  <link href="https://fonts.googleapis.com/css2?family=Instrument+Serif:ital@0;1&family=Inter:wght@400;500;600;700;800;900&display=swap" rel="stylesheet">
+  <link href="https://fonts.googleapis.com/css2?family=Instrument+Serif:ital@0;1&family=Inter:wght@300;400;500;600;700;800;900&display=swap" rel="stylesheet">
 </head>
 <body>
 
+  <!-- Noise texture overlay -->
+  <div class="noise-overlay"></div>
+
   <!-- ===== NAV ===== -->
-  <header class="nav">
+  <header class="nav" id="nav">
     <div class="container nav-inner">
       <span class="nav-logo">S. Varo Rosen</span>
       <nav class="nav-links">
@@ -28,9 +31,10 @@
 
   <!-- ===== HERO ===== -->
   <section class="hero">
+    <div class="hero-glow"></div>
     <div class="container hero-grid">
       <!-- Book mockup -->
-      <div class="hero-book">
+      <div class="hero-book reveal">
         <div class="book-cover">
           <div class="book-spine"></div>
           <div class="book-front">
@@ -40,23 +44,30 @@
             <div class="blue-letter"></div>
           </div>
         </div>
+        <div class="book-glow"></div>
       </div>
 
       <!-- Hero copy -->
-      <div class="hero-copy">
-        <div class="badge badge-blue">Thriller psychologique · Bretagne</div>
+      <div class="hero-copy reveal" data-delay="200">
+        <div class="badge badge-blue">
+          <span class="badge-pulse"></span>
+          Thriller psychologique · Bretagne
+        </div>
         <h2 class="hero-headline">
           On lui a dit que sa sœur était morte.
-          <span class="muted-inline">Personne ne lui a dit qu'elle avait été remplacée.</span>
+          <span class="hero-headline-accent">Personne ne lui a dit qu'elle avait été remplacée.</span>
         </h2>
         <p class="hero-lead">
           Clémence reçoit une lettre de sa sœur jumelle. Sa sœur est censée être morte depuis des années. Quand elle rentre en Bretagne, elle trouve une femme dans la maison familiale. Son visage. Son nom. Sa vie.
         </p>
-        <p class="hero-lead">
+        <p class="hero-lead hero-lead-punch">
           Et la petite fille la regarde comme si maman était enfin rentrée.
         </p>
         <div class="hero-actions">
-          <a href="#acheter" class="btn btn-primary">Commander sur Amazon</a>
+          <a href="#acheter" class="btn btn-primary">
+            Commander sur Amazon
+            <svg width="16" height="16" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2"><path d="M5 12h14M12 5l7 7-7 7"/></svg>
+          </a>
           <a href="#extrait" class="btn btn-outline">Lire le premier chapitre</a>
         </div>
         <div class="hero-meta">
@@ -64,33 +75,37 @@
           <span class="meta-sep"></span>
           <span class="meta-item"><strong>Broché</strong> 14,99€</span>
           <span class="meta-sep"></span>
-          <span class="meta-item"><strong>47 chapitres</strong> · 60 000 mots</span>
+          <span class="meta-item"><strong>47 chapitres</strong> · 60k mots</span>
         </div>
       </div>
+    </div>
+    <div class="scroll-hint">
+      <span>Scroll</span>
+      <div class="scroll-line"></div>
     </div>
   </section>
 
   <!-- ===== PROBLEM (persona) ===== -->
   <section class="section" id="le-livre">
     <div class="container container-narrow">
-      <div class="section-label">
+      <div class="section-label reveal">
         <span class="label-dot"></span>
         Le problème
       </div>
-      <h2 class="section-heading">
+      <h2 class="section-heading reveal">
         Tu devines toujours le twist. <span class="muted">Avant la fin.</span>
       </h2>
       <div class="prose">
-        <p>
+        <p class="reveal">
           Tu sais ce que c'est. Tu commences un thriller. Tu accroches. Tu t'investis. Et quelque part autour de 40%, tu vois venir le twist. Tu te tais. Tu continues. Tu espères te tromper.
         </p>
-        <p>
+        <p class="reveal">
           Tu te trompes pas.
         </p>
-        <p>
+        <p class="reveal">
           Les 60% restants, tu les parcours par fidélité au genre. Pas par plaisir. Tu finis le livre. Tu le poses. Deux semaines plus tard, tu ne te souviens plus du titre.
         </p>
-        <p>
+        <p class="reveal">
           Ce n'est pas de ta faute. C'est que la plupart des thrillers sont construits comme des puzzles : si tu trouves la pièce manquante, tout le reste n'est plus que procédure.
         </p>
       </div>
@@ -100,27 +115,25 @@
   <!-- ===== AGITATE ===== -->
   <section class="section section-elevated">
     <div class="container container-narrow">
-      <div class="section-label">
+      <div class="section-label reveal">
         <span class="label-dot label-dot-orange"></span>
         Le prochain livre
       </div>
-      <h2 class="section-heading">
+      <h2 class="section-heading reveal">
         Le prochain thriller te promettra <span class="muted">« le twist de l'année ».</span>
       </h2>
       <div class="prose">
-        <p>
+        <p class="reveal">
           Il sera sur la liste des « coups de cœur ». Il aura une couverture magnifique. Quelqu'un sur Instagram dira « je ne l'ai pas vu venir ».
         </p>
-        <p>
+        <p class="reveal">
           Tu l'achèteras. Tu liras le premier chapitre. Tu sentiras l'excitation revenir. Celle que tu as eue avec <em>Gone Girl</em>. Avec <em>The Guest List</em>. Cette tension dans le ventre qui dit : cette fois, peut-être.
         </p>
-        <p>
+        <p class="reveal">
           Et puis le chapitre 5 arrivera. Le chapitre 10. Tu commenceras à chercher l'indice. Tu le trouveras. Tu finiras le livre. Tu refermeras la dernière page avec ce sentiment que tu connais trop bien.
         </p>
-        <p class="prose-punch">
-          Encore un.
-        </p>
-        <p>
+        <p class="prose-punch reveal">Encore un.</p>
+        <p class="reveal">
           Tu ne cherches pas un bon livre. Tu en as lu des bons. Tu cherches le livre qui va te rappeler pourquoi tu aimes ce genre.
         </p>
       </div>
@@ -131,36 +144,40 @@
   <section class="section" id="pourquoi">
     <div class="container">
       <div class="container-narrow">
-        <div class="section-label">
+        <div class="section-label reveal">
           <span class="label-dot"></span>
           La réponse
         </div>
-        <h2 class="section-heading section-heading-center">
-          La Remplaçante ne cache pas un twist. <br>Elle cache la question.
+        <h2 class="section-heading section-heading-center reveal">
+          La Remplaçante ne cache pas un twist.<br>
+          <span class="text-gradient">Elle cache la question.</span>
         </h2>
-        <p class="section-sub">
+        <p class="section-sub reveal">
           La plupart des thrillers te demandent « qui a fait quoi ». La Remplaçante te demande « qui EST qui ». Et tu ne peux pas répondre parce que la femme qui raconte n'est peut-être pas celle qu'elle prétend être.
         </p>
       </div>
 
       <!-- 3 pillars -->
       <div class="pillars">
-        <div class="card pillar">
-          <div class="pillar-icon">01</div>
+        <div class="card pillar reveal" data-delay="0">
+          <div class="pillar-number">01</div>
+          <div class="pillar-line"></div>
           <h3 class="pillar-title">Vertige identitaire</h3>
           <p class="pillar-text">
             Pas de commissaire. Pas de suspects à éliminer. Deux femmes avec le même visage dans la même maison. Tu ne résous pas une affaire. Tu doutes de tout.
           </p>
         </div>
-        <div class="card pillar">
-          <div class="pillar-icon">02</div>
+        <div class="card pillar reveal" data-delay="100">
+          <div class="pillar-number">02</div>
+          <div class="pillar-line"></div>
           <h3 class="pillar-title">47 chapitres. Zéro temps mort.</h3>
           <p class="pillar-text">
             60 000 mots. Pas de description qui meuble. Pas de flashback de 20 pages. Chaque chapitre a un seul job : te tirer vers le suivant. Tu regardes ta montre, il est 3h du matin.
           </p>
         </div>
-        <div class="card pillar">
-          <div class="pillar-icon">03</div>
+        <div class="card pillar reveal" data-delay="200">
+          <div class="pillar-number">03</div>
+          <div class="pillar-line"></div>
           <h3 class="pillar-title">Narratrice peu fiable</h3>
           <p class="pillar-text">
             Clémence ne ment pas par omission. Elle raconte les bonnes choses dans le mauvais ordre. Quand tu t'en rends compte, tu voudras relire depuis le début.
@@ -172,8 +189,9 @@
 
   <!-- ===== THE LETTER (visual break) ===== -->
   <section class="letter-section">
+    <div class="letter-bg-glow"></div>
     <div class="container container-narrow">
-      <div class="letter-card">
+      <div class="letter-card reveal">
         <div class="letter-header">
           <span class="badge badge-blue-sm">Lettre · sans expéditeur</span>
         </div>
@@ -182,6 +200,7 @@
           c'est que je suis morte. »
         </p>
         <p class="letter-attr">— Charlotte</p>
+        <div class="letter-seal"></div>
       </div>
     </div>
   </section>
@@ -189,29 +208,41 @@
   <!-- ===== PROOF (founder evidence) ===== -->
   <section class="section section-elevated" id="extrait">
     <div class="container container-narrow">
-      <div class="section-label">
+      <div class="section-label reveal">
         <span class="label-dot label-dot-orange"></span>
         Avant d'acheter
       </div>
-      <h2 class="section-heading">Ce que tu peux vérifier.</h2>
+      <h2 class="section-heading reveal">Ce que tu peux vérifier.</h2>
 
       <div class="proof-cards">
-        <div class="card proof-card">
+        <div class="card proof-card reveal">
+          <div class="proof-icon">
+            <svg width="20" height="20" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.5"><path d="M2 3h6a4 4 0 0 1 4 4v14a3 3 0 0 0-3-3H2zM22 3h-6a4 4 0 0 0-4 4v14a3 3 0 0 1 3-3h7z"/></svg>
+          </div>
           <h3 class="proof-title">Le premier chapitre est gratuit</h3>
           <p class="proof-text">
             Lis les premières pages. Si tu n'es pas accrochée au bout du chapitre 3, ne fais pas confiance à cette page. Le livre ne changera pas de ton. Le chapitre 1 est le contrat.
           </p>
-          <a href="https://github.com/baalek666-maker/projet_thriller_trilogie/blob/main/05_livrables/La_Remplacante_Tome1.pdf" target="_blank" class="proof-link">Lire le premier chapitre →</a>
+          <a href="https://github.com/baalek666-maker/projet_thriller_trilogie/blob/main/05_livrables/La_Remplacante_Tome1.pdf" target="_blank" class="proof-link">
+            Lire le premier chapitre
+            <svg width="14" height="14" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2"><path d="M5 12h14M12 5l7 7-7 7"/></svg>
+          </a>
         </div>
 
-        <div class="card proof-card">
+        <div class="card proof-card reveal" data-delay="100">
+          <div class="proof-icon">
+            <svg width="20" height="20" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.5"><path d="M9 11l3 3L22 4"/><path d="M21 12v7a2 2 0 0 1-2 2H5a2 2 0 0 1-2-2V5a2 2 0 0 1 2-2h11"/></svg>
+          </div>
           <h3 class="proof-title">Structure vérifiable</h3>
           <p class="proof-text">
             47 chapitres courts. Deux voix narratives entrelacées. Narration à la première personne, présent. Pas de demi-tour stylistique au milieu.
           </p>
         </div>
 
-        <div class="card proof-card">
+        <div class="card proof-card reveal" data-delay="200">
+          <div class="proof-icon">
+            <svg width="20" height="20" viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.5"><path d="M22 17a2 2 0 0 1-2 2H4a2 2 0 0 1-2-2V7a2 2 0 0 1 2-2h16a2 2 0 0 1 2 2z"/><path d="M12 12.75l1.63 1 1.37-.75"/></svg>
+          </div>
           <h3 class="proof-title">Comparables</h3>
           <p class="proof-text">
             Si tu as aimé <em>Gone Girl</em>, <em>The Guest List</em>, <em>Robe de Marié</em>, <em>Big Little Lies</em>. Si tu n'as pas aimé ces livres, celui-ci n'est probablement pas pour toi. On préfère te le dire.
@@ -223,12 +254,13 @@
 
   <!-- ===== CTA ===== -->
   <section class="cta-section" id="acheter">
+    <div class="cta-glow"></div>
     <div class="container container-narrow cta-inner">
-      <h2 class="cta-heading">Tu veux savoir qui est Clémence ?</h2>
-      <p class="cta-sub">
+      <h2 class="cta-heading reveal">Tu veux savoir qui est Clémence ?</h2>
+      <p class="cta-sub reveal">
         Un thriller psychologique qui ne te prend pas pour une idiote. 47 chapitres. Deux voix. Une question que tu ne pourras pas lâcher.
       </p>
-      <div class="buy-options">
+      <div class="buy-options reveal">
         <a href="https://www.amazon.fr/dp/EXEMPLE-KINDLE" target="_blank" class="btn btn-primary btn-lg">
           Ebook — 4,99€
           <span class="btn-sub">Amazon Kindle</span>
@@ -238,38 +270,53 @@
           <span class="btn-sub">Amazon</span>
         </a>
       </div>
-      <p class="cta-note">Disponible immédiatement · Tome 2 en cours d'écriture</p>
+      <p class="cta-note reveal">Disponible immédiatement · Tome 2 en cours d'écriture</p>
     </div>
   </section>
 
   <!-- ===== FAQ ===== -->
   <section class="section" id="faq">
     <div class="container container-narrow">
-      <div class="section-label">
+      <div class="section-label reveal">
         <span class="label-dot"></span>
         Questions
       </div>
-      <h2 class="section-heading">Les objections honnêtes.</h2>
+      <h2 class="section-heading reveal">Les objections honnêtes.</h2>
 
       <div class="faq-list">
-        <details class="faq-item">
-          <summary>C'est un autre thriller prévisible ?</summary>
+        <details class="faq-item reveal">
+          <summary>
+            C'est un autre thriller prévisible ?
+            <span class="faq-plus"></span>
+          </summary>
           <p>Non. La structure narrative est conçue pour que tu ne puisses pas deviner. Pas parce qu'on cache des infos, mais parce que la question (« qui EST qui ») est piégée. Tu peux pas deviner un twist quand tu ne sais pas qui tient le fil.</p>
         </details>
-        <details class="faq-item">
-          <summary>C'est long ?</summary>
+        <details class="faq-item reveal">
+          <summary>
+            C'est long ?
+            <span class="faq-plus"></span>
+          </summary>
           <p>60 000 mots. C'est court pour un thriller. Volontairement. Pas de gras, pas de remplissage. Chaque chapitre existe pour une raison.</p>
         </details>
-        <details class="faq-item">
-          <summary>C'est violent ?</summary>
+        <details class="faq-item reveal">
+          <summary>
+            C'est violent ?
+            <span class="faq-plus"></span>
+          </summary>
           <p>Non. Pas de gore. Pas de scènes graphiques. La tension est psychologique. Ce qui fait peur, c'est de ne pas savoir qui croire.</p>
         </details>
-        <details class="faq-item">
-          <summary>Il faut avoir lu quelque chose avant ?</summary>
+        <details class="faq-item reveal">
+          <summary>
+            Il faut avoir lu quelque chose avant ?
+            <span class="faq-plus"></span>
+          </summary>
           <p>Non. Tome 1, début de trilogie, lecture autonome. La fin répond aux questions du tome 1 tout en ouvrant la suite.</p>
         </details>
-        <details class="faq-item">
-          <summary>Et si j'aime pas ?</summary>
+        <details class="faq-item reveal">
+          <summary>
+            Et si j'aime pas ?
+            <span class="faq-plus"></span>
+          </summary>
           <p>Lis le premier chapitre gratuit. Si le ton ne passe pas, n'achète pas. On préfère une lectrice qui sait ce qu'elle veut plutôt qu'une vente à l'arrache.</p>
         </details>
       </div>
@@ -279,11 +326,11 @@
   <!-- ===== AUTHOR ===== -->
   <section class="section section-elevated author-section">
     <div class="container container-narrow">
-      <h2 class="section-heading section-heading-center">S. Varo Rosen</h2>
-      <p class="author-bio">
+      <h2 class="section-heading section-heading-center reveal">S. Varo Rosen</h2>
+      <p class="author-bio reveal">
         Écrit des thrillers où le sang n'est jamais aussi sombre que les secrets de famille.
       </p>
-      <p class="author-bio muted">
+      <p class="author-bio muted reveal">
         La Remplaçante est le premier tome d'une trilogie. Le deuxième est en cours d'écriture.
       </p>
     </div>
@@ -295,6 +342,30 @@
       <p>© 2026 S. Varo Rosen. Tous droits réservés.</p>
     </div>
   </footer>
+
+  <!-- ===== Scroll reveal script ===== -->
+  <script>
+  (function() {
+    const reveals = document.querySelectorAll('.reveal');
+    const observer = new IntersectionObserver((entries) => {
+      entries.forEach(entry => {
+        if (entry.isIntersecting) {
+          const delay = entry.target.dataset.delay || 0;
+          setTimeout(() => entry.target.classList.add('revealed'), delay);
+          observer.unobserve(entry.target);
+        }
+      });
+    }, { threshold: 0.12, rootMargin: '0px 0px -40px 0px' });
+    reveals.forEach(el => observer.observe(el));
+
+    // Nav background on scroll
+    const nav = document.getElementById('nav');
+    window.addEventListener('scroll', () => {
+      if (window.scrollY > 20) nav.classList.add('nav-scrolled');
+      else nav.classList.remove('nav-scrolled');
+    }, { passive: true });
+  })();
+  </script>
 
 </body>
 </html>
