@@ -1032,7 +1032,7 @@ Il a regardé l'enfant une dernière fois. Le visage de Malo était fermé. Ses 
 
 — Pour lui, ça ne veut rien dire.
 
-Il est parti sans se retourner. La portière a claqué. Le moteur a toussé une fois, puis s'est lancé. Le gravier a crissé sous les pneaux, et puis il n'y a plus eu que le bruit de la mer.
+Il est parti sans se retourner. La portière a claqué. Le moteur a toussé une fois, puis s'est lancé. Le gravier a crissé sous les pneus, et puis il n'y a plus eu que le bruit de la mer.
 
 Juste avant le virage, une autre voiture s'est engagée dans le chemin. Une vieille Peugeot bleue. Léo. Il s'est garé derrière les buissons, a coupé le moteur. Il n'est pas descendu tout de suite. Il est resté là, assis derrière son volant, à regarder la berline de Paul disparaître. Puis il a démarré, a fait demi-tour, et est reparti. Bizarre. J'ai pensé qu'il venait vérifier que j'étais bien installée. Le frère attentionné. Le bon samaritain de la famille.
 
@@ -2712,11 +2712,11 @@ J'ai franchi le seuil.
 
 Faustine m'a fait entrer.
 
-L'escalier était étroit. Les marches étaient usées au centre, creusées par des années de pas. Des milliers de pas. Des allers et des retours. L'odeur d'encens descendait vers moi. Dense, sucrée, presque écœurante. Elle marchait devant, sans se retourner. Je ne voyais que sa nuque, rasée, et les anneaux qui cliquetaient contre la rampe. Un son régulier. Métallique. Comme un métronome. Comme un compte à rebours.
+L'escalier était étroit. Les marches étaient usées au centre, creusées par des années de pas. Des milliers de pas. Des allers et des retours. L'odeur d'encens descendait vers moi. Dense, sucrée, presque écœurante. Elle marchait devant, sans se retourner. Je ne voyais que sa nuque, rasée, et les anneaux qui cliquetaient contre la rampe. Un son régulier. Métallique. Un métronome. Un compte à rebours.
 
-L'appartement était sombre, encombré de livres et de plantes. Une odeur de thé froid et d'encens. Des tapis partout, même dans la cuisine, superposés, des motifs qui se chevauchaient, des couleurs fanées. Les murs étaient couverts de photographies encadrées : des visages que je ne connaissais pas, mais tous semblables. Mêmes pommettes, mêmes angles de mâchoire. Comme un catalogue. Comme une collection. Comme une famille qui ne se ressemblerait que par l'artifice.
+L'appartement était sombre, encombré de livres et de plantes. Une odeur de thé froid et d'encens. Des tapis partout, même dans la cuisine, superposés, des motifs qui se chevauchaient, des couleurs fanées. Les murs étaient couverts de photographies encadrées : des visages que je ne connaissais pas, mais tous semblables. Mêmes pommettes, mêmes angles de mâchoire. Tel un catalogue. Une collection de visages façonnés par le même moule.
 
-Je me suis arrêtée devant l'une d'elles. Une femme brune, le visage ovale, un sourire crispé. Elle ressemblait à quelqu'un. Je n'arrivais pas à dire à qui. Une vague familiarité, comme un parfum qu'on a déjà senti et qu'on n'arrive pas à nommer. Faustine a suivi mon regard.
+Je me suis arrêtée devant l'une d'elles. Une femme brune, le visage ovale, un sourire crispé. Elle ressemblait à quelqu'un. Je n'arrivais pas à dire à qui. Une vague familiarité, un parfum qu'on a déjà senti sans pouvoir le nommer. Faustine a suivi mon regard.
 
 — Elle s'appelait Marion. Elle a remplacé sa sœur jumelle il y a six ans. Elle vit encore sous son nom.
 
@@ -3333,13 +3333,13 @@ Denise a regardé le fond de sa propre tasse. Comme si elle y cherchait une rép
 
 — *Bientôt.*
 
-*Bientôt.* Le mot est resté dans l'air de la pièce. Il flottait entre la cire et le tabac froid, entre les dessins griffés et les photos en noir et blanc. Bientôt. Comme une promesse. Comme une menace. Comme un compte à rebours qu'on lance à cinq ans et qui ne s'arrête jamais. Trente ans plus tard, le compte à rebours était toujours là. Et il sonnait. Maintenant. Dans cette maison. Dans cette cuisine. Dans les murs de Kerfany.
+*Bientôt.* Le mot est resté dans l'air de la pièce. Il flottait entre la cire et le tabac froid, entre les dessins griffés et les photos en noir et blanc. Bientôt. Une promesse. Une menace. Le tic-tac d'un compte à rebours qu'on lance à cinq ans et qui ne s'arrête jamais. Trente ans plus tard, le compte à rebours était toujours là. Et il sonnait. Maintenant. Dans cette maison. Dans cette cuisine. Dans les murs de Kerfany.
 
 Je me suis levée. Lentement. Mes genoux protestaient. Mon dos était raide, tel un dos arrosé de ciment pendant que j'étais assise. J'ai posé la tasse. J'ai regardé Denise une dernière fois. Elle était assise dans son fauteuil, plus petite que je ne l'avais jamais vue. Les mains sur les genoux. Les yeux sur le sol. Une femme qui avait fini de parler. Une femme qui avait tout dit, ou presque, et qui savait que le reste, le pire, je devais le trouver seule.
 
 Je suis sortie sans dire au revoir. La porte a claqué derrière moi. Le son a résonné dans le couloir, jusqu'au salon, jusqu'aux murs qui l'ont absorbé, comme ils absorbaient tout, depuis trente ans. Les secrets. Les mensonges. Les silences. Les dessins griffés. Les chutes dans l'escalier. Les mots murmurés dans le noir. *Bientôt.*
 
-Sur le perron, le vent m'a prise par les épaules. Le froid de novembre entrait par le col, par les manches, par tous les endroits où la laine laissait passer l'air. La Bretagne ne consolait pas. Elle fouettait. Elle mordait. Elle réveillait. La maison de Denise, derrière moi, gardait encore la chaleur du salon, l'odeur du café, le poids des mots qu'elle venait de poser. Je sentais cette chaleur sur ma nuque, comme une main qui retient. Comme une main qui retient, justement, parce qu'elle sait qu'on ne reviendra pas.
+Sur le perron, le vent m'a prise par les épaules. Le froid de novembre entrait par le col, par les manches, par tous les endroits où la laine laissait passer l'air. La Bretagne ne consolait pas. Elle fouettait. Elle mordait. Elle réveillait. La maison de Denise, derrière moi, gardait encore la chaleur du salon, l'odeur du café, le poids des mots qu'elle venait de poser. Je sentais cette chaleur sur ma nuque, comme une main qui retient — justement — parce qu'elle sait qu'on ne reviendra pas.
 
 J'ai descendu les trois marches du perron. Le gravier crissait sous mes semelles. Un crissement net, presque musical, que je n'avais pas remarqué à l'aller. À l'aller, j'étais une femme qui venait chercher des réponses. Au retour, j'étais une femme qui en portait trop. Qui en portait plus qu'elle ne pouvait en tenir. Mes jambes avançaient sans moi. Mon cerveau était resté à l'intérieur, entre les dessins troués et les photos identiques, entre le *tu l'as poussée* et le *je ne me souviens pas*, entre ce que j'avais été et ce que j'étais peut-être.
 
