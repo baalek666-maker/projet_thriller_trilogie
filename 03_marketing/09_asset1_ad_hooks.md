@@ -282,12 +282,58 @@ La Remplaçante ne te promet pas ça. Pas exactement. Parce que le livre ne joue
 | Désespoir de l'amateur | 3, 6, 14 | Angle 5 (Désespoir) |
 | Scepticisme | 18 | Angle 5 |
 
-## Recommandation testing Phase 4
+## Setup campagne Meta Ads (corrigé 07/2025)
 
-- **Priorité vague 1** : Hooks 1, 3, 7, 8, 14 (couverture maximale : 1 par barrière + angle primary)
-- **Priorité vague 2** : Hooks 2, 4, 11, 13, 18
-- **Vague 3** : Le reste pour itération
+> ⚠️ **Mise à jour importante** — L'algo Advantage+ 2025 favorise **1 à 3 créas maximum** par ensemble de pub. Au-delà, le budget se dilue et la phase d'apprentissage n'en finit pas. Setup ci-dessous calibré pour petits budgets (5-15€/j).
+
+### Structure campagne
+
+- **1 campagne CBO** (Advantage+ shopping)
+- **2 ensembles de pub maximum**
+- **1 créa par ensemble** = 2 créas qui se battent en duel
+- Chaque créa hérite de ~5-7€/j minimum → apprend vite
+- Ciblage : pays + langue uniquement (France + français). Pas d'interests au départ.
+
+### Vague 1 (J1-J7) — Duel
+
+Tester les **2 meilleurs hooks** en duel direct :
+
+| Ensemble | Hook | Angle | Pourquoi |
+|---|---|---|---|
+| A | **Hook 1** | Angle 1 (Twist invisible) | PRIMARY — promesse coeur du livre |
+| B | **Hook 7** | Angle 3 (Nuit blanche) | PRIMARY — promesse format/rythme |
+
+> Seuil minimum : 500 impressions/créa avant de juger.
+
+### Vague 2 (J8-J14) — Kill & Rotate
+
+- **Le gagnant reste** (celui avec le CPL le plus bas)
+- **Le perdant est remplacé** par un nouveau hook parmi : 3, 8, 14
+- Garder le gagnant en place = l'algo accumule de la data dessus
+
+### Vague 3+ (itération continue)
+
+- Remplacer systématiquement le perdant par un hook non testé
+- Banque de hooks restants : 2, 4, 6, 11, 13, 15, 17, 18
+- Règle : jamais plus de 2 créas en lice en même temps
+
+### Budget
+
+| Phase | Budget/jour | Durée | Total |
+|---|---|---|---|
+| Test initial (V1+V2) | 10-15€/j | 14 jours | ~140-210€ |
+| Scale (gagnant confirmé) | 15-20€/j | 30-60 jours | ~450-1200€ |
+| Maintenance | 5-10€/j | En continu | Selon ROI |
+
+> **Règle d'or** : pointer vers la **landing page** (chapitre 1 gratuit contre email), JAMAIS vers Amazon. L'email capturé = relance gratuite pour T2 et T3.
+
+### KPIs à surveiller
+
+- **CPL** (coût par lead/email capturé) : cible < 2€
+- **CTR** : cible > 1,5%
+- **Hook rate** (3 premières secondes vidéo) : cible > 25%
+- **Fréquence** : tuer une créa si > 3,0
 
 ---
 
-*Asset 1 (Ad Hooks) — Phase 3 VMF. 18 hooks générés, 4 tests passés chacun.*
+*Asset 1 (Ad Hooks) — Phase 3 VMF. 18 hooks générés, 4 tests passés chacun. Setup campagne corrigé 07/2025 : 1-2 créas/ad set au lieu de 10.*
