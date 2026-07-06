@@ -7,8 +7,8 @@ import markdown
 import weasyprint
 from pathlib import Path
 
-MANUSCRIPT = Path("/home/ubuntu/flipmaster-lp/projet_thriller_trilogie/04_manuscrits/la_remplacante_tome1.md")
-OUTPUT_DIR = Path("/home/ubuntu/flipmaster-lp/projet_thriller_trilogie/05_livrables")
+MANUSCRIPT = Path("/home/ubuntu/projet_thriller_trilogie/04_manuscrits/la_remplacante_tome1.md")
+OUTPUT_DIR = Path("/home/ubuntu/projet_thriller_trilogie/05_livrables")
 OUTPUT_PDF = OUTPUT_DIR / "La_Remplacante_Tome1.pdf"
 CSS_FILE = Path("/tmp/novel_style.css")
 
