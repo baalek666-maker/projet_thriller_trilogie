@@ -80,7 +80,7 @@ Le danger est passé. Le danger est passé pour Malo. Le danger est passé pour 
 
 Mais pas pour les veilleurs. Pas pour le manoir. Pas pour le tube de sang doré qui est entre les mains d'un mercenaire, quelque part dans la nuit de Pont-l'Abbé. Le tube que j'ai donné en échange de Malo — le faux tube, l'eau salée. Mais les veilleurs ne le savent pas encore. Et quand ils le sauront, quand ils analyseront le contenu, quand ils comprendront qu'ils ont été dupés...
 
-Le sang doré est en liberté. Un tube. Un millilitre. Entre les mains de quelqu'un qui le vendra au plus offrant. Qui le donnera au plus puissant. Qui le brevetera, le commercialisera, le transformera en or, en pouvoir, en arme. Et Kervadec attend dans sa cellule. Kervadec attend que son veilleur lui rapporte le tube. Kervadec attend le sang. Kervadec attend la fin de sa patience.
+Le sang doré est en liberté. Un tube. Un millilitre. Entre les mains de quelqu'un qui le vendra au plus offrant. Qui le donnera au plus puissant. Qui le brevétera, le commercialisera, le transformera en or, en pouvoir, en arme. Et Kervadec attend dans sa cellule. Kervadec attend que son veilleur lui rapporte le tube. Kervadec attend le sang. Kervadec attend la fin de sa patience.
 
 Le téléphone vibre. Numéro inconnu. Un SMS. Long. Méthodique. Rédigé par quelqu'un qui a du temps et de la certitude.
 

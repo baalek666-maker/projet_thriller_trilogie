@@ -1,85 +1,3 @@
-# LA REMPLAÇANTE, TOME 3 — LE FONDATEUR
-
-## SYNOPSIS
-
-Juillet. Un an après le procès. Clémence vit à Quimper avec Inès et Malo. Charlotte est en hôpital psychiatrique. Camille a repris sa vie à Pont-l'Abbé. La chaîne Transit est brisée. Kervadec est en prison.
-
-Mais sur la falaise de Kerfany, Clodomira est apparue. La quatrième sœur. La première-née. Cachée par Madeleine. Effacée de tous les registres.
-
-Et elle a révélé l'ultime secret : leur grand-père, Auguste Le Gac — le vrai fondateur de la chaîne — est vivant. Cent quatre ans. Et il attend les quatre sœurs.
-
-## L'INTRIGUE
-
-**Acte I — L'héritage (Ch1-15)**
-
-Clodomira s'installe à Kerfany. Clémence ne lui fait pas confiance — quatre sœurs identiques, c'est trop commode. Mais les preuves sont là : ADN, photos, le carnet de la sage-femme de Brest qui l'a élevée. Clodomira est réelle.
-
-Elle révèle qu'Auguste Le Gac a découvert l'anomalie du "sang doré" pendant la Grande Guerre, en soignant sa femme — Madeleine étant enfant. Sa femme mourut d'hémorragie. Auguste consacra sa vie à comprendre pourquoi. Il créa un réseau de surveillance des porteurs : Transit. Pour les protéger. Pour les soigner. Pour les étudier.
-
-Mais Kervadec, son gendre, détourna Transit dans les années 60. En fit un commerce. Vendit les enfants. Exploita les porteurs. Auguste disparut — ou feignit de disparaître.
-
-Clémence et Clodomira partent à sa recherche. Elles trouvent un domaine isolé dans les Landes. Auguste est là. Frêle. Lucide. Cent quatre ans. Et il sait tout. Sur la chaîne. Sur les 48 chaînons. Sur le sang.
-
-Il leur révèle l'ultime vérité : l'anomalie n'est pas une maladie. C'est une mutation. Un don. Le sang doré peut régénérer les tissus, guérir les blessures, ralentir le vieillissement. Auguste lui-même en bénéficie — c'est pourquoi il vit à 104 ans. Et les quatre sœurs, réunies, sont la clé d'un remède capable de guérir tous les porteurs.
-
-**Acte II — Le prix du sang (Ch16-30)**
-
-Auguste installe son laboratoire dans la maison de Kerfany — une salle secrète sous les fondations, qu'il a construite dans les années 50. Camille arrive. Charlotte s'échappe de l'hôpital. Les quatre sœurs sont réunies pour la première fois.
-
-Les prélèvements commencent. Le sang des quatre sœurs, combiné, produit un sérum qui pourrait guérir chaque chaînon. Milo (n°48, fils de Lucie) est le premier patient : le sérum arrache l'enfant à la maladie.
-
-Mais Clémence découvre la vérité. Auguste ne veut pas seulement guérir. Il veut activer. Le sérum, à haute dose, ne guérit pas — il transforme. Il rend le porteur surpuissant : régénération accélérée, longévité extrême, mais aussi instabilité psychologique. Auguste a testé sur lui-même. Auguste a testé sur sa femme. Sa femme est morte.
-
-Et maintenant, il veut tester sur les quatre sœurs. Sur Malo. Sur tous les chaînons.
-
-Clodomira le sait. Clodomira est complice. Elle est mourante — l'anomalie la tue à 35 ans. Elle veut le sérum complet. Elle veut vivre. Et Auguste lui a promis la vie en échange des sœurs.
-
-**Acte III — La dernière chaîne (Ch31-45)**
-
-Clémence comprend qu'elle doit détruire le laboratoire. Mais Charlotte est sous l'emprise d'Auguste — il lui a promis la guérison mentale. Camille hésite. Clodomira est prête à tout.
-
-Malo est en danger — Auguste voit en lui le prochain chaînon, le futur de la chaîne. Inès et Paul interviennent. 
-
-La confrontation finale a lieu dans la maison de Kerfany. Les quatre sœurs face à Auguste. Charlotte se réveille de sa torpeur et détruit le laboratoire. Auguste meurt — paisiblement, dans la maison qu'il a construite, entouré de ses petites-filles.
-
-Les sœurs héritent de la connaissance : les carnets d'Auguste, 80 ans de recherche, la formule du sérum. Elles ont le choix : tout détruire, ou tout garder. Elles détruisent les carnets. Mais Clémence en garde un fragment — la formule de guérison, sans l'activation. Juste assez pour soigner les chaînons. Pas assez pour transformer.
-
-Épilogue : un an plus tard. Camille ouvre un dispensaire pour les porteurs du sang doré. Charlotte écrit un livre — sa version de l'histoire. Clodomira est soignée. Clémence, Inès et Malo vivent. La mer de Kerfany. Les corbeaux. La fin de la chaîne.
-
-## STRUCTURE
-
-- **Acte I — L'héritage (Ch1-15)** : Clodomira, la quête d'Auguste, les révélations
-- **Acte II — Le prix du sang (Ch16-30)** : Le laboratoire, le sérum, les quatre sœurs, la trahison
-- **Acte III — La dernière chaîne (Ch31-45)** : Confrontation, destruction, dénouement
-
-## PERSONNAGES PRINCIPAUX
-
-- **Clémence** (n°40) — narratrice, 1re personne présent. Mère de Malo. Compagne d'Inès.
-- **Clodomira Le Gac** — la 4ème sœur, première-née, cachée. Mourante. Ambiguë.
-- **Auguste Le Gac** — le grand-père, 104 ans, vrai fondateur. Charmant, brillant, dangereux.
-- **Charlotte** (n°39) — en hôpital psychiatrique. Fragile. Manipulable.
-- **Camille** (n°41) — la troisième triplée. Pragmatique. Loyale.
-- **Malo** — 7 ans. Fils de Clémence. Chaînon de la nouvelle génération.
-- **Inès** — compagne de Clémence. Protectrice. Pragmatique.
-- **Paul** — journaliste. Allié.
-- **Lucie** (n°22) — et Milo (n°48), l'enfant guéri.
-- **Denise** — la vieille garde. Connaît tous les secrets.
-- **Ariane** (n°0) — la première chaînon. Réapparaît.
-
-## NOTES DE STYLE
-
-- Narration 1re personne présent (Clémence), comme T1 et T2
-- Phrases courtes dans les scènes de tension, phrases plus longues dans les révélations
-- Le style d'Auguste : langage archaïque, précis, médical — contraste avec la voix de Clémence
-- Clodomira parle comme Clémence mais en plus sec, plus dur
-- Pas plus de 50% de phrases ≤5 mots (objectif qualité)
-- Chaque chapitre se termine sur un hook
-
-## TON
-
-Plus sombre que T1 et T2. La question centrale : le savoir médical doit-il être détruit quand il peut tuer ? Le personnage d'Auguste incarne l'ambiguïté morale — il a tué sa femme, mais il a 80 ans de recherche qui pourraient sauver des milliers de personnes. Les sœurs doivent décider.
-
-
 # CHAPITRE 1 — Le jasmin des autres
 
 Elle est là.
@@ -187,8 +105,6 @@ Et un grand-père de cent quatre ans qui nous attend toutes.
 Mes mains tremblent. Je les mets dans mes poches. Elles sont glacées alors que juillet brûle. Je redescends vers la plage. Vers Malo. Vers Paul. Vers le bruit des vagues.
 
 Je ne sais pas encore que demain sera pire.
-
-
 # CHAPITRE 2 — La nuit sans sommeil
 
 Je ne dors pas.
@@ -294,8 +210,6 @@ Clodomira est là. Et derrière elle, le visage de Charlotte — mon visage, cel
 Charlotte est sortie de l'hôpital.
 
 Et elle n'est pas seule.
-
-
 # CHAPITRE 3 — L'enfant du couloir
 
 Charlotte est maigre. Trop maigre. Le genre de maigreur qui ne vient pas d'un régime mais d'un hôpital — les joues creuses, les orbites saillantes, les poignets comme des brindilles. Je vois les veines sous sa peau. Bleues. Vertes. Cartographiées comme un réseau. Le réseau qu'on a toujours fui. Elle porte un manteau d'été trop grand, probablement emprunté. Tissu gris. Bouloché. Ses cheveux sont courts — on les a coupés à l'hôpital, mal, en bataille, des mèches inégales qui tombent dans son cou. Elle a des chaussons aux pieds. Pas des chaussures. Des chaussons. De la feutrine. Usés. Tachés.
@@ -431,8 +345,6 @@ Et mes mains qui tremblent.
 Il sait. Il sait que je suis là. Il sait que Charlotte est là. Il sait qu'Adam est là. Il sait tout. Et moi, je ne sais rien.
 
 La dernière chaîne vient de commencer.
-
-
 # CHAPITRE 4 — Les Landes
 
 — C'était lui, dis-je.
@@ -561,9 +473,7 @@ Ma voix ne tremble plus. La décision a fait son œuvre. Elle a séché la peur.
 
 Les Landes. Le domaine de Tursan. Le grand-père.
 
-La dernière chaîne.
-
-
+La dernière chaîne. Celle qui attend depuis soixante-dix ans dans le silence des pins.
 # CHAPITRE 5 — Le domaine de Tursan
 
 La route est longue. Quimper, Vannes, Nantes, le vinyle gris de la nationale. Puis le sud. Bordeaux en contour. Les Landes. Les pins. Des kilomètres de pins, droits, sombres, monotones, comme une armée en colonne. Comme une armée de cierges noirs. Le soleil tape mais ne chauffe pas. L'air sent la résine. La poussière. L'attente.
@@ -684,9 +594,7 @@ Il marche vers la porte d'entrée. Ses pas sont lents. Sa canne tape sur les dal
 
 Et nous le suivons — les trois sœurs et l'enfant — dans les profondeurs d'une maison qui a cent ans de secrets.
 
-La dernière chaîne commence.
-
-# CHAPITRE 6 — Le laboratoire
+La dernière chaîne commence.# CHAPITRE 6 — Le laboratoire
 
 L'escalier est étroit. Pierre nue, marches usées, un mur humide. La pierre suinte. Je la touche du coude. Froide. Visqueuse. Auguste descend lentement, une main sur la rampe, l'autre sur sa canne. Le bois grince. Ses os craquent. Clodomira le précède, le précède et le surveille. Charlotte suit, muette, ses yeux qui se cognent aux murs. Je ferme la marche, Adam sur la hanche. Il ne dit rien. Il ne bouge pas. Le dinosaur pend, mort, au bout de son bras.
 
@@ -804,9 +712,7 @@ Auguste s'approche de moi. Lentement. Sa canne tape sur le carrelage. Il pose sa
 
 — On commence par toi, dit-il. Par ton sang. Par ton histoire. Par ton silence.
 
-Mais moi, je ne veux plus me taire.
-
-# CHAPITRE 7 — Le carnet d'Yvonne
+Mais moi, je ne veux plus me taire.# CHAPITRE 7 — Le carnet d'Yvonne
 
 La nuit tombe sur Tursan. Les pins deviennent des silhouettes. Les cigales se taisent. Auguste dort au rez-de-chaussée, dans un lit médicalisé, avec un moniteur cardiaque qui bipe doucement.
 
@@ -907,8 +813,6 @@ Malo a besoin du sérum. Charlotte a besoin d'Auguste. Clodomira a besoin de gu�
 Parce qu'il y a quelque chose qu'il ne dit pas. Je le sens. Comme on sent l'orage. Comme on sent la marée. Comme on sent le sel dans le vent.
 
 Il y a toujours quelque chose qu'ils ne disent pas.
-
-
 # CHAPITRE 8 — Le carnet noir
 
 Charlotte dort tard. Elle dort comme une morte. Auguste dort aussi. Le moniteur bipe, régulier, lent. Le matin est déjà chaud sur les volets fermés.
@@ -1060,8 +964,6 @@ Mais je ne peux pas bouger. Je ne peux pas respirer.
 Le vieil homme me regarde. Et moi, je le regarde.
 
 La dernière chaîne commence vraiment.
-
-
 # CHAPITRE 9 — Le temps presse
 
 Je ne tremble plus.
@@ -1186,9 +1088,7 @@ Elle raccroche. Je reste avec le téléphone contre mon oreille. Camille me rega
 
 Deux mois. Deux mois pour trouver un traitement qui ne soit pas un meurtre. Deux mois pour défier un homme de cent quatre ans et quatre-vingts ans de recherche. Deux mois pour que mes sœurs et moi, les quatre dernières Roussel, nous sauvions les enfants de la chaîne. Les nôtres et tous les autres.
 
-La dernière chaîne commence vraiment.
-
-
+La dernière chaîne. Et cette fois, c'est nous qui la tendons.
 # CHAPITRE 10 — L'autre chemin
 
 Denise arrive le soir même.
@@ -1283,7 +1183,7 @@ Denise sort une photo de la pochette. Une petite fille. Cinq ans. Cheveux blonds
 
 — Je me souviens. Elle a été enlevée. Elle est enceinte de Milo, qui est le quarantième-huitième chaînon.
 
-— Exact. Lucie est spéciale. Son sang contient le gène muté, mais en faible quantité. Assez pour régénérer, pas assez pour hémorragier. Et son sang contient aussi une protéine neutralisante. Une protéine que je n'ai vue chez personne d'autre.
+— Exact. Lucie est spéciale. Son sang contient le gène muté, mais en faible quantité. Assez pour régénérer, pas assez pour saigner. Et son sang contient aussi une protéine neutralisante. Une protéine que je n'ai vue chez personne d'autre.
 
 — Une protéine qui neutralise quoi ?
 
@@ -1336,8 +1236,6 @@ Et pour la première fois depuis deux cents pages, je respire vraiment.
 La dernière chaîne ne sera pas un sacrifice.
 
 Elle sera une guérison.
-
-
 # CHAPITRE 11 — Brest
 
 La route des Landes à Brest prend quatre heures. Camille conduit. Ses mains sur le volant. Ses mains de scientifique. Calmes. Précises. Clodomira est à l'avant. Charlotte est à l'arrière, contre la vitre, les yeux vitreux. Adam est entre nous, le dinosaur serré contre lui.
@@ -1468,9 +1366,7 @@ Et la dernière chaîne, la vraie, celle qui sauve au lieu de détruire, commenc
 
 Je regarde mes sœurs. Lucie. Camille. Clodomira. Charlotte. Quatre visages en miroir. Quatre vies brisées. Et aujourd'hui, quatre silhouettes debout.
 
-Pour la première fois depuis des années, je n'ai plus peur. Ou si. Mais la peur est derrière. La détermination, devant.
-
-# CHAPITRE 12 — Le premier prélèvement
+Pour la première fois depuis des années, je n'ai plus peur. Ou si. Mais la peur est derrière. La détermination, devant.# CHAPITRE 12 — Le premier prélèvement
 
 Le lendemain.
 
@@ -1627,8 +1523,6 @@ Mais moi aussi, je reviens. Pour Malo. Pour Charlotte. Pour Camille. Pour Clodom
 Le sang coule. Le jour avance. La chaîne se tend.
 
 Et demain commence déjà.
-
-
 # CHAPITRE 13 — La nouvelle chaîne
 
 Le soir même, Camille revient de Rennes.
@@ -1800,8 +1694,6 @@ Pas encore.
 Je regarde la fenêtre. Brest la nuit. Les réverbères. La pluie qui reprend. Et quelque part, dans les Landes, à huit cents kilomètres, un homme de cent quatre ans sourit. Parce qu'il sait. Et parce qu'il attend.
 
 La nouvelle chaîne commence. Mais l'ancienne n'a pas dit son dernier mot.
-
-
 # CHAPITRE 14 — Le message sur le mur
 
 Le lendemain matin.
@@ -1945,11 +1837,9 @@ Auguste ne veut pas détruire. Auguste veut prouver. Prouver qu'il a raison. Que
 Et la seule personne qui peut m'aider maintenant, c'est lui.
 
 Auguste a gagné. Encore. Toujours.
-
-
 # CHAPITRE 15 — La brasserie de la gare
 
-La brasserie de la gare de Brest est un endroit laid. Néons, tables en formica, banquettes en skaï. L'odeur de café brûlé et de croissants tièdes. Des voyageurs qui déjeunent en lisant le journal. La servedette qui essuie le comptoir avec un chiffon gris.
+La brasserie de la gare de Brest est un endroit laid. Néons, tables en formica, banquettes en skaï. L'odeur de café brûlé et de croissants tièdes. Des voyageurs qui déjeunent en lisant le journal. La serveuse qui essuie le comptoir avec un chiffon gris.
 
 Je m'assois à une table près de la sortie. Je commande un café. Je regarde la porte.
 
@@ -2032,7 +1922,7 @@ Henri hausse les épaules.
 
 — Auguste est le père de Madeleine. Madeleine a épousé Gaspard Kervadec. Gaspard est mon grand-père. Donc Auguste est mon arrière-grand-père. Et Adam est son arrière-petit-fils. Enfin, quelque chose comme ça. Les arbres généalogiques de cette famille sont un cauchemar.
 
-Je m'appuie contre le dossier de la banquette. Le café est froid. La servedette essuie le comptoir. Un train passe dans la gare, faisant trembler les vitres.
+Je m'appuie contre le dossier de la banquette. Le café est froid. La serveuse essuie le comptoir. Un train passe dans la gare, faisant trembler les vitres.
 
 — Vous êtes venu pour Adam ? dis-je.
 
@@ -2097,8 +1987,6 @@ Henri me regarde. Longuement. Puis il hoche la tête.
 On se serre la main. Au milieu de la brasserie de la gare de Brest, entre les voyageurs et le café froid, un Roussel et un Kervadec se serrent la main. Pour la première fois depuis cent ans.
 
 Et la dernière chaîne — la vraie, celle qui réunit au lieu de diviser — se met en place.
-
-
 # CHAPITRE 16 — L'appel
 
 Le téléphone sonne à trois heures du matin.
@@ -2252,8 +2140,6 @@ Auguste croit que je suis seule. Auguste croit que je suis une femme avec un té
 Mais Auguste se trompe.
 
 Je ne suis pas seule. Je suis une chaîne.
-
-
 # CHAPITRE 17 — Les quatre
 
 Le matin. Appeler mes sœurs.
@@ -2407,8 +2293,6 @@ Je raccroche. La cuisine est silencieuse. Le café est froid.
 La dernière chaîne est nouée. Pas serrée. Pas détruite. Nouée. Pour que d'autres puissent s'y accrocher. Ou la défaire.
 
 À nous de voir.
-
-
 # CHAPITRE 18 — La prise de sang
 
 Le labo mobile arrive à neuf heures. C'est une camionnette blanche, Peugeot Boxer, sans logo, sans mention. On dirait une camionnette de livraison. Un utilitaire banal. C'est fait exprès. C'est la règle d'Auguste. Rien qui ne ressemble à un prélèvement médical. Rien qui n'éveille la curiosité d'un voisin, d'une concierge, d'un passant.
@@ -2620,13 +2504,11 @@ Et pour toujours. Je l'espère. Je veux y croire. Je choisis d'y croire.
 La chaîne de l'amour, c'est la chaîne qui ne casse pas.
 
 Jamais.
-
-
 # CHAPITRE 19 — Le sérum de Malo
 
 Pont-l'Abbé. Le 23 juillet. Cinq heures du soir.
 
-On est rentrés. Camille est avec nous. Elle tient la glacière médicale contre elle, calée entre ses genoux, sanglée pour ne pas bouger sur la banquette arrière. Thomas conduit, lent, régulier, à cent dix sur la quatre voies. Clodomira est à l'avant, le visage tourné vers la fenêtre, les yeux fermés, les lèvres qui priient en silence. Charlotte est à l'arrière, endormie contre la vitre, un plaid sur les genoux. Et moi, je tiens la glacière comme on tient un cœur entre ses mains — avec la peur, la tendresse, la dévotion.
+On est rentrés. Camille est avec nous. Elle tient la glacière médicale contre elle, calée entre ses genoux, sanglée pour ne pas bouger sur la banquette arrière. Thomas conduit, lent, régulier, à cent dix sur la quatre voies. Clodomira est à l'avant, le visage tourné vers la fenêtre, les yeux fermés, les lèvres qui priaient en silence. Charlotte est à l'arrière, endormie contre la vitre, un plaid sur les genoux. Et moi, je tiens la glacière comme on tient un cœur entre ses mains — avec la peur, la tendresse, la dévotion.
 
 Malo m'attend chez mes parents. Il court dans le jardin quand la voiture se gare. Il a grandi. En deux semaines, il a grandi. Les joues un peu moins rondes, les jambes un peu plus longues. Sept ans dans une semaine — le 30 juillet. Sept ans, et il l'ignore, c'était le compte à rebours. C'était la date. C'était le moment où le variant devait s'activer, où la chaîne devait atteindre sa cible, où le sang de Malo aurait dû être vendu, transfusé, sacrifié.
 
@@ -2778,9 +2660,7 @@ Sept ans sera juste un âge. Comme pour les autres enfants. Comme pour tous les 
 
 Sept ans.
 
-La dernière chaîne tient.
-
-
+La dernière chaîne tient. Comme une promesse.
 # CHAPITRE 20 — Les analyses
 
 Le 25 juillet. Rennes confirme.
@@ -2936,8 +2816,6 @@ La dernière chaîne.
 En train de céder.
 
 Enfin.
-
-
 # CHAPITRE 21 — Le huissier
 
 Le 1er août. Onze heures du matin.
@@ -3113,8 +2991,6 @@ Il hoche la tête. Lentement. Puis :
 La dernière chaîne vient de céder. Pas celle qu'on croyait. L'autre. Celle entre Auguste et nous. Celle qu'on avait nouée dans la cuisine de Lucie, entre le café froid et les larmes de Charlotte. Cette chaîne-là vient de se rompre.
 
 Et cette fois, on ne la renouera pas.
-
-
 # CHAPITRE 22 — L'avocate
 
 Le 2 août. Quimper. Cabinet d'avocats Le Roux & Associés.
@@ -3250,8 +3126,6 @@ Inès. Malo. Mes parents. Mes sœurs. Adam. Lucie. Milo. Même Paul, le fantôme
 Et dans deux semaines, la lumière sera allumée sur Tursan. Et Auguste sera nu. Et la chaîne — la vraie, celle qui a duré cent ans — se brisera.
 
 Enfin.
-
-
 # CHAPITRE 23 — Le silence de Charlotte
 
 Le 5 août.
@@ -3355,8 +3229,6 @@ Parce qu'on peut briser un corps. On peut briser un esprit. On peut briser une m
 Charlotte va parler.
 
 Et Auguste va entendre.
-
-
 # CHAPITRE 24 — Le carnet d'Yvonne, II
 
 Le 8 août.
@@ -3472,8 +3344,6 @@ Le monstre n'est pas le vampire génétique. Le monstre, ce n'est pas le gène q
 La perquisition viendra dans deux semaines. Le juge instruit. Les gendarmes perquisitionneront. Et Denise, la vieille Denise, quatre-vingt-dix ans, cachera un carnet dans un four à pain.
 
 Le carnet qui finira tout.
-
-
 # CHAPITRE 25 — La nuit de Malo
 
 Le 12 août.
@@ -3616,9 +3486,7 @@ La perquisition viendra dans une semaine. Le juge accélère. Les gendarmes se p
 
 Mais cette nuit, Malo fait des cauchemars. Et moi aussi. Et le vieillard sourit dans la nuit. Et le temps presse.
 
-Et la dernière chaîne tremble.
-
-
+Et la dernière chaîne tremble. Comme si elle sentait venir la fin.
 # CHAPITRE 26 — Le technicien
 
 Le 14 août.
@@ -3718,8 +3586,6 @@ Et dans cinq jours, tout sera fini. Ou tout sera cassé. L'un ou l'autre. Pas de
 Soit Auguste tombe. Soit nous tombons.
 
 Cinq jours.
-
-
 # CHAPITRE 27 — La nuit du mercure
 
 La nuit du 15 au 16 août. Trois heures du matin. La maison respire. Les enfants dorment. Les volets sont fermés. Le jardin est noir. La lune est couchée depuis longtemps. C'est la nuit la plus noire de l'année — sans lune, sans étoiles, sans lumière. C'est la nuit du mercure, comme disait ma grand-mère, la nuit où le mercure descend dans les vitres, où les vieux se sentent partir, où les morts reviennent.
@@ -3861,8 +3727,6 @@ La dernière chaîne tremble. Non pas la chaîne du sang — celle-là, Malo est
 Quatre jours. Et Auguste sera seul. Et la chaîne mentale se taira. Et Adam dormira, sans murmures, sans appels, sans laboratoire dans la tête. Adam dormira comme les autres enfants.
 
 Quatre jours. Quatre jours de patience. Quatre jours de veille. Quatre jours à tenir.
-
-
 # CHAPITRE 28 — Vasseur
 
 Le 16 août. Onze heures du matin. Le jour le plus chaud de l'été.
@@ -3946,8 +3810,6 @@ Et demain, à l'aube, les gendarmes descendront sur Tursan. Et Denise sortira le
 Demain.
 
 La dernière chaîne se brise demain.
-
-
 # CHAPITRE 29 — La veille
 
 Le soir du 16 août.
@@ -4103,8 +3965,6 @@ Rien que nous. Rien que la vie. Rien que les enfants qui jouent dans le jardin. 
 Rien que le quotidien. Le normal. La paix.
 
 Demain.
-
-
 # CHAPITRE 30 — L'aube
 
 Le 17 août. Cinq heures du matin.
@@ -4177,7 +4037,7 @@ Six heures vingt-deux. Mon téléphone vibre. Hélène.
 
 — Le carnet ?
 
-— Saisi. Lu. Concluant. Les mots de 1948 et 1952 — confirmés. La main d'Auguste — confirmée. L'expertise graphologique prendra une semaine, mais le juge considère que c'est suffisant pour inculper. Deni...[truncated] à Pau. Centre hospitalier. Aile sécurisée. Il sera auditionné demain. Il a un avocat — commis d'office, parce qu'Auguste n'a plus d'avocat depuis vingt ans. Il refusera de parler. Il ne dira rien.
+— Saisi. Lu. Concluant. Les mots de 1948 et 1952 — confirmés. La main d'Auguste — confirmée. L'expertise graphologique prendra une semaine, mais le juge considère que c'est suffisant pour inculper. Denise reste à l'hôpital. Elle sera entendue demain matin, à la première heure, ici même, à Pau. Centre hospitalier. Aile sécurisée. Elle est faible mais lucide. Elle parlera. Elle a un avocat — choisi par Camille, parce qu'Auguste, lui, n'a plus d'avocat depuis vingt ans. Elle refusera de parler, peut-être. Ou elle dira tout. Je ne sais pas encore.
 
 — Le carnet ?
 
@@ -4242,8 +4102,6 @@ La paix.
 La paix, enfin.
 
 La dernière chaîne vient de céder.
-
-
 # CHAPITRE 31 — Le tribunal
 
 Septembre.
@@ -4355,8 +4213,6 @@ Nous sommes debout. Tous. Les Roussel. Les chaînons. La chaîne. Debout.
 Et la chaîne est en train de mourir. Tube par tube. Sérum par sérum. Vie par vie. Procès par procès.
 
 Aujourd'hui, Auguste.
-
-
 # CHAPITRE 32 — Le verdict
 
 Le tribunal se vide.
@@ -4466,8 +4322,6 @@ La dernière chaîne se brise.
 Et après, il y a nous. Juste nous. La famille. Le quotidien. Le normal.
 
 La paix.
-
-
 # CHAPITRE 33 — Les 48
 
 Octobre.
@@ -4570,9 +4424,7 @@ La chaîne ne meurt pas. Mais elle change. Elle cesse d'être une chaîne de san
 
 La chaîne ne meurt pas. Mais elle n'est plus la même.
 
-Et c'est suffisant.
-
-
+Et ça suffit.
 # CHAPITRE 34 — La lettre d'Yvonne
 
 Le 15 octobre.
@@ -4585,7 +4437,7 @@ La factrice la dépose ce matin. Dans la boîte aux lettres. Au bout du chemin. 
 
 *J'ai trouvé quelque chose dans le domaine. Dans le bureau d'Auguste, derrière le tiroir secret — celui que les gendarmes n'ont pas trouvé parce qu'ils ne savaient pas où chercher. Un tiroir dissimulé sous le faux fond. J'ai soulevé le fond. J'ai trouvé une lettre.*
 
-*La lettre est d'Yvonne. Écrite en 1948. Trois jours avant sa mort. Adressee à Madeleine — ta grand-mère, que Yvonne avait choisie comme successeur, comme gardienne du régulateur, comme héritière du travail. Madeleine, qui n'a jamais reçu cette lettre, parce qu'Auguste l'a interceptée. Et cachée. Pendant soixante-dix-huit ans.*
+*La lettre est d'Yvonne. Écrite en 1948. Trois jours avant sa mort. Adressée à Madeleine — ta grand-mère, que Yvonne avait choisie comme successeur, comme gardienne du régulateur, comme héritière du travail. Madeleine, qui n'a jamais reçu cette lettre, parce qu'Auguste l'a interceptée. Et cachée. Pendant soixante-dix-huit ans.*
 
 *Je te l'envoie. Lis-la. Et garde-la. C'est ton héritage. L'héritage des chaînons. L'héritage d'Yvonne.*
 
@@ -4686,8 +4538,6 @@ La chaîne des femmes. Qui n'ont pas volé. Qui n'ont pas tué. Qui ont découve
 La chaîne ne meurt pas. Mais elle a changé de mains.
 
 Et maintenant, elle est à nous.
-
-
 # CHAPITRE 35 — Le déclin
 
 Novembre. Le mois de la mort. Le mois des cimetières, des chrysanthèmes, des jours courts. Le mois où les vivants se couchent tôt et où les morts prennent toute la place.
@@ -4809,8 +4659,6 @@ Le quotidien. Le normal. La vie.
 Auguste est mort. Et la vie continue.
 
 Et c'est la plus belle des victoires.
-
-
 # CHAPITRE 36 — Noël
 
 Décembre. Noël.
@@ -4929,11 +4777,9 @@ Je ris. Inès rit. Charlotte rit. Tout le monde rit.
 
 La bûche. Les bougies soufflées. Le chocolat chaud. Les chansons. Les rires. Les yeux qui piquent de fatigue. Les enfants qui s'endorment, un par un, contre les épaules, contre les poitrines.
 
-Noël. La paix. La fin.
+Noël. La paix. La fin de l'attente.
 
 Et le commencement.
-
-
 # CHAPITRE 37 — La dernière visite à Charlotte
 
 Janvier. Nouvel an. Nouvelle année. La première sans peur.
@@ -5113,15 +4959,13 @@ La chaîne est morte. La peur reste. Mais la peur partira.
 Et un matin, Charlotte se réveillera. Et elle n'aura plus peur. Et ce matin-là, tout sera fini.
 
 Vraiment fini.
-
-
 # CHAPITRE 38 — Le jardin de Paul
 
 Février.
 
 Paul travaille dans le jardin de mes parents. Comme tous les jours. Depuis un an. Depuis le procès. Depuis qu'il est sorti de prison et qu'il n'a nulle part où aller.
 
-Mon père l'a recueilli. Pas par charité. Par nécessité. Paul était le jardinier du manoir. Paul connaît les plantes. Les arbres. Les saisons. Et mon père a besoin d'aide — soixante-dix-huit ans, un genou en moins, et un potiver qui ne se cultive pas tout seul.
+Mon père l'a recueilli. Pas par charité. Par nécessité. Paul était le jardinier du manoir. Paul connaît les plantes. Les arbres. Les saisons. Et mon père a besoin d'aide — soixante-dix-huit ans, un genou en moins, et un potager qui ne se cultive pas tout seul.
 
 Paul dort dans la dépendance. L'ancienne buanderie. Aménagée. Un lit. Une table. Un poêle. Simple. Propre. Suffisant.
 
@@ -5245,7 +5089,7 @@ Il se retourne.
 
 — Les salades. C'est pas trop tard pour les replanter ?
 
-— Non. C'est le bon moment. Février. On plante les graines sous châssis. Elles leveront en mars. On repiquera en avril. On mangera en mai.
+— Non. C'est le bon moment. Février. On plante les graines sous châssis. Elles lèveront en mars. On repiquera en avril. On mangera en mai.
 
 — Alors on plante.
 
@@ -5272,8 +5116,6 @@ Je reste là. Sur le seuil. Le café refroidi dans ma main. La buée partie. Le 
 — Des tomates.
 
 Il ne répond pas. Il boit son café. Il regarde le jardin. Et le soleil se lève sur Pont-l'Abbé, en février, sur un jardin planté par un lâche qui essaie de devenir un homme.
-
-
 # CHAPITRE 39 — Clodomira
 
 Mars.
@@ -5415,8 +5257,6 @@ Ma sœur. La gardienne. La première.
 Et la chaîne — celle des femmes, celle des chaînons, celle de l'amour — continue. Pas la chaîne du sang. Pas la chaîne de la douleur. L'autre. La vraie. Celle qui relie les cœurs.
 
 La chaîne ne meurt pas. Auguste avait raison. Mais la chaîne est à nous, maintenant. Et elle est belle.
-
-
 # CHAPITRE 40 — Le Marchix
 
 Avril. La fin du monde d'avant. Le début d'un autre.
@@ -5496,8 +5336,6 @@ Denise est morte. Clodomira prend le relais. Et après Clodomira, quelqu'un d'au
 La chaîne des femmes. La chaîne des gardiennes. La chaîne de l'amour.
 
 Indestructible.
-
-
 # CHAPITRE 41 — Le carnet d'Adam
 
 Mai.
@@ -5598,7 +5436,7 @@ Et ce jour-là, Adam saura.
 
 Mais en attendant, Adam court. Adam rit. Adam tombe. Adam se relève.
 
-Et c'est tout ce qui compte.
+Et c'est tout ce qui compte. Aujourd'hui. Demain. Pour longtemps.
 
 Je retourne à la cuisine. Inès est toujours à la fenêtre. Je la rejoins. Je passe mes bras autour d'elle. Je regarde le jardin. Adam. Malo. Paul au fond. Mon père près des tomates. Ma mère sur la terrasse. Le chat sur le mur.
 
@@ -5625,8 +5463,6 @@ La vie simple. La vie banale. La vie de tous les jours.
 Rien que la vie.
 
 Et c'est tout.
-
-
 # CHAPITRE 42 — Camille
 
 Juin. Le mois des fleurs et des feuillages. Le mois des foins et des fenaisons. Le mois où le temps ralentit, où les jours rallongent, où tout le pays avance vers le soleil.
@@ -5707,9 +5543,7 @@ Demain est un autre jour. Un jour sans chaîne. Un jour sans gène. Un jour sans
 
 Un jour libre.
 
-Le premier.
-
-
+Le premier d'une longue série.
 # CHAPITRE 43 — Kerfany
 
 Juillet. Un an.
@@ -5841,8 +5675,6 @@ La chaîne est brisée.
 Et la mer continue. Et le vent continue. Et la vie continue.
 
 Et moi, je continue avec elles.
-
-
 # CHAPITRE 44 — Le soir
 
 Le soir même. Kerfany. La maison d'hôte qu'on a louée pour la nuit.
@@ -5968,8 +5800,6 @@ Le soir tombe. Les étoiles tournent. La mer respire. Et nous, on respire avec e
 La chaîne est brisée.
 
 Et la vie commence.
-
-
 # CHAPITRE 45 — Les chaînons
 
 Août. Deux ans.

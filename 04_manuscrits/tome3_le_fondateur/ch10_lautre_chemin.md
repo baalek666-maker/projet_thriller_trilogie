@@ -92,7 +92,7 @@ Denise sort une photo de la pochette. Une petite fille. Cinq ans. Cheveux blonds
 
 — Je me souviens. Elle a été enlevée. Elle est enceinte de Milo, qui est le quarantième-huitième chaînon.
 
-— Exact. Lucie est spéciale. Son sang contient le gène muté, mais en faible quantité. Assez pour régénérer, pas assez pour hémorragier. Et son sang contient aussi une protéine neutralisante. Une protéine que je n'ai vue chez personne d'autre.
+— Exact. Lucie est spéciale. Son sang contient le gène muté, mais en faible quantité. Assez pour régénérer, pas assez pour saigner. Et son sang contient aussi une protéine neutralisante. Une protéine que je n'ai vue chez personne d'autre.
 
 — Une protéine qui neutralise quoi ?
 

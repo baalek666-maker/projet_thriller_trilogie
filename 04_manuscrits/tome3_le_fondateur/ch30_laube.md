@@ -70,7 +70,7 @@ Six heures vingt-deux. Mon téléphone vibre. Hélène.
 
 — Le carnet ?
 
-— Saisi. Lu. Concluant. Les mots de 1948 et 1952 — confirmés. La main d'Auguste — confirmée. L'expertise graphologique prendra une semaine, mais le juge considère que c'est suffisant pour inculper. Deni...[truncated] à Pau. Centre hospitalier. Aile sécurisée. Il sera auditionné demain. Il a un avocat — commis d'office, parce qu'Auguste n'a plus d'avocat depuis vingt ans. Il refusera de parler. Il ne dira rien.
+— Saisi. Lu. Concluant. Les mots de 1948 et 1952 — confirmés. La main d'Auguste — confirmée. L'expertise graphologique prendra une semaine, mais le juge considère que c'est suffisant pour inculper. Denise reste à l'hôpital. Elle sera entendue demain matin, à la première heure, ici même, à Pau. Centre hospitalier. Aile sécurisée. Elle est faible mais lucide. Elle parlera. Elle a un avocat — choisi par Camille, parce qu'Auguste, lui, n'a plus d'avocat depuis vingt ans. Elle refusera de parler, peut-être. Ou elle dira tout. Je ne sais pas encore.
 
 — Le carnet ?
 

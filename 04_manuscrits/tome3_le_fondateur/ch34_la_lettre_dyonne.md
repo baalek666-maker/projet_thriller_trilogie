@@ -10,7 +10,7 @@ La factrice la dépose ce matin. Dans la boîte aux lettres. Au bout du chemin. 
 
 *J'ai trouvé quelque chose dans le domaine. Dans le bureau d'Auguste, derrière le tiroir secret — celui que les gendarmes n'ont pas trouvé parce qu'ils ne savaient pas où chercher. Un tiroir dissimulé sous le faux fond. J'ai soulevé le fond. J'ai trouvé une lettre.*
 
-*La lettre est d'Yvonne. Écrite en 1948. Trois jours avant sa mort. Adressee à Madeleine — ta grand-mère, que Yvonne avait choisie comme successeur, comme gardienne du régulateur, comme héritière du travail. Madeleine, qui n'a jamais reçu cette lettre, parce qu'Auguste l'a interceptée. Et cachée. Pendant soixante-dix-huit ans.*
+*La lettre est d'Yvonne. Écrite en 1948. Trois jours avant sa mort. Adressée à Madeleine — ta grand-mère, que Yvonne avait choisie comme successeur, comme gardienne du régulateur, comme héritière du travail. Madeleine, qui n'a jamais reçu cette lettre, parce qu'Auguste l'a interceptée. Et cachée. Pendant soixante-dix-huit ans.*
 
 *Je te l'envoie. Lis-la. Et garde-la. C'est ton héritage. L'héritage des chaînons. L'héritage d'Yvonne.*
 

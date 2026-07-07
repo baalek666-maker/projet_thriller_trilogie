@@ -1,10 +1,3 @@
-# LA REMPLAÇANTE — TOME 2 : LES CHAÎNONS
-
-*Deuxième volet de la trilogie*
-*S. Varo Rosen*
-
----
-
 # CHAPITRE 1 — Le réveil
 
 L'alarme sonne à six heures. Je ne l'entends pas. C'est Malo qui me réveille, comme chaque matin depuis un mois, en posant sa main froide sur ma joue.
@@ -51,7 +44,7 @@ Je sors à la bibliothèque. Je montre ma carte. Je prends mon poste. Je classe,
 
 À onze heures, je vais aux toilettes. Je me lave les mains. Je me regarde dans la glace. J'ai mauvaise mine. J'ai toujours mauvaise mine depuis un mois. Les cernes. Les joues creuses. La mâchoire serrée. Je me force à desserrer la mâchoire. À sourire. Le sourire ne monte pas jusqu'aux yeux.
 
-Je reviens à mon poste. À midi, une collègue — une vraie collègue, avec un vrai nom, Louise, qui ne pose pas de questions — me propose de manger avec elle à la cantine du personnel. Je refuse. Elle ne insiste pas. Elle comprend, je crois.
+Je reviens à mon poste. À midi, une collègue — une vraie collègue, avec un vrai nom, Louise, qui ne pose pas de questions — me propose de manger avec elle à la cantine du personnel. Je refuse. Elle n'insiste pas. Elle comprend, je crois.
 
 À treize heures, je sors. Il pleut toujours. Je marche vers la station de tramway. Je passe devant un bureau de tabac. Sur le comptoir, à côté des bonbons, il y a un présentoir d'enveloppes. Des enveloppes blanches, des enveloppes kraft, des enveloppes à fenêtre. Je m'arrête. Je regarde. Je continue.
 
@@ -84,10 +77,6 @@ Je pose l'enveloppe sur la table. Je me relève. Je vais à la fenêtre. La cour
 Je n'ouvre pas la boîte en métal.
 
 Pas encore.
-
-
----
-
 # CHAPITRE 2 — La boîte
 
 L'après-midi passe. Je m'assois. Je me relève. Je m'assois. Je regarde l'enveloppe. Je ne la touche pas. Je vais à la fenêtre. Je reviens. Je me fais un thé que je ne bois pas. Je le pose sur la table, à côté de l'enveloppe. Le thé refroidit. L'enveloppe ne bouge pas.
@@ -167,13 +156,9 @@ Je rentre dans le bain. L'eau est chaude. Trop chaude. Je reste dedans quand mê
 Je ne brûlerai pas la boîte.
 
 Ce soir, j'irai.
-
-
----
-
 # CHAPITRE 3 — L'appel
 
-Malo rentre à seize heures trente. Il est en retard de quatre minutes. Il ne dit pas pourquoi. Il pose son cartable, enlève ses chaussures, et vient s'asseoir à côté de moi, sur le canapé. Il ne parle pas.
+Malo rentre à seize heures trente. Il est en retard de quatre minutes. Il ne dit pas pourquoi. Il pose son cartable. Il enlève ses chaussures. Il vient s'asseoir à côté de moi, sur le canapé, et il ne parle pas.
 
 Il ne parle jamais quand il est comme ça. Quand il est revenu de quelque part. Il faut attendre. Ne pas le brusquer. Lui laisser le temps de revenir dans l'appartement. Lui laisser le temps de vérifier que les murs sont toujours là, que la porte est toujours fermée, que la fenêtre du dernier étage, en face, est toujours allumée.
 
@@ -270,10 +255,6 @@ Je n'ouvre pas la fenêtre. Je ne descends pas. Je ne vais pas voir. Pas ce soir
 J'attrape mon manteau. Je sors.
 
 La rue m'attend.
-
-
----
-
 # CHAPITRE 4 — Le 12
 
 La rue du Château est à dix-sept minutes à pied de l'appartement. Je connais le chemin. Je l'ai regardé sur la carte, ce matin, à la bibliothèque, entre deux étagères. Dix-sept minutes en passant par la place Royale. C'est un trajet que j'ai déjà fait, deux fois, sans m'en rendre compte, pour acheter du pain. Je passe devant un bar avec une terrasse. Je passe devant une boulangerie fermée. Je passe devant un pont. Je passe devant une statue. Je ne vois rien. Je ne vois que le 12, dans ma tête, comme un chiffre qui clignote.
@@ -385,10 +366,6 @@ On se retourne. Il n'y a personne.
 Il n'y a plus personne.
 
 Lucie a disparu.
-
-
----
-
 # CHAPITRE 5 — La chaise vide
 
 Je reste debout, au milieu de la pièce, pendant une minute. Deux minutes. Je ne sais pas. Le temps ne compte plus. Lucie était là, et Lucie n'est plus là, et la chaise est vide, et la porte est fermée, et il n'y a personne.
@@ -480,10 +457,6 @@ Je pose le stylo. Je regarde la fenêtre. La cour est vide. La fenêtre du derni
 Je vais me coucher. Je ne dormirai pas. Mais je me couche quand même.
 
 À sept heures, je serai dans le train.
-
-
----
-
 # CHAPITRE 6 — Kerfany
 
 Le train arrive à Quimper à neuf heures vingt. J'ai pris le premier, à sept heures pile, comme Ariane l'avait dit. Comme Ariane l'avait exigé. Le wagon était presque vide. Une vieille dame avec un sac de courses. Un adolescent qui dormait contre la vitre. Et moi, avec un sac à dos, un carnet dans la poche intérieure, et la lettre de Charlotte pliée contre ma peau, dans la poche de ma veste.
@@ -494,7 +467,7 @@ Je n'ai pas dormi. Je n'ai pas mangé. J'ai regardé la Bretagne défiler derri�
 
 Kerfany-Plage est à quarante minutes. Quarante minutes de départementale, à travers des villages que je connais par cœur, des villages dont je connais les noms, les panneaux, les virages, les crêperies fermées en plein semaine. Tout est pareil. Rien n'a changé en un mois. Le panneau *Kerfany-Plage — Population 340 habitants* est toujours là, cabossé, penché vers la droite. La mer apparaît après le dernier virage. Grise. Plate. Froide.
 
-Je gare la voiture sur le parking de la plage. Je ne vais pas à la maison. Pas encore. Je m'assois sur le muret, face à la mer, et je respire. L'air sent le sel, les algues, et quelque chose de sucré, quelque chose que je n'arrive pas à identifier, quelque chose qui n'est pas d'ici, quelque chose qui vient d'ailleurs.
+Je gare la voiture sur le parking de la plage. Je ne vais pas à la maison. Pas encore. Je m'assois sur le muret, face à la mer, et je respire. L'air sent le sel, les algues, et quelque chose de sucré, quelque chose que je n'arrive pas à identifier, quelque chose qui n'est pas de ici, quelque chose qui vient d'ailleurs.
 
 Il y a un homme sur la plage. Il marche, pieds nus, le long du bord. Il est loin. Je ne le vois pas bien. Il a un chapeau, un manteau long, une canne. Il marche lentement, comme quelqu'un qui cherche quelque chose. Il ne me voit pas. Ou il fait semblant.
 
@@ -518,9 +491,9 @@ Je m'assois à la table. La table où Charlotte s'asseyait, le matin, avec son c
 
 Un bruit. À l'étage.
 
-Mon cœur s'arrête. J'ouvre les yeux. Je regarde le plafond. Le bruit vient de la chambre de Charlotte. Un bruit léger, régulier, comme un taptement. Comme quelqu'un qui tapote le rebord d'une fenêtre. Comme quelqu'un qui attend.
+Mon cœur s'arrête. J'ouvre les yeux. Je regarde le plafond. Le bruit vient de la chambre de Charlotte. Un bruit léger, régulier, comme un tapotement. Comme quelqu'un qui tapote le rebord d'une fenêtre. Comme quelqu'un qui attend.
 
-Je me lève. Je prends le couteau suisse dans ma poche. Je l'ouvre. La lame est courte, ridicule. Je la tiens quand même. Je monte l'escalier. Les marches grincent. Chaque marche. Une par une. Le taptement s'arrête.
+Je me lève. Je prends le couteau suisse dans ma poche. Je l'ouvre. La lame est courte, ridicule. Je la tiens quand même. Je monte l'escalier. Les marches grincent. Chaque marche. Une par une. Le tapotement s'arrête.
 
 J'arrive sur le palier. La porte de la chambre de Charlotte est entrouverte. Je la pousse du bout des doigts. Elle s'ouvre. La chambre est en ordre. Le lit est fait. Les rideaux sont tirés. Et à la fenêtre, une branche de tamaris bat contre la vitre. Le vent. C'était le vent. Rien d'autre. Le vent de Bretagne, qui ne s'arrête jamais, qui tape contre les vitres, qui secoue les branches, qui fait peur aux gens qui ont déjà peur.
 
@@ -535,10 +508,6 @@ Je pose le livre. Je me lève. Je vais à la fenêtre. J'ouvre. Le tamaris bat e
 Je referme la fenêtre. Je descends. Je sors de la maison. Je remonte dans la voiture. Je ne vais pas à la plage. Pas maintenant. Je vais à l'hôpital. Charlotte m'attend.
 
 Charlotte m'attend depuis un mois.
-
-
----
-
 # CHAPITRE 7 — L'hôpital
 
 L'hôpital psychiatrique de Quimper est à dix minutes du centre-ville, sur la route de Bénodet. Un bâtiment blanc, moderne, entouré de pins. Des barreaux aux fenêtres du rez-de-chaussée. Un parking presque vide. Une réception qui sent le désinfectant et le café froid.
@@ -561,7 +530,7 @@ Charlotte est assise dans un fauteuil, près de la fenêtre. Elle porte une chem
 
 — Charlotte, dis-je.
 
-Elle ne bouge pas. Elle ne tourne pas la tête. Elle ne me regarde pas. Elle continue à fixer la fenêtre, comme si je n'étais pas là, telle une ombre qu'elle aurait effacée, comme si je n'avais jamais existé.
+Elle ne bouge pas. Elle ne tourne pas la tête. Elle ne me regarde pas. Elle continue à fixer la fenêtre, comme si je n'étais pas là, comme si je n'existais pas, comme si je n'avais jamais existé.
 
 Je m'approche. Je m'assois sur la chaise, à côté d'elle. Je regarde ses mains. Elles sont fines. Trop fines. Les veules saillent. Les ongles sont rongés. Il y a un bracelet d'hôpital à son poignet gauche, avec son nom, sa date de naissance, et un code-barres.
 
@@ -628,10 +597,6 @@ Je dois trouver Camille. Je dois trouver la troisième sœur. Le numéro 1. Le p
 Je me lève. Je remonte dans la voiture. Je ne rentre pas à la maison. Je vais voir Denise.
 
 Denise sait. Denise a toujours su.
-
-
----
-
 # CHAPITRE 8 — Denise
 
 Denise habite dans la maison de la falaise, à deux cents mètres de la maison des Roussel. C'est une bâtisse en granit, basse, volets rouges, toit de chaume refait il y a dix ans. Denise y vit seule depuis la mort de son mari, Goulven, il y a douze ans. Elle a soixante-trois ans. Elle est la voisine. Elle est la femme qui m'a vue grandir. Elle est la femme qui m'a vue partir. Elle est la femme qui sait.
@@ -706,7 +671,7 @@ Le four sonne. La tarte est cuite. Denise ne bouge pas. Elle me regarde. J'ai l'
 
 — Denise, dis-je. Est-ce que ma mère savait ?
 
-Elle ne répond pas tout de suite. Elle se lève. Elle éteint le four. Elle sort la tarte. La tarte est dorée, parfaite, comme si elle n'avait rien entendu, on dirait que rien ne s'était passé. Elle la pose sur le comptoir. Elle revient s'asseoir.
+Elle ne répond pas tout de suite. Elle se lève. Elle éteint le four. Elle sort la tarte. La tarte est dorée, parfaite, comme si elle n'avait rien entendu, comme si rien ne s'était passé. Elle la pose sur le comptoir. Elle revient s'asseoir.
 
 — Ta mère savait pour Ariane, dit-elle. Ta mère savait que quelque chose n'allait pas. Mais ta mère ne savait pas quoi. Ta mère n'avait pas le vocabulaire. Ta mère n'avait personne à qui parler. Ton père était déjà parti. Le curé ne comprenait rien. Et Denise — moi — j'étais là, mais ta mère ne me faisait pas confiance. Pas assez. Pas pour ça.
 
@@ -747,10 +712,6 @@ Je ne vais pas à Pont-l'Abbé. Pas encore. D'abord, je dois voir Faustine. D'ab
 D'abord, je dois revenir à la maison, et fouiller.
 
 La maison n'a pas fini de parler.
-
-
----
-
 # CHAPITRE 9 — Le grenier
 
 Je rentre à la maison des Roussel. Il est quinze heures. Le soleil est là, timide, entre deux nuages. Je referme la porte derrière moi. Le silence m'accueille. Le silence et le parfum de Charlotte.
@@ -765,7 +726,7 @@ Je reste debout au milieu de la chambre de Charlotte. Je regarde le plafond. Il 
 
 Je déplace le fauteuil de la chambre. Je le mets sous la trappe. Je monte dessus. Je pousse la trappe. Elle résiste. Je pousse plus fort. Elle cède, avec un craquement sec. Un courant d'air froid descend du grenier. Il sent la poussière, le bois, et quelque chose d'autre. Du papier. Du vieux papier.
 
-Je reviens avec la lampe de poche du tiroir de la cuisine. Je me hisse dans le grenier. C'est un petit espace, sous les toits, avec des poutres apparentes, un sol en planches, et des caisses empilées contre le mur. Des caisses en carton, fermées par du scotch. Des caisses que je n'ai jamais vues. Des caisses qui ne sont pas d'ici. Des caisses qui portent une étiquette, au feutre rouge, avec un seul mot :
+Je reviens avec la lampe de poche du tiroir de la cuisine. Je me hisse dans le grenier. C'est un petit espace, sous les toits, avec des poutres apparentes, un sol en planches, et des caisses empilées contre le mur. Des caisses en carton, fermées par du scotch. Des caisses que je n'ai jamais vues. Des caisses qui ne sont pas de ici. Des caisses qui portent une étiquette, au feutre rouge, avec un seul mot :
 
 *ROUSSEL — DOSSIER TRANSIT.*
 
@@ -773,7 +734,7 @@ Mon cœur bat. Mon cœur tape contre mes côtes comme un poing contre une porte.
 
 Des dossiers. Des dizaines de dossiers. Des pochettes en carton, avec des noms, des dates, des lieux. Chaque pochette porte un numéro, de 1 à 47. Chaque pochette correspond à un chaînon. Chaque pochette contient : un acte de naissance, un dossier médical, un dossier scolaire, des photos, et une fiche de *placement* — la famille adoptive, le lieu, la date.
 
-Charlotte avait constitué un dossier pour chaque chaînon. Charlotte savait tout. Charlotte savait où étaient les 47 enfants. Charlotte savait qui les élevait, où ils allaient à l'école, ce qu'ils mangeaient, comment ils dormaient. Charlotte avait tout noté, tout rassemblé, tout classé. Pendant huit ans. En silence.
+Charlotte avait constitué un dossier pour chaque chaînon. Charlotte savait tout. Charlotte savait où étaient les 47 enfants. Charlotte savait qui les élevait, où ils allaient à l'école, ce qu'ils mangeaient, comment ils dormaient. Charlotte avait tout noté. Tout rassemblé. Tout classé. Pendant huit ans. En silence.
 
 J'ouvre la pochette numéro 1. Camille. Née le 14 mars 1989 à Quimper. Placée le 17 mars 1989 chez la famille *Le Gall, Yannick et Marie*, à Pont-l'Abbé. Adresse : 4, rue des Saules. Deux photos. Un bébé. Un nourrisson, nu, sur une balance, dans un hôpital. Le bébé a mon visage. Le bébé a le visage de Charlotte. Le bébé a mes yeux, mon nez, ma bouche. C'est moi sur la photo. Non, c'est Charlotte. Non, c'est Camille. Nous sommes identiques. Nous avons toujours été identiques. Trois fois le même visage. Trois fois le même corps. Trois fois le même sang.
 
@@ -787,7 +748,7 @@ J'ouvre d'autres pochettes. Le numéro 22. Lucie KERVADEC. Née le 9 avril 1991 
 
 Le numéro 42. Léo Roussel. Né le 3 juin 1996 à Quimper. Placé chez la famille *Roussel, Jean et Anne*. Léo n'a pas été placé. Léo est resté. Léo a été gardé par mes parents. Léo est un chaînon, comme moi, comme Charlotte, mais Léo n'a jamais été envoyé ailleurs. Léo a grandi dans la maison. Léo a grandi avec nous. Léo savait. Léo a toujours su.
 
-Je ferme les caisses. J'ai assez vu pour aujourd'hui. J'ai assez vu pour ne plus dormir pendant des semaines. Je descends du grenier, referme la trappe, remets le fauteuil en place, et je m'assois sur le lit de Charlotte.
+Je ferme les caisses. J'ai assez vu pour aujourd'hui. J'ai assez vu pour ne plus dormir pendant des semaines. Je descends du grenier. Je referme la trappe. Je remets le fauteuil en place. Je m'assois sur le lit de Charlotte.
 
 Mon téléphone vibre. Un SMS. D'un numéro inconnu.
 
@@ -804,10 +765,6 @@ Je vais à la fenêtre. Le tamaris bat contre la vitre. La mer est grise. La fal
 Je ferme la fenêtre. Je tire les rideaux. La chambre devient sombre.
 
 Demain, je verrai Faustine. Demain, je commencerai à comprendre. Mais ce soir, ce soir je reste dans la maison. Ce soir, je m'assois à la table de la cuisine, avec le carnet, et les dossiers, et l'acte de naissance de Camille, et la clé de Pont-l'Abbé, et je lis. Je lis tout. Je lis jusqu'à ce que les mots n'aient plus de sens. Je lis jusqu'à ce que la nuit tombe. Je lis jusqu'à ce que le silence me prenne, comme il a pris Charlotte, et qu'il ne me lâche plus.
-
-
----
-
 # CHAPITRE 10 — Faustine
 
 Faustine ouvre la boulangerie à cinq heures du matin. J'arrive à dix heures pile, comme demandé. La vitrine est pleine. Far Breton, kouign-amann, tartes aux fraises, baguettes encore tièdes. L'odeur me prend à la gorge. L'odeur de l'enfance. L'odeur des matins de dimanche, quand mère nous envoyait chercher le pain, Charlotte et moi, main dans la main, pieds nus dans la rue encore mouillée.
@@ -947,10 +904,6 @@ Les dates sont le plan.
 Je ferme le carnet. Je le range. Je mets le moteur en route.
 
 Je vais voir Gilles.
-
-
----
-
 # CHAPITRE 11 — Gilles
 
 Gilles habite au-dessus du bar de la marine, à Loctudy, à dix minutes de Kerfany. C'est un appartement petit, lumineux, avec des fenêtres qui donnent sur le port. Gilles y vit seul. Il a toujours vécu seul. Il pêche, il boit, il dort. C'est sa vie. Trois verbes. Trois activités. Rien d'autre.
@@ -1076,13 +1029,9 @@ Il y a un homme assis sur le muret du port. Un chapeau. Un manteau long. Une can
 Je remonte dans la voiture. Je démarre. Je ne le regarde pas. Je pars. Dans le rétroviseur, il tourne la tête vers moi. Lentement. Et il sourit.
 
 Le numéro 3 me suit.
-
-
----
-
 # CHAPITRE 12 — Les dates
 
-Je rentre à la maison, je ferme la porte à clé, je tire les rideaux, et je m'assois à la table de la cuisine avec le carnet, un crayon, une feuille blanche, et une tasse de café que je ne boirai pas.
+Je rentre à la maison. Je ferme la porte à clé. Je tire les rideaux. Je m'assois à la table de la cuisine avec le carnet, un crayon, une feuille blanche, et une tasse de café que je ne boirai pas.
 
 Les 47 dates. Je les note, dans l'ordre, en face de chaque numéro. Le crayon grince sur le papier. Les chiffres s'alignent.
 
@@ -1133,19 +1082,15 @@ Le téléphone vibre. Un message. De Inès.
 
 Paul. Mon ex-mari. Le père de Malo. Paul qui était parti. Paul qui m'avait laissée. Paul qui ne savait rien de la Transit, de la chaîne, de Charlotte. Paul qui croyait que j'étais folle. Paul qui arrivait ce soir.
 
-Je plie les feuilles, les glisse dans le carnet, range le carnet dans ma poche intérieure, et j'éteins la lumière de la cuisine. La maison sombre. Le parfum de Charlotte flotte encore, fantomatique.
+Je plie les feuilles. Je les glisse dans le carnet. Je range le carnet dans ma poche intérieure. J'éteins la lumière de la cuisine. La maison sombre. Le parfum de Charlotte flotte encore, fantomatique.
 
 Je sors. La nuit est tombée. Les étoiles sont là, au-dessus de la mer, dures et froides. La lune éclaire la falaise. Et sur la plage, tout en bas, une silhouette. Pas l'homme au chapeau. Plus petite. Plus fine. Une femme. Elle regarde la maison. Elle ne bouge pas. Elle me regarde.
 
-Je ne descends pas. Je remonte dans la voiture et je démarre. Les phares balaient la route. La silhouette disparaît dans le noir.
+Je ne descends pas. Je remonte dans la voiture. Je démarre. Les phares balaient la route. La silhouette disparaît dans le noir.
 
 Je vais chez Inès. Il faut que je vois Paul. Il faut que je comprenne pourquoi il vient. Il faut que je comprenne ce qu'il sait.
 
 Les dates m'ont donné un plan. Mais le plan a un prix. Et le prix, c'est tout ce que j'ai.
-
-
----
-
 # CHAPITRE 13 — Inès
 
 Inès habite dans une longère rénovée, au bout d'un chemin de terre, à un kilomètre du bourg. C'est une maison belle, simple, avec des murs en pierre, un toit d'ardoise, et un jardin plein de rosiers. Inès l'a achetée il y a cinq ans, avec l'argent de son divorce. Elle vit seule. Elle peint. Elle boit du vin blanc. Elle court le matin sur la plage. C'est la vie d'Inès. La vie qu'elle s'est construite après la chute.
@@ -1255,10 +1200,6 @@ Paul me regarde à travers la vitre. Il sourit. Un sourire professionnel, poli, 
 Je laisse le rideau retomber. Je regarde Inès.
 
 — C'est Paul, dis-je. Il est en avance.
-
-
----
-
 # CHAPITRE 14 — Paul
 
 Inès ouvre la porte. Paul entre. Il embrasse Inès sur la joue — deux bises, rapides, distantes, le geste de quelqu'un qui connaît sans aimer. Puis il me voit. Il s'arrête. Il me regarde. Son sourire professionnel ne bouge pas. Ses yeux ne bougent pas. Rien ne bouge, chez Paul. Paul contrôle tout. Paul a toujours tout contrôlé.
@@ -1386,10 +1327,6 @@ Mais ce soir, ce soir je reste. Ce soir je dors chez Inès, sur son canapé, sou
 Ce soir, je ferme les yeux et je pense au plan. Les dates. Les courbes. Les cycles. Sept par sept. Six cycles complets, un incomplet. Le 48e en janvier. Quatre mois.
 
 Quatre mois pour briser un cercle de trente-deux ans.
-
-
----
-
 # CHAPITRE 15 — Pont-l'Abbé
 
 Nous partons à l'aube. Paul conduit. Je suis à droite. La route de Kerfany à Pont-l'Abbé traverse la campagne finistérienne — des champs, des haies, des clochers de granit, des calvaires tordus par le vent et le sel. Le ciel est bas, gris, lourd. Il va pleuvoir. Il pleut toujours, en Bretagne. Même quand il ne pleut pas, il pleut.
@@ -1424,7 +1361,7 @@ Elle me regarde. Elle fronce les sourcils. Elle réfléchit. Puis elle dit :
 
 — Merci.
 
-Je remonte dans la voiture. Le manoir de Kerguidi. Le manoir aux corbeaux. Je donne l'information à Paul. Il démarre. On suit la route de Locturdy. Les panneaux défilent. Les champs. Les haies. Et puis, au bout d'un chemin de terre, un portail.
+Je remonte dans la voiture. Le manoir de Kerguidi. Le manoir aux corbeaux. Je donne l'information à Paul. Il démarre. On suit la route de Loctudy. Les panneaux défilent. Les champs. Les haies. Et puis, au bout d'un chemin de terre, un portail.
 
 Le portail est en fer forgé. Noir. Haut de trois mètres. Surmonté d'un motif — un cercle, avec une chaîne enroulée autour. La chaîne de la Transit. Le symbole. Le signe. Nous sommes au bon endroit.
 
@@ -1473,10 +1410,6 @@ Ariane ouvre la bouche. Elle parle. Et le monde change.
 *Fin de l'Acte I — La Faille*
 
 *Acte II — La Chaîne*
-
-
----
-
 # CHAPITRE 16 — La révélation
 
 Ariane parle. Sa voix est calme, posée, sans drama. Une voix de sage-femme. Une voix d'accouchement. Une voix qui a accueilli 47 enfants au monde, une voix qui les a tous vus naître, une voix qui les connaît tous par leur premier cri.
@@ -1584,10 +1517,6 @@ Il y a un autre moyen. Et ce moyen, c'est la science.
 Ariane me regarde. Longuement. Puis elle sourit. Pour la première fois, un vrai sourire. Pas le sourire professionnel. Pas le sourire de la fondatrice. Un sourire humain, fatigué, soulagé. Un sourire de quelqu'un qui attendait depuis trente ans qu'on lui dise ça.
 
 — Je t'écoute, dit-elle. Dis-moi tout.
-
-
----
-
 # CHAPITRE 17 — Camille
 
 Ariane nous mène à l'étage. L'escalier est en bois sombre, ciré, sans un grincement. Les marches sont usées au centre — des dizaines d'années de pas, des centaines de montées et de descentes, la trace d'une femme qui vit seule depuis trop longtemps.
@@ -1636,7 +1565,7 @@ J'entre. La chambre est simple. Un lit, une table, une chaise, une fenêtre qui 
 
 Camille frémit. Le nom de Joseph. Le numéro 3. Le veilleur. L'homme au chapeau.
 
-— Joseph est venu ici, dit-elle. Une fois. Il y a trois ans. Il est monté dans ma chambre. Il s'est assis sur cette chaise. Il m'a regardée. Il n'a rien dit pendant dix minutes. Puis il s'est levé, et il est parti. Je ne l'ai jamais revu. Mais je l'entends, la nuit. Dans le parc. Ses pas sur le gravier. Le taptement de sa canne.
+— Joseph est venu ici, dit-elle. Une fois. Il y a trois ans. Il est monté dans ma chambre. Il s'est assis sur cette chaise. Il m'a regardée. Il n'a rien dit pendant dix minutes. Puis il s'est levé, et il est parti. Je ne l'ai jamais revu. Mais je l'entends, la nuit. Dans le parc. Ses pas sur le gravier. Le tapotement de sa canne.
 
 Paul reste dans l'encadrement de la porte. Il regarde Camille. Il voit ce que je vois. Le même visage. La même femme, dédoublée, triplée, multipliée. Paul regarde mon visage sur un autre corps, et il ne sait pas quoi faire de cette information, de cette image, de cette vérité.
 
@@ -1703,10 +1632,6 @@ Paul pose sa main sur mon épaule. Camille ne me lâche pas. Les corbeaux se tai
 Sortir Charlotte de l'hôpital. Réunir les triplées. Fermer le cercle sans sacrifice. Affronter Joseph.
 
 Quatre mois. Quatre mois pour tout changer.
-
-
----
-
 # CHAPITRE 18 — Les archives
 
 Ariane nous mène au sous-sol. Un escalier étroit, en pierre, qui descend dans l'obscurité. Elle allume la lumière — des néons blafards, qui clignotent avant de tenir, comme des yeux qui s'ouvrent lentement.
@@ -1790,10 +1715,6 @@ Ma mère connaissait Ariane. Ma mère savait. Ma mère a participé.
 Le sous-sol se resserre. Les néons clignotent. Les congélateurs ronronnent. Les classeurs se taisent. Et moi, je tiens le classeur rouge, et je lis l'écriture de ma mère, et le monde change encore.
 
 Encore. Toujours. Sans fin.
-
-
----
-
 # CHAPITRE 19 — La mère
 
 Je m'assois sur le sol du sous-sol. Par terre. Sur le ciment froid. Je tiens le classeur rouge sur mes genoux. Paul est à côté de moi, accroupi, une main sur mon épaule. Ariane est debout, le dos contre les congélateurs, immobile.
@@ -1826,7 +1747,7 @@ Je ferme les yeux. L'anomalie. Le sang. Le sang qui ne tient pas. Mes sœurs et 
 
 — Et Charlotte a découvert tout ça seule ?
 
-— Charlotte a trouvé les dossiers, il y a cinq ans. Dans cette maison. Charlotte est venue ici, comme toi, avec une clé, en suivant des indices. Charlotte a tout lu. Tout compris. Charlotte était plus forte que toi, Clémence. Plus rapide. Plus clairevoyante. Charlotte a vu le schéma des dates en une heure. Toi, il t'a fallu une nuit.
+— Charlotte a trouvé les dossiers, il y a cinq ans. Dans cette maison. Charlotte est venue ici, comme toi, avec une clé, en suivant des indices. Charlotte a tout lu. Tout compris. Charlotte était plus forte que toi, Clémence. Plus rapide. Plus clairvoyante. Charlotte a vu le schéma des dates en une heure. Toi, il t'a fallu une nuit.
 
 — Et Charlotte a voulu tout révéler.
 
@@ -1891,10 +1812,6 @@ Je regarde le classeur rouge sur mes genoux. Le dossier zéro. Ma mère. La fond
 Et je comprends enfin. La chaîne n'est pas une malédiction. La chaîne est un héritage. Ma mère l'a commencée. Ariane l'a continuée. Et moi, je vais la terminer. Pas comme Joseph le veut. Pas comme le cercle l'exige. À ma façon.
 
 La façon du sang.
-
-
----
-
 # CHAPITRE 20 — Le retour
 
 La route de Pont-l'Abbé à Kerfany prend vingt minutes. Vingt minutes pendant lesquelles personne ne parle. Paul conduit. Camille regarde par la fenêtre. Je tiens le classeur rouge et le carnet des dates, et je réfléchis.
@@ -2030,10 +1947,6 @@ Trois sœurs. Une voiture. Un plan.
 Trouver Léo. Fermer le cercle. Sauver Gilles.
 
 Le compte à rebours commence.
-
-
----
-
 # CHAPITRE 21 — La cachette
 
 Charlotte nous mène à l'Île-Tudy. Pas Kerfany. Pas Loctudy. L'Île-Tudy, la petite presqu'île de l'autre côté de Pont-l'Abbé, avec ses maisons de pêcheurs, son port minuscule, ses ruelles qui sentent le sel et les algues séchées. Un endroit qu'on ne trouve que si on le cherche. Un endroit que personne ne surveille.
@@ -2147,10 +2060,6 @@ Une semaine. Il faut tenir une semaine. Le temps que les résultats tombent. Le 
 Mais je sais, au fond de moi, que Joseph ne nous laissera pas une semaine. Joseph est un homme de foi. Et les hommes de foi ne patientent pas. Les hommes de foi agissent.
 
 Une semaine. Ou moins.
-
-
----
-
 # CHAPITRE 22 — La nuit
 
 La première nuit à l'Île-Tudy est longue. Cinq adultes dans une maison de pêcheur, chacun avec ses peurs, ses secrets, ses insomnies. Paul dort sur un matelas gonflable, dans la cuisine. Camille dort dans le fauteuil, recroquevillée, le sac à dos contre elle comme un bouclier. Léo veille, assis près de Lucie, une main sur son ventre. Charlotte ne dort pas. Charlotte n'a pas dormi depuis un mois. Charlotte ne dort plus.
@@ -2292,10 +2201,6 @@ Charlotte et moi restons debout, dans le jardin, sous la lune. Les marguerites b
 — Une semaine, dit Charlotte.
 
 Sept jours pour sauver Gilles. Sept jours pour sauver tout le monde.
-
-
----
-
 # CHAPITRE 23 — Les jours
 
 Jour deux. Mercredi.
@@ -2306,7 +2211,7 @@ Trois jours. Joseph nous a donné une semaine. Il en reste cinq. C'est assez. Ç
 
 Paul part à Quimper. Il a un plan. Paul est architecte. Paul connaît des gens. Paul connaît un professeur de génétique à la faculté de médecine — un certain Pr. Malbranche, spécialiste des maladies héréditaires du sang. Paul va le voir. Paul va tout lui expliquer. Pas tout. Juste assez. Juste ce qu'il faut pour que le professeur accepte de regarder les échantillons. D'accélérer les résultats. De confirmer ce que nous espérons.
 
-Camille reste à la maison. Elle nettoie. Elle range. Elle fait du café. Elle s'occupe. Camille, qui n'a pas eu de maison depuis trente-deux ans, s'occupe de celle-ci comme si c'était la sienne. Façon de se réapproprier chaque mètre carré de cette maison de pêcheur, pareil à un morceau de la vie qu'on lui a volée.
+Camille reste à la maison. Elle nettoie. Elle range. Elle fait du café. Elle s'occupe. Camille, qui n'a pas eu de maison depuis trente-deux ans, s'occupe de celle-ci comme si c'était la sienne. Comme si chaque mètre carré de cette maison de pêcheur était un morceau de la vie qu'on lui a volée.
 
 Lucie dort. Lucie dort beaucoup. Sept mois de grossesse, un mois de cavale, la peur constante — Lucie est épuisée. Léo veille à côté d'elle. Léo ne dort plus. Léo fait des rondes. Léo vérifie les volets, la porte, le jardin. Léo est un garde. Léo est le 47e chaînon, et il garde le 22e, et ensemble ils attendent le 48e.
 
@@ -2330,7 +2235,7 @@ Jour trois. Jeudi.
 
 Gilles est retrouvé. Faustine m'appelle à six heures du matin. *Il est chez moi. Il est venu cette nuit. Il est dans la boulangerie. Il dort.*
 
-Je prends la voiture et je roule dans la nuit. L'Île-Tudy à Kerfany, vingt minutes. La boulangerie est fermée. Je frappe à l'arrière. Faustine ouvre. Elle a les yeux rouges. Elle ne pleure pas. Faustine ne pleure pas. Faustine fait du pain.
+Je prends la voiture. Je roule dans la nuit. L'Île-Tudy à Kerfany, vingt minutes. La boulangerie est fermée. Je frappe à l'arrière. Faustine ouvre. Elle a les yeux rouges. Elle ne pleure pas. Faustine ne pleure pas. Faustine fait du pain.
 
 Gilles est allongé sur un sac de farine, dans l'arrière-boutique. Il dort. Son visage est creusé, ses mains sont noires de cambouis, ses vêtements sentent le gasoil et le sel. Il a dormi sur son bateau pendant deux jours, caché dans la cale, sans manger, sans boire, sans bouger.
 
@@ -2399,10 +2304,6 @@ Il faut convaincre Joseph. Ou il faut l'arrêter.
 Je rentre à l'Île-Tudy. Je fais le chemin inverse. La route, les champs, les clochers, les calvaires. Le soleil de fin de journée. La Bretagne. Ma Bretagne.
 
 Et quelque part, sur cette route, Joseph m'attend.
-
-
----
-
 # CHAPITRE 24 — La confrontation
 
 Joseph vient vendredi soir. Il ne frappe pas. Il entre. La porte n'est pas verrouillée — Faustine l'a laissée ouverte, par inadvertance, ou par fatalisme, ou par cette forme de lassitude qui finit par gagner celles qui ont trop veillé. Joseph entre dans la maison de l'Île-Tudy comme on entre dans un temple. Sans bruit. Sans hâte. Avec la certitude absolue d'un homme qui sait que le lieu lui appartient.
@@ -2502,10 +2403,6 @@ Il court vers la chambre. Je le suis. Lucie est allongée, le visage déformé, 
 — Le ventre, gémit-elle. Ça tire. Ça tire fort. Oh, mon Dieu, ça tire.
 
 Le ventre de Lucie. Le 48e chaînon. L'enfant qui doit naître en janvier. Trois mois trop tôt. Quelque chose ne va pas.
-
-
----
-
 # CHAPITRE 25 — L'accouchement
 
 Lucie saigne. Pas beaucoup. Mais elle saigne. Une tache rouge, petite, sur le plaid bleu. Comme une fleur qui s'ouvre. Comme un maillon qui cède.
@@ -2626,7 +2523,7 @@ Charlotte, Camille, et moi. Nous nous plaçons autour du lit. Trois femmes. Troi
 
 Et quelque chose se passe.
 
-Je le sens. Pas dans ma tête. Dans mon corps. Dans mes veines. Un courant. Une chaleur. Un frisson. Comme si le sang accélérait, tel un cœur qui battrait plus fort, comme si quelque chose de très ancien, de très profond, se réveillait. Le cercle. Le cercle qui se ferme. Trois sources, réunies, autour d'un nouveau-né, dans un manoir aux corbeaux, au milieu de la nuit.
+Je le sens. Pas dans ma tête. Dans mon corps. Dans mes veines. Un courant. Une chaleur. Un frisson. Comme si le sang accélérait, comme si le cœur battait plus fort, comme si quelque chose de très ancien, de très profond, se réveillait. Le cercle. Le cercle qui se ferme. Trois sources, réunies, autour d'un nouveau-né, dans un manoir aux corbeaux, au milieu de la nuit.
 
 Lucie cesse de saigner.
 
@@ -2647,10 +2544,6 @@ Il dépose sa canne au sol. Il dépose son chapeau. Il s'agenouille. Joseph, le 
 Gilles est debout derrière lui. Gilles est vivant. Gilles est debout, les mains ouvertes, le visage trempé de larmes. Gilles est vivant.
 
 Le cercle est fermé. Personne n'est mort. Le sang tient.
-
-
----
-
 # CHAPITRE 26 — L'aube
 
 Le matin arrive comme un miracle. Le soleil monte derrière les arbres du parc, doré, tiède, presque timide. Les corbeaux se réveillent. Ils crient, tournent, se posent sur les branches mouillées de rosée. Le manoir vit. Le manoir respire. La fumée des cheminées monte droite dans l'air immobile.
@@ -2721,17 +2614,13 @@ Le téléphone vibre sur la table basse. Inès.
 
 *Clémence. Urgent. Viens à Kerfany. Denise est à l'hôpital. Elle a fait une crise cardiaque. C'est grave. Les médecins disent que c'est le cœur. Ils disent qu'elle a fait trois arrêts.*
 
-Denise. La voisine. La vieille femme qui connaissait tout, qui voyait tout, qui se taisait. Denise qui avait vu les triplées naître — trois bébés identiques dans une clinique de Quimper, un soir de novembre 1986. Denise qui avait gardé les secrets pendant trente ans, qui avait veillé sur la maison, sur l'enfant, sur la chaîne. Denise qui s'effondrait maintenant, au matin du cercle fermé, comme si sa mission était accomplie, on dirait que son cœur avait décidé que c'était fini.
+Denise. La voisine. La vieille femme qui connaissait tout, qui voyait tout, qui se taisait. Denise qui avait vu les triplées naître — trois bébés identiques dans une clinique de Quimper, un soir de novembre 1986. Denise qui avait gardé les secrets pendant trente ans, qui avait veillé sur la maison, sur l'enfant, sur la chaîne. Denise qui s'effondrait maintenant, au matin du cercle fermé, comme si sa mission était accomplie, comme si son cœur avait décidé que c'était fini.
 
 — Il faut y aller, dis-je. Denise.
 
 Charlotte pâlit. Camille frissonne — elle qui ne connaît pas Denise, elle qui n'a jamais vécu à Kerfany, mais qui comprend, instinctivement, que chaque maillon de l'ombre tombe un par un. Denise — un autre maillon de l'ombre, une autre gardienne silencieuse, un autre cœur qui lâche.
 
 Le cercle est fermé, mais la chaîne continue de résonner. Comme une cloche qu'on a frappée et qui vibre encore, longtemps après le coup, dans l'air immobile du matin.
-
-
----
-
 # CHAPITRE 27 — Denise
 
 L'hôpital de Quimper. Service de cardiologie. Deuxième étage. Chambre 214.
@@ -2823,10 +2712,6 @@ Le téléphone vibre. Ariane.
 Le sang du 48e. Ariane sait. Ariane a toujours su. Ariane est la gardienne de la garde, le maillon du maillon, le secret dans le secret.
 
 Et moi, je cours. Encore. Toujours. De l'hôpital au manoir, du manoir à l'hôpital, de secret en secret, de maillon en maillon, sans fin. La route est mouillée. Les essuie-glaces battent. La Bretagne pleure sous un ciel bas, et moi, je pleure avec elle — sans larmes, sans bruit, sans que personne ne le voie.
-
-
----
-
 # CHAPITRE 28 — Le dernier secret
 
 Ariane m'attend au sous-sol. Devant les congélateurs. Le coffre-fort est ouvert. Le classeur rouge est sorti. Et à côté du classeur rouge, il y a autre chose. Une boîte en métal, plate, rectangulaire, rouillée sur les bords. Une boîte que je n'ai pas vue la première fois.
@@ -2930,10 +2815,6 @@ Gilles est sauvé. Le 48e est né. Le sang tient.
 Mais le sang doré attire les prédateurs. Et les prédateurs viennent.
 
 À moi de parler avant qu'ils n'arrivent.
-
-
----
-
 # CHAPITRE 29 — La révélation
 
 Deux semaines plus tard.
@@ -2999,10 +2880,6 @@ Et dans le monde, le sang doré circule. Dans les laboratoires, dans les hôpita
 La chaîne est révélée. Le cercle est fermé. Le sang tient.
 
 Mais les chaînons, eux, restent.
-
-
----
-
 # CHAPITRE 30 — La lettre
 
 Un mois après l'article. Novembre.
@@ -3101,13 +2978,9 @@ Ma fille. Malo, six ans, qui dessine des fleurs.
 
 Malo est le vrai prix. Malo est le vrai otage. Malo est le chaînon que le prédateur attendait.
 
-Je prends la lettre, la froisse dans ma main, et je cours dehors. La mer gronde. Le vent hurle. La falaise veille.
+Je prends la lettre. Je la froisse dans ma main. Je cours dehors. La mer gronde. Le vent hurle. La falaise veille.
 
 Et Malo n'est nulle part.
-
-
----
-
 # CHAPITRE 31 — La panique
 
 Quarante-cinq minutes. C'est le temps que j'ai mis pour réaliser. Quarante-cinq minutes entre le message de Paul et le moment où mon cerveau a compris. Malo n'est pas à l'école. Malo a disparu.
@@ -3120,7 +2993,7 @@ Silence.
 
 — Paul ?!
 
-Rien. Je raccroche. Les mains tremblent. Le téléphone glisse, tombe, se casse sur le carrelage. L'écran se fêle. Je le ramasse. L'écran fonctionne encore. Barement.
+Rien. Je raccroche. Les mains tremblent. Le téléphone glisse, tombe, se casse sur le carrelage. L'écran se fêle. Je le ramasse. L'écran fonctionne encore. À peine.
 
 Charlotte est à côté de moi. Elle ne dit rien. Elle prend les choses en main. Charlotte appelle l'école. La maîtresse confirme : Malo n'est pas venue ce matin. Le car scolaire est passé à huit heures moins le quart. Malo n'était pas à l'arrêt. La maîtresse a supposé que Malo était malade.
 
@@ -3148,7 +3021,7 @@ Le partage des rôles. Charlotte, la stratège, la femme de l'ombre, celle qui r
 
 Je prends la voiture. Je suis les traces de pneus. La départementale. Pont-l'Abbé. Quimper. Les traces se mêlent au trafic, se diluent, disparaissent. Les pneus d'un utilitaire sont les pneus de mille véhicules.
 
-Je m'arrête sur le bas-côté. Je tape sur le volant. Je crie. Le klxon hurle. Les vaches dans le champ me regardent avec des yeux ronds.
+Je m'arrête sur le bas-côté. Je tape sur le volant. Je crie. Le klaxon hurle. Les vaches dans le champ me regardent avec des yeux ronds.
 
 Malo. Ma fille. Six ans. Les cheveux blonds de Paul. Les yeux bleus des Roussel. Le rire qui résonne dans la maison. Les dessins de fleurs punaisés sur le réfrigérateur. Le pyjama à licornes. Le doudou — un lapin en peluche qui s'appelle Lapinou. Lapinou est sur le lit de Malo. Si Malo avait été emmenée par quelqu'un qu'elle connaissait, elle aurait pris Lapinou. Si Malo avait été forcée, Lapinou serait tombé. Lapinou est sur le lit. Net. Intact. Comme si Malo avait été prise si vite qu'elle n'a même pas pu tendre la main.
 
@@ -3223,10 +3096,6 @@ Dans le train, je regarde par la fenêtre. La Bretagne défile. Les champs, les 
 Et dans ma tête, une seule question. Une seule.
 
 Paul. Qui es-tu ?
-
-
----
-
 # CHAPITRE 32 — La confession de Paul
 
 Paris. Montparnasse. Dix-huit heures douze.
@@ -3287,7 +3156,7 @@ Le sol se dérobe. Pas en métaphore. En sensation. La chaise bouge. La table bo
 
 — Et ?
 
-— Il a pris les échantillons. Les trois tubes. Gilles, Lucie, Léo. Dans les congélateurs du manoir. Il a envoyé quelquée — je ne sais pas qui — prendre les tubes. Pour me punir. Pour me montrer qu'il savait tout, qu'il contrôlait tout, qu'il pouvait entrer dans le manoir d'Ariane sans être vu. Les tubes étaient un message : *Tu ne peux pas me quitter.*
+— Il a pris les échantillons. Les trois tubes. Gilles, Lucie, Léo. Dans les congélateurs du manoir. Il a envoyé quelqu'un — je ne sais pas qui — prendre les tubes. Pour me punir. Pour me montrer qu'il savait tout, qu'il contrôlait tout, qu'il pouvait entrer dans le manoir d'Ariane sans être vu. Les tubes étaient un message : *Tu ne peux pas me quitter.*
 
 — Hélène Doré, dis-je. La veilleuse disparue.
 
@@ -3330,10 +3199,6 @@ Quarante minutes. Le maître de la chaîne. L'homme qui a conçu les 47 chaînon
 — Clémence, c'est dangereux. Mon père est...
 
 — Ton père a ma fille. On y va. Maintenant.
-
-
----
-
 # CHAPITRE 33 — La route
 
 La route de Paris à Rennes prend trois heures. Trois heures de nuit, d'autoroute, de phares dans le noir. Paul conduit. Je suis à droite. Le classeur rouge sur mes genoux. La lettre froissée dans ma poche.
@@ -3368,7 +3233,7 @@ La voiture dévie. Paul corrige. Ses mains tremblent sur le volant. Il vient de 
 
 — Non. J'ai des soupçons. Des coïncidences. Mon père était avec Madeleine la nuit de sa mort. Au manoir. Seul avec elle. Ariane n'était pas là. Denise n'était pas là. Personne. Mon père et Madeleine. Et le matin, Madeleine était morte.
 
-— Et Ariane ? Elle a accepté ça ?
+— Et Ariane ? Elle accepté ça ?
 
 — Ariane ne sait pas. Ariane ne sait pas pour mon père. Ariane pense que la chaîne est le projet de Madeleine. Ariane pense qu'elle est la gardienne du projet de Madeleine. Ariane ne sait pas que le projet vient de mon père. Que Madeleine n'était que l'exécutante. Que tout — les 47 chaînons, la dilution, le sang doré — tout vient d'un homme de quatre-vingt-douze ans qui vit dans une maison du Thabor à Rennes.
 
@@ -3431,10 +3296,6 @@ Je pousse la porte.
 Étienne Kervadec est assis dans un fauteuil en cuir, devant une cheminée où brûle un feu. Il est petit, sec, blanc. Les cheveux blancs, les yeux gris, les mains fines posées sur les accoudoirs. Un homme de quatre-vingt-douze ans qui ressemble à un oiseau. Un rapace. Un oiseau de nuit.
 
 — Bonsoir, Clémence, dit-il. Je t'attendais.
-
-
----
-
 # CHAPITRE 34 — Le fondateur
 
 Le salon est une caverne. Des livres du sol au plafond. Des tableaux — des portraits de famille, des schémas génétiques encadrés, des photographies en noir et blanc. Une carte de Bretagne, punaisée au mur, couverte de points rouges. Les 47 chaînons. Chaque point rouge, un enfant. Chaque point rouge, une vie.
@@ -3570,10 +3431,6 @@ La chaîne finit. Ce soir. Au manoir. À minuit.
 Milo contre Malo. Le sang doré contre ma fille.
 
 Le choix impossible.
-
-
----
-
 # CHAPITRE 35 — Le plan
 
 La police arrive. Sept voitures. Quinze gendarmes. Un commissaire de Rennes, debout, digne, avec un manteau gris et un regard d'acier. Ils investissent la maison du Thabor. Ils fouillent. Ils interrogent. Ils perquisitionnent.
@@ -3662,17 +3519,13 @@ Je raccroche. Je regarde Paul. Paul est assis sur une chaise du commissariat, la
 
 Paul relève la tête. Ses yeux sont rouges. Son visage est un masque de douleur. Il ouvre la bouche. Il la referme. Il hoche la tête.
 
-Il se lève, sort du commissariat, monte dans la voiture et part.
+Il se lève. Il sort du commissariat. Il monte dans la voiture. Il part.
 
 Et moi, je reste. Seule. Dans un commissariat de Rennes, la nuit, en novembre, avec un plan dangereux, un tube de sang doré, et trente minutes entre l'échange et l'assaut.
 
 Minuit. Le manoir. La fin de la chaîne.
 
 Ou le dernier maillon.
-
-
----
-
 # CHAPITRE 36 — Le manoir
 
 La route de Rennes à Pont-l'Abbé prend une heure et demie. Je la fais en une heure quinze. La nuit, la pluie, les essuie-glaces, le tube dans ma poche.
@@ -3686,7 +3539,7 @@ Je gare la voiture à cinq cents mètres du manoir. Dans le chemin de terre, der
 J'attends. Trente-trois minutes. Dans la voiture, dans le noir, dans la pluie. Le tube dans ma poche. Le téléphone dans ma main. Le compte à rebours dans ma tête.
 
 Minuit. L'heure de l'échange.
-Minuit quinze. Mon estimate du départ.
+Minuit quinze. Mon estimation du départ.
 Minuit trente. Le RAID.
 
 J'appelle Charlotte.
@@ -3729,7 +3582,7 @@ Pas Étienne. Étienne est en garde à vue. Un autre homme. Grand, mince, le cr�
 
 — Où est ma fille ?
 
-L'homme sourit. Un sourire froid, professionnel, le sourire de quelqu'un qui fait son travail sans émotion. Le sourier d'un mercenaire.
+L'homme sourit. Un sourire froid, professionnel, le sourire de quelqu'un qui fait son travail sans émotion. Le sourire d'un mercenaire.
 
 — Votre fille est ici. En sécurité. Vous la verrez quand nous aurons ce que nous voulons.
 
@@ -3809,7 +3662,7 @@ La grille nord. Cinquante mètres. Trente mètres. Vingt mètres.
 
 Un bruit. Derrière. Dans le manoir. Un cri. Pas un cri humain. Un cri de veilleur. Un cri de douleur.
 
-Je me retourte. Le manoir est illuminé. Les fenêtres s'allument. Des silhouettes courent. Des voix crient.
+Je me retourne. Le manoir est illuminé. Les fenêtres s'allument. Des silhouettes courent. Des voix crient.
 
 Et puis la flamme.
 
@@ -3820,10 +3673,6 @@ Une flamme orange, vive, qui monte depuis le rez-de-chaussée. La cheminée ? No
 Et le manoir brûle.
 
 Avec les veilleurs dedans.
-
-
----
-
 # CHAPITRE 37 — Le feu
 
 Le manoir brûle. La flamme monte. Pas une flamme, maintenant. Un brasier. Une bête. Les fenêtres explosent — le verre tombe comme pluie de cristal, tinte sur le gravier, se brise en mille éclats qui brillent dans la lueur orange. La fumée sort par les cheminées, par les portes, par le toit. La fumée est noire, épaisse, grasse. Elle sent le bois brûlé, le papier brûlé, les souvenirs brûlés. Trente ans d'archives, trente ans de dossiers, trente ans de secrets — qui partent en fumée.
@@ -3906,7 +3755,7 @@ Le danger est passé. Le danger est passé pour Malo. Le danger est passé pour 
 
 Mais pas pour les veilleurs. Pas pour le manoir. Pas pour le tube de sang doré qui est entre les mains d'un mercenaire, quelque part dans la nuit de Pont-l'Abbé. Le tube que j'ai donné en échange de Malo — le faux tube, l'eau salée. Mais les veilleurs ne le savent pas encore. Et quand ils le sauront, quand ils analyseront le contenu, quand ils comprendront qu'ils ont été dupés...
 
-Le sang doré est en liberté. Un tube. Un millilitre. Entre les mains de quelqu'un qui le vendra au plus offrant. Qui le donnera au plus puissant. Qui le brevetera, le commercialisera, le transformera en or, en pouvoir, en arme. Et Kervadec attend dans sa cellule. Kervadec attend que son veilleur lui rapporte le tube. Kervadec attend le sang. Kervadec attend la fin de sa patience.
+Le sang doré est en liberté. Un tube. Un millilitre. Entre les mains de quelqu'un qui le vendra au plus offrant. Qui le donnera au plus puissant. Qui le brevétera, le commercialisera, le transformera en or, en pouvoir, en arme. Et Kervadec attend dans sa cellule. Kervadec attend que son veilleur lui rapporte le tube. Kervadec attend le sang. Kervadec attend la fin de sa patience.
 
 Le téléphone vibre. Numéro inconnu. Un SMS. Long. Méthodique. Rédigé par quelqu'un qui a du temps et de la certitude.
 
@@ -3923,10 +3772,6 @@ Ils savent où est Milo. L'hôpital. La chambre. Lucie. Léo. Le bébé.
 Ils viendront. Pas cette nuit. Un autre jour.
 
 La chaîne ne finit jamais. Et la route de Quimper s'étire devant moi, longue, noire, mouillée, interminable, comme la chaîne elle-même — sans fin, sans commencement, sans repos.
-
-
----
-
 # CHAPITRE 38 — Hélène
 
 L'hôpital de Quimper. Urgences pédiatriques. 01h30.
@@ -3991,7 +3836,7 @@ La femme ressemble à Gilles. Les mêmes yeux. Le même front. La même mâchoir
 
 — Hélène, dis-je.
 
-Elle s'arrête dans l'encadurement de la porte. Elle me regarde. Ses yeux noisette — les yeux de Gilles — me reconnaissent.
+Elle s'arrête dans l'encadrement de la porte. Elle me regarde. Ses yeux noisette — les yeux de Gilles — me reconnaissent.
 
 — Clémence, dit-elle. Sa voix est douce, rauque, usée. La voix d'une femme qui n'a pas parlé depuis longtemps.
 
@@ -4040,10 +3885,6 @@ Je regarde cette femme. Cette femme qui a fui pendant trente ans. Cette femme qu
 — Que faites-vous ici, Hélène ?
 
 — Je viens vous offrir un marché. Moi aussi. Mais le mien est honnête.
-
-
----
-
 # CHAPITRE 39 — Le marché
 
 Hélène s'assoit. Pas sur une chaise. Par terre. Le dos contre le mur, les jambes croisées, comme quelqu'un qui a l'habitude des sols, des caches, des planques. Le manteau vert ouvert, le foulard détaché. Le visage d'une femme de soixante ans qui en paraît soixante-dix.
@@ -4167,10 +4008,6 @@ Hélène et moi sortons. Le couloir. Le parking. La voiture. La nuit. La route d
 02h00. La maison du Thabor. Le coffre. Le code.
 
 La fin de l'empire.
-
-
----
-
 # CHAPITRE 40 — Le sacrifice
 
 Rennes. 03h00. La maison du Thabor.
@@ -4270,10 +4107,6 @@ Charlotte ferme les yeux. Le soulagement. Et la douleur. Le soulagement et la do
 Charlotte prend son téléphone. Elle appelle la journaliste du Ouest-France. Puis France 3. Puis Le Monde. Puis BFMTV. Tout le monde. Maintenant. Avant l'aube. Avant que les veilleurs ne disparaissent. Avant que Malbranche ne fasse disparaître les traces.
 
 La fin de l'empire commence à l'aube.
-
-
----
-
 # CHAPITRE 41 — La tempête
 
 L'article paraît à 08h00. Le Monde, page 3. Titre : *La Chaîne de Bretagne — comment un généticien a manipulé 47 familles pendant trente ans*. Sous-titre : *Documents exclusifs : les preuves du réseau clandestin d'Étienne Kervadec.*
@@ -4365,10 +4198,6 @@ Libre.
 Pour la première fois depuis que la chaîne a commencé — depuis cinquante ans, depuis 1956, depuis le jour où un généticien de Rennes a découvert une anomalie dans le sang d'un enfant breton et a décidé que cet enfant était une marchandise, un numéro, un maillon — pour la première fois, les chaînons sont libres.
 
 Malo finit ses céréales. Elle pose sa cuillère dans le bol avec un bruit clair. Elle se lève, grimpe sur les genoux de Paul, et pose sa tête contre sa poitrine. Paul l'enlace. Ses bras se referment. Ses yeux se ferment. L'image d'un père qui tient sa fille. L'image la plus simple, la plus ancienne, la plus universelle. La seule image qui compte.
-
-
----
-
 # CHAPITRE 42 — Les retrouvailles
 
 Trois semaines plus tard. Décembre.
@@ -4413,7 +4242,7 @@ Le mot. *Sauvé*. Le mot qui change tout. Le mot qui transforme un abandon en un
 
 — Je m'en fous de ce qu'elle veut. C'est ma mère. Je vais la voir.
 
-Gilles se lève. Il retire les capteurs de son doigt, met son manteau, et sort de la chambre. L'infirmière proteste. Gilles ne l'écoute pas. Gilles marche. Le couloir. L'ascenseur. Le hall. La sortie.
+Gilles se lève. Il retire les capteurs de son doigt. Il met son manteau. Il sort de la chambre. L'infirmière proteste. Gilles ne l'écoute pas. Gilles marche. Le couloir. L'ascenseur. Le hall. La sortie.
 
 Et moi, je le suis. Parce que c'est Gilles. Parce que Gilles est le numéro 5. Le premier enfant placé. Le premier chaînon. Et parce que Gilles mérite sa mère.
 
@@ -4462,10 +4291,6 @@ Libre.
 Le mot résonne dans le couloir de l'hôpital de Vannes. Libre comme l'air. Libre comme la mer. Libre comme un enfant qui ne sait pas ce que coûte la liberté.
 
 Méritait.
-
-
----
-
 # CHAPITRE 43 — Kerfany
 
 Noël. Kerfany-Plage.
@@ -4484,7 +4309,7 @@ Charlotte, à la cuisine. Charlotte qui cuisine. Charlotte qui rie. Charlotte, l
 
 Camille, au salon. Camille qui joue avec Malo. Camille, la revenue, l'absente, la retrouvée. Camille qui reste à Kerfany, qui a loué une maison au bord de la mer, qui écrit — Camille écrit un livre. Sur la chaîne. Sur les triplées. Sur tout. Camille, qui a été volée par la Transit, élevée loin, manipulée, enfermée — Camille qui transforme la douleur en mots.
 
-Gilles et Hélène. Ensemble. Assis sur le canapé. Gilles, le fils, avec un thé. Hélène, la mère, avec un chocolat. Hélène qui ne partira plus. Hélène qui habite dans la longère de Gilles, à Loctudy, qui cuisine, qui jardine, qui prend soin de son fils comme elle n'a jamais pu le faire. Trente ans de retard. Trente ans de maternalité rattrapée.
+Gilles et Hélène. Ensemble. Assis sur le canapé. Gilles, le fils, avec un thé. Hélène, la mère, avec un chocolat. Hélène qui ne partira plus. Hélène qui habite dans la longère de Gilles, à Loctudy, qui cuisine, qui jardine, qui prend soin de son fils comme elle n'a jamais pu le faire. Trente ans de retard. Trente ans de maternité rattrapée.
 
 Inès, à la fenêtre. Inès qui regarde la mer. Inès qui peint — des tableaux, maintenant, pas des murs. Inès qui expose à Quimper en janvier. Inès qui n'a jamais abandonné. Inès, l'amie, la fidèle, la constante.
 
@@ -4523,10 +4348,6 @@ Je regarde la mer. Les vagues. La falaise. Les corbeaux. La Bretagne.
 La chaîne est brisée. Mais le maillon subsiste. Il subsiste toujours.
 
 La fin d'un thriller n'est jamais la fin. C'est le début du suivant.
-
-
----
-
 # CHAPITRE 44 — Le procès
 
 Mars. Rennes. Le palais de justice.
@@ -4584,10 +4405,6 @@ Mais le SMS est là. Et les SMS ne mentent pas. Pas celui-là.
 La quatrième sœur existe. Quelque part. Dans l'ombre. Dans le sang. Dans la chaîne.
 
 Et elle me cherche.
-
-
----
-
 # CHAPITRE 45 — La quatrième silhouette
 
 Juillet. Kerfany-Plage. Un an après.
@@ -4703,7 +4520,3 @@ La fin n'est pas la fin. La fin n'est jamais la fin. La fin est le début du tro
 **FIN DU TOME 2 — LES CHAÎNONS**
 
 *La Remplaçante, Tome 3 : Le Fondateur*
-
-
----
-

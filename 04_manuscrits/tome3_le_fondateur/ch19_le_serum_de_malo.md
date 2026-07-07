@@ -2,7 +2,7 @@
 
 Pont-l'Abbé. Le 23 juillet. Cinq heures du soir.
 
-On est rentrés. Camille est avec nous. Elle tient la glacière médicale contre elle, calée entre ses genoux, sanglée pour ne pas bouger sur la banquette arrière. Thomas conduit, lent, régulier, à cent dix sur la quatre voies. Clodomira est à l'avant, le visage tourné vers la fenêtre, les yeux fermés, les lèvres qui priient en silence. Charlotte est à l'arrière, endormie contre la vitre, un plaid sur les genoux. Et moi, je tiens la glacière comme on tient un cœur entre ses mains — avec la peur, la tendresse, la dévotion.
+On est rentrés. Camille est avec nous. Elle tient la glacière médicale contre elle, calée entre ses genoux, sanglée pour ne pas bouger sur la banquette arrière. Thomas conduit, lent, régulier, à cent dix sur la quatre voies. Clodomira est à l'avant, le visage tourné vers la fenêtre, les yeux fermés, les lèvres qui priaient en silence. Charlotte est à l'arrière, endormie contre la vitre, un plaid sur les genoux. Et moi, je tiens la glacière comme on tient un cœur entre ses mains — avec la peur, la tendresse, la dévotion.
 
 Malo m'attend chez mes parents. Il court dans le jardin quand la voiture se gare. Il a grandi. En deux semaines, il a grandi. Les joues un peu moins rondes, les jambes un peu plus longues. Sept ans dans une semaine — le 30 juillet. Sept ans, et il l'ignore, c'était le compte à rebours. C'était la date. C'était le moment où le variant devait s'activer, où la chaîne devait atteindre sa cible, où le sang de Malo aurait dû être vendu, transfusé, sacrifié.
 

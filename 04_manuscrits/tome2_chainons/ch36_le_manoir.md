@@ -11,7 +11,7 @@ Je gare la voiture à cinq cents mètres du manoir. Dans le chemin de terre, der
 J'attends. Trente-trois minutes. Dans la voiture, dans le noir, dans la pluie. Le tube dans ma poche. Le téléphone dans ma main. Le compte à rebours dans ma tête.
 
 Minuit. L'heure de l'échange.
-Minuit quinze. Mon estimate du départ.
+Minuit quinze. Mon estimation du départ.
 Minuit trente. Le RAID.
 
 J'appelle Charlotte.

@@ -1,6 +1,6 @@
 # CHAPITRE 15 — La brasserie de la gare
 
-La brasserie de la gare de Brest est un endroit laid. Néons, tables en formica, banquettes en skaï. L'odeur de café brûlé et de croissants tièdes. Des voyageurs qui déjeunent en lisant le journal. La servedette qui essuie le comptoir avec un chiffon gris.
+La brasserie de la gare de Brest est un endroit laid. Néons, tables en formica, banquettes en skaï. L'odeur de café brûlé et de croissants tièdes. Des voyageurs qui déjeunent en lisant le journal. La serveuse qui essuie le comptoir avec un chiffon gris.
 
 Je m'assois à une table près de la sortie. Je commande un café. Je regarde la porte.
 
@@ -83,7 +83,7 @@ Henri hausse les épaules.
 
 — Auguste est le père de Madeleine. Madeleine a épousé Gaspard Kervadec. Gaspard est mon grand-père. Donc Auguste est mon arrière-grand-père. Et Adam est son arrière-petit-fils. Enfin, quelque chose comme ça. Les arbres généalogiques de cette famille sont un cauchemar.
 
-Je m'appuie contre le dossier de la banquette. Le café est froid. La servedette essuie le comptoir. Un train passe dans la gare, faisant trembler les vitres.
+Je m'appuie contre le dossier de la banquette. Le café est froid. La serveuse essuie le comptoir. Un train passe dans la gare, faisant trembler les vitres.
 
 — Vous êtes venu pour Adam ? dis-je.
 

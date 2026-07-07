@@ -4,7 +4,7 @@ Février.
 
 Paul travaille dans le jardin de mes parents. Comme tous les jours. Depuis un an. Depuis le procès. Depuis qu'il est sorti de prison et qu'il n'a nulle part où aller.
 
-Mon père l'a recueilli. Pas par charité. Par nécessité. Paul était le jardinier du manoir. Paul connaît les plantes. Les arbres. Les saisons. Et mon père a besoin d'aide — soixante-dix-huit ans, un genou en moins, et un potiver qui ne se cultive pas tout seul.
+Mon père l'a recueilli. Pas par charité. Par nécessité. Paul était le jardinier du manoir. Paul connaît les plantes. Les arbres. Les saisons. Et mon père a besoin d'aide — soixante-dix-huit ans, un genou en moins, et un potager qui ne se cultive pas tout seul.
 
 Paul dort dans la dépendance. L'ancienne buanderie. Aménagée. Un lit. Une table. Un poêle. Simple. Propre. Suffisant.
 
@@ -128,7 +128,7 @@ Il se retourne.
 
 — Les salades. C'est pas trop tard pour les replanter ?
 
-— Non. C'est le bon moment. Février. On plante les graines sous châssis. Elles leveront en mars. On repiquera en avril. On mangera en mai.
+— Non. C'est le bon moment. Février. On plante les graines sous châssis. Elles lèveront en mars. On repiquera en avril. On mangera en mai.
 
 — Alors on plante.
 
