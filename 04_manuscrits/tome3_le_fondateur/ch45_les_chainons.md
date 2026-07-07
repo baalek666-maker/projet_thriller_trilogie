@@ -28,9 +28,13 @@ Charlotte est à Quimper. Elle va bien. Pas parfaitement. Mais bien. Elle a un t
 
 Camille est à Rennes. Avec Thomas. Le livre est toujours en librairie. Les chaînons continuent d'être soignés — un par un, lentement, patiemment. Camille et Thomas travaillent sur le protocole international — l'OMS, l'INSERM, les hôpitaux partenaires. Le sérum de Lucie, le sang d'Adam, la formule d'Yvonne — tout est partagé. Tout est libre. Tout est à tout le monde.
 
+Faustine est toujours à Kerfany. Dans sa boulangerie. La vitrine a changé — il y a des kouign-amanns au sarrasin, maintenant, et des brioches au citron que personne ne commande jamais, mais qu'elle fait quand même, pour la mémoire. Faustine ne parle jamais de la chaîne. Faustine ne parle jamais de Gilles. Faustine pétrit. Faustine cuit. Faustine donne du pain à ceux qui passent. Faustine a vieilli de dix ans en deux. Mais ses mains sont toujours farineuses. Et son sourire, quand Malo entre dans la boutique, est toujours le même — doux, fatigué, vrai.
+
 Clodomira est à Tursan. Le refuge tourne. Les chaînons viennent. Un par un. En famille. En couple. Seuls. Ils viennent marcher dans les pins. Manger à la table de Clodomira. Dormir dans les chambres du pavillon. Parler. Se taire. Guérir.
 
 Clodomira écrit aussi. Un journal. Le journal des chaînons. Elle note les visites. Les noms. Les histoires. Les destins. Le journal sera un livre, un jour. Le livre des chaînons. Par la gardienne. Pour la mémoire.
+
+Clodomira a hérité de la maison d'Auguste. Elle l'a ouverte. Elle l'a vidée. Elle l'a remplie d'autre chose — de rires d'enfants, de repas partagés, de conversations qui n'ont plus besoin de secrets. La maison du fondateur est devenue la maison des fondations. Et Ariane, qui aurait aimé cela, repose maintenant sous les pins de Tursan, à côté de son cahier noir, que Clodomira a brûlé, page par page, en lui tenant compagnie.
 
 Denise repose sous les pins. À côté d'Yvonne. Le rosier rouge fleurit chaque été. Rouge comme le sang. Rouge comme la vie.
 
