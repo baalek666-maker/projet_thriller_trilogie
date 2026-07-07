@@ -4,6 +4,8 @@ Le 15 octobre.
 
 Denise m'envoie une lettre. Pas un mail. Pas un SMS. Une lettre. Papier. Encre. Enveloppe. Timbre. Comme avant.
 
+La factrice la dépose ce matin. Dans la boîte aux lettres. Au bout du chemin. L'enveloppe kraft. Mon nom écrit à la main. L'écriture de Denise. Droite. Carrée. L'écriture d'une femme de quatre-vingt-dix ans qui ne tremble pas.
+
 *Ma chère Clémence,*
 
 *J'ai trouvé quelque chose dans le domaine. Dans le bureau d'Auguste, derrière le tiroir secret — celui que les gendarmes n'ont pas trouvé parce qu'ils ne savaient pas où chercher. Un tiroir dissimulé sous le faux fond. J'ai soulevé le fond. J'ai trouvé une lettre.*
@@ -16,7 +18,7 @@ Denise m'envoie une lettre. Pas un mail. Pas un SMS. Une lettre. Papier. Encre. 
 
 Dans l'enveloppe, une autre enveloppe. Plus vieille. Papier jauni. Encre pâlie. L'écriture d'Yvonne — fine, tremblante, l'écriture d'une femme malade qui n'a plus beaucoup de temps.
 
-Je m'assois dans le salon. La fenêtre ouverte. Les rosiers rouges. Le soleil d'octobre.
+Je m'assois dans le salon. La fenêtre ouverte. Les rosiers rouges. Le soleil d'octobre. La lumière dorée sur le parquet. L'odeur de la terre humide. L'odeur des feuilles qui tombent.
 
 J'ouvre la lettre.
 
@@ -44,6 +46,14 @@ J'ouvre la lettre.
 
 La lettre tremble dans mes mains. Pas la lettre — mes mains. Mes mains tremblent.
 
+Je la sens. Le papier contre mes doigts. Vieux. Sec. Fragile. Un papier qui a attendu soixante-dix-huit ans. Qui a traversé une guerre. Une occupation. Les décennies. Le silence du tiroir. Le silence d'Auguste. Le silence du monde. Et qui est là. Dans mes mains. Vivant. Comme la voix d'Yvonne. Comme la voix d'une morte.
+
+Je la respire. L'odeur du vieux papier. L'odeur du temps. L'odeur de l'encre pâlie. L'odeur d'une femme qui écrivait pour l'avenir.
+
+Je repose la lettre sur la table. Je la lis encore. Et encore. Chaque mot. Chaque virgule. Chaque tremblement de l'encre. Yvonne avait trente-six ans. Trente-six ans. Malade. Mourante. Et elle écrivait. Pour l'avenir. Pour nous. Pour Adam.
+
+Yvonne savait. Yvonne savait qu'un jour, un enfant naîtrait. Un enfant dont le sang serait la clé. Yvonne ne l'a pas vu. Yvonne est morte en 1948. Mais Yvonne a cru. Yvonne a écrit. Yvonne a laissé le chemin.
+
 Yvonne a écrit cette lettre il y a soixante-dix-huit ans. Yvonne savait. Yvonne avait prédit. Yvonne avait prévu Adam. Le porteur rare. La mutation secondaire. Le sang clé.
 
 Yvonne a tout prévu. Yvonne a laissé le carnet. Yvonne a laissé la formule. Yvonne a laissé le chemin. Et Auguste a intercepté la lettre. Et Auguste a volé le travail. Et Auguste a construit Transit. Et Auguste a tué Yvonne, Madeleine, Charlotte, et quarante-sept autres.
@@ -51,6 +61,40 @@ Yvonne a tout prévu. Yvonne a laissé le carnet. Yvonne a laissé la formule. Y
 Mais Yvonne avait raison. Le porteur est venu. Adam. Et le sérum marche. Et les chaînons sont soignés. Et la vérité est dite.
 
 Yvonne a gagné. Soixante-dix-huit ans après sa mort. Yvonne a gagné.
+
+Je prends la lettre. Je la retourne. Au dos. La mèche de cheveux. Fine. Grise. Attachée par un fil rouge. Les cheveux d'Yvonne. Les cheveux d'une femme morte en 1948. Les cheveux d'une femme que je n'ai jamais connue. Mais qui a sauvé mon fils.
+
+Je touche la mèche. Doucement. Le contact rugueux. Le temps dessus. Soixante-dix-huit ans. La lettre, la mèche, le papier jauni — tout ça a survécu. Caché dans un tiroir. Dans le bureau d'Auguste. Auguste gardait sa victoire. Auguste gardait sa preuve. Et Auguste n'a pas vu que Denise viendrait. Que Denise trouverait. Que Denise livrerait.
+
+Je regarde par la fenêtre. Le jardin de mes parents. Les rosiers rouges qui fanent. Les tomates dernières. Le soleil d'octobre. Adam court dans l'herbe. Adam rit. Adam court après un papillon. Adam ne sait pas. Adam ne sait pas qu'il est le porteur. Adam ne sait pas qu'Yvonne l'a prédit.
+
+Et c'est parfait.
+
+Je le regarde. Mon fils. Le fils d'Inès. Le sang de Lucie. Le dernier maillon. Yvonne a écrit son nom dans une lettre il y a soixante-dix-huit ans. Yvonne ne le connaissait pas. Mais elle l'a vu. Dans sa tête. Dans ses calculs. Dans la courbe du gène. Adam. Mon Adam. Qui court après un papillon. Qui ne sait rien. Qui ne doit rien savoir.
+
+Inès entre dans le salon. Un café à la main. Elle me regarde. Elle voit la lettre. Elle voit mes mains.
+
+— Clémence ? Qu'est-ce qu'il y a ?
+
+— Denise a trouvé.
+
+— Trouvé quoi ?
+
+— La lettre d'Yvonne.
+
+Inès pose le café. S'assoit à côté de moi. Prend la lettre. La lit. Son visage change. Ses yeux se mouillent. Sa bouche s'ouvre. Un mot. Aucun mot.
+
+— Inès.
+
+— Oui.
+
+— Adam est le porteur. Yvonne l'avait prédit. Soixante-dix-huit ans avant.
+
+— Clémence...
+
+— Lis.
+
+Elle lit. Encore. Sa main sur la mèche de cheveux. Ses doigts tremblent aussi.
 
 Je plie la lettre. Je la mets dans une enveloppe propre. Je l'écris : *Pour Adam. Quand il sera grand.*
 

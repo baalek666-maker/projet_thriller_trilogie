@@ -14,6 +14,8 @@ Clodomira a cinquante ans. Elle a grandi seule. Elle a été cachée. Elle a ét
 
 Je l'accompagne. En voiture. Les Landes. Les pins. La route longue et droite.
 
+La route est interminable. Les pins défilent. Les kilomètres aussi. Aucun relief. Aucune courbe. La ligne droite des Landes, qui fatigue les yeux, qui fatigue l'âme. Mais Clodomira conduit. Concentrée. Les mains fermes sur le volant. Le regard fixe.
+
 — Tu es sûre ? dis-je.
 
 — Sûre.
@@ -30,11 +32,31 @@ Je l'accompagne. En voiture. Les Landes. Les pins. La route longue et droite.
 
 — Non. Je suis une chaînon. Numéro 0. La première. La cachée. Celle qui a survécu. Et c'est suffisant. Pas besoin de diplôme pour écouter. Juste besoin d'avoir vécu.
 
+Le silence dans la voiture. Le moteur. Le vent contre les vitres. Les pins.
+
+— Tu as peur ? dis-je.
+
+Clodomira ne répond pas tout de suite. Elle regarde la route. Elle réfléchit.
+
+— Oui, dit-elle. Peur du silence. Peur des nuits. Peur d'être seule avec les murs. Les murs d'Auguste. Les murs qui ont vu. Les murs qui savent.
+
+— Alors pourquoi ?
+
+— Parce que les murs ne sont pas Auguste. Les murs sont la pierre. Et la pierre, on peut la nettoyer. On peut la laver. On peut la peindre. On peut faire autre chose avec. On peut en faire un refuge.
+
+Je hoche la tête. Je ne dis rien. Je regarde les pins.
+
 On arrive. Tursan. Les portails. L'allée de gravier. La grande maison — fermée, volets clos. Le laboratoire — détruit, un trou dans le sol, recouvert de terre. Les pins. Le ciel. Les Landes.
+
+Le gravier craque sous les pas. Le vent dans les pins. Un bruit de mer, sans mer. Le soleil de mars, déjà chaud, déjà jaune.
+
+Je regarde le trou. L'endroit où était le laboratoire. La terre remuée. Les herbes qui repoussent déjà. La vie qui revient, comme si rien n'avait existé. Comme si Auguste n'avait jamais existé.
+
+Mais si. Le trou est là. La cicatrice est là. Et Clodomira va vivre au-dessus.
 
 Le pavillon du gardien est petit. Deux pièces. Un poêle. Une cuisine. Un lit. Simple. Propre. Suffisant.
 
-Clodomira entre. Elle regarde. Elle touche les murs. Elle ouvre les volets. Le soleil entre.
+Clodomira entre. Elle regarde. Elle touche les murs. La pierre froide. Le crépi un peu humide. Elle ouvre les volets. Le bois grince. Le soleil entre.
 
 — C'est ici, dit-elle.
 
@@ -52,6 +74,50 @@ Clodomira entre. Elle regarde. Elle touche les murs. Elle ouvre les volets. Le s
 
 Je l'enlace. Fort. Longtemps. Ma sœur. La première. La cachée. La gardienne.
 
+Elle sent le savon de Marseille. Les vêtements propres. La peau tiède. Et sous la peau, le cœur. Le cœur qui bat. Le cœur de la première.
+
+— Clodomira.
+
+— Oui ?
+
+— Tu n'as pas peur d'Auguste ?
+
+Elle recule d'un pas. Elle me regarde. Ses yeux. Les mêmes yeux que Madeleine. Les mêmes yeux que moi.
+
+— Si, dit-elle. J'ai peur. Peur qu'il revienne. Peur qu'il observe. Peur qu'il rie dans sa cellule. Mais la peur, ça se tient. Ça se regarde. Ça se traverse. Comme les pins.
+
+— Les pins ?
+
+— Les pins, oui. Quand tu marches, tu regardes devant. Tu ne regardes pas derrière. Parce que derrière, il n'y a rien. Juste la route. Juste le chemin. Juste la vie.
+
+— Tu es philosophe.
+
+— Je suis Clodomira.
+
+— Tu es ma sœur.
+
+— Je suis ta sœur.
+
+— Clodomira.
+
+— Oui ?
+
+— Tu te souviens quand on s'est trouvées ?
+
+— À Tursan.
+
+— À Tursan. Au procès. Dans la salle. Quand tu m'as regardée. Quand tu m'as reconnue.
+
+— Je me souviens.
+
+— On s'est reconnues, nous. Comme deux étrangères qui se ressemblent. Comme deux branches du même arbre.
+
+— Comme deux chaînons.
+
+— Comme deux chaînons. Mais libres. Maintenant. Libres.
+
+On reste là. Une minute. Debout dans le gravier. Le vent dans les pins. Le soleil de mars. Et puis on se lâche. Doucement. Comme deux sœurs qui se connaissent depuis toujours. Comme deux femmes qui se sont trouvées.
+
 — Reviens nous voir, dis-je.
 
 — Je reviendrai. Noël. Pâques. Et tous les jours entre les deux — par téléphone, par message, par pensée.
@@ -65,6 +131,8 @@ Je l'enlace. Fort. Longtemps. Ma sœur. La première. La cachée. La gardienne.
 — Notre cadeau.
 
 Je pars. La voiture. La route. Les pins dans le rétroviseur. Clodomira debout devant le pavillon, un bras levé. Un point blanc dans l'océan de pins.
+
+Je la regarde tant que je peux. Tant que le point reste visible. Puis le virage. Puis les pins. Puis plus rien.
 
 Ma sœur. La gardienne. La première.
 

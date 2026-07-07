@@ -10,21 +10,73 @@ Pas par nostalgie. Par nécessité. Par besoin. Kerfany est le début. Kerfany e
 
 Et Kerfany doit être revisité. Pas oublié. Pas effacé. Revisité. Pour que la mémoire reste. Pour que le passé ne revienne pas.
 
+J'y pense depuis des semaines. Depuis que le calendrier a tourné. Juin. Puis juillet. L'anniversaire. Un an. Un an exactement.
+
+Inès a proposé sans proposer.
+
+— On pourrait y retourner, a-t-elle dit. Une fois. Juste une fois.
+
+Je n'ai pas répondu tout de suite. J'ai posé mon café. J'ai regardé par la fenêtre. Le jardin de mes parents. Les tomates de Paul. Les rosiers.
+
+— D'accord, j'ai dit.
+
 On prend la voiture. Pont-l'Abbé. Kerfany. Vingt minutes. La route côtière. La mer. Les rochers. Les ajoncs jaunes. Les genêts.
 
 Inès conduit. Malo est à l'arrière, avec T-Rex. Adam est à l'arrière, endormi. Je suis à l'avant. La fenêtre ouverte. Le vent. Le sel. L'odeur.
 
 L'odeur de Kerfany. L'odeur du début.
 
+Cette odeur. Je la reconnaîtrais entre mille. Le sel. L'iode. Le varech. La marée qui descend. L'odeur de mon cauchemar. L'odeur de ma renaissance.
+
+Le panneau. Kerfany-Plage. 5 km. Mon cœur accélère. Un battement. Deux. Trois. Trop vite. Je pose la main sur ma poitrine. Je respire. Inès me regarde du coin de l'œil.
+
+— Ça va ?
+
+— Ça va.
+
+— Mensonge.
+
+— Oui.
+
+— Je roule doucement.
+
+Elle roule doucement. Le compteur à cinquante. Les champs. Les murets de pierre. Les hortensias bleus qui bordent les routes. La Bretagne. Ma Bretagne. Celle qui m'a vue naître. Celle qui m'a vue sombrer. Celle qui me voit revenir.
+
+Je repense au sac. Le sac de toile grise. Le sac jeté. Le sac retrouvé. Le sac qui a tout déclenché. Trois ans. Trois ans déjà. Une vie.
+
+Je repense à Charlotte. Au téléphone. À sa voix. Cette voix brisée. Cette voix de femme qui ne savait plus. Et maintenant, Charlotte boit son café. Charlotte marche. Charlotte sourit. Charlotte est debout.
+
+Malo chante derrière. Une chanson inventée. T-Rex, T-Rex, T-Rex, il est fort, il est grand. La voix aiguë. Les mots qui se mélangent. Adam ronfle légèrement. Inès sourit au volant.
+
+Et moi. Moi, je serre les poings. Les ongles dans les paumes. Le cœur qui bat. Trop vite.
+
 On arrive. Le parking. La falaise. La plage en contrebas. Les rochers. Les vagues.
 
 Le manoir est en reconstruction. Pas par nous. Par les nouveaux propriétaires — un couple de Parisiens qui a acheté les ruines et qui reconstruit une maison normale. Une maison sans laboratoire. Une maison sans cellier. Une maison sans chaîne.
 
+Je regarde les fondations. Le béton. Les poutres neuves. Un échafaudage. Des ouvriers — pas aujourd'hui, dimanche. Tout est silencieux. Tout est neuf. Tout est autre.
+
+Et pourtant. Le sol est le même. Les pierres sont les mêmes. Le vent est le même. Et sous le béton, sous les nouvelles fondations, il y a encore le passé. Le cellier. Le laboratoire. Le sac. Le sang.
+
 La falaise est la même. L'herbe. Le vent. Le vide. La mer en bas.
 
-Je me approche du bord. Inès reste en arrière, avec les enfants. Je marche jusqu'au bord. Je regarde en bas.
+Je m'approche du bord. Inès reste en arrière, avec les enfants.
+
+— Clémence.
+
+— Oui ?
+
+— Tu n'es pas obligée.
+
+— Je sais.
+
+— Reviens quand tu veux.
+
+Je hoche la tête. Je ne me retourne pas. Je marche jusqu'au bord. Je regarde en bas.
 
 Les rochers. Les vagues. L'écume. L'endroit où Charlotte est tombée. L'endroit où tout a commencé. Et tout a failli finir.
+
+Le vertige me prend. Un instant. Le sol qui bouge. Le vide qui appelle. Le vertige ancien, celui du cauchemar, celui du sac, celui du sang. Celui qui murmure : saute. Un instant. Puis plus rien.
 
 Je ferme les yeux. Le vent. Le sel. Le bruit des vagues.
 
