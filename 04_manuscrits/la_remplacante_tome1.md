@@ -38,7 +38,7 @@ J'ai posé la lettre sur la table de la cuisine.
 
 La cuisine était petite. Un studio de trente mètres carrés au-dessus d'une boulangerie. Le pain sentait bon le matin, moins bon le soir, quand la levure tournait et que l'odeur devenait épaisse, presque sucrée, comme un fruit trop mûr. J'avais vécu là cinq ans. Cinq ans de solitude calculée, de routines rassurantes, de silences choisis. Le genre de vie qu'on construit brique par brique, jusqu'à ce que les murs soient si hauts qu'on finit par oublier qu'on les a construits soi-même. J'avais un lit étroit. Une table ronde qui ne tenait que par habitude. Une chaise. Une seule. Je n'avais jamais acheté la deuxième, même pas pour la forme. La deuxième chaise, c'était une promesse qu'on ne tenait pas. Je ne faisais plus de promesses.
 
-J'avais quitté Kerfany-Plage à dix-huit ans. Pas en courant, pas en hurlant. En me glissant dehors un matin de septembre avec deux valises et l'intention de ne plus jamais revenir. Il pleuvait. Je m'en souviens parce que c'était la seule chose qui m'avait donné du courage : la pluie effaçait les visages. Charlotte avait pleuré sur le palier. En chemise de nuit. Pieds nus sur le carrelage froid. Elle m'avait attrapé le poignet. Pas pour me retenir — pour me marquer. Ses doigts avaient laissé une trace blanche sur ma peau, comme un bracelet qu'on ne retire pas. Moi, j'avais serré les dents. Elle avait dix-huit ans aussi, même si elle semblait en avoir dix de plus. Elle avait déjà ce don pour transformer chacun de mes silences en abandon. Chacune de mes absences en trahison. Chacun de mes « non » en blessure qu'elle me retournait une arme.
+J'avais quitté Kerfany-Plage à dix-huit ans. Pas en courant, pas en hurlant. En me glissant dehors un matin de septembre avec deux valises et l'intention de ne plus jamais revenir. Il pleuvait. Je m'en souviens parce que c'était la seule chose qui m'avait donné du courage : la pluie effaçait les visages. Charlotte avait pleuré sur le palier. En chemise de nuit. Pieds nus sur le carrelage froid. Elle m'avait attrapé le poignet. Pas pour me retenir — pour me marquer. Ses doigts avaient laissé une trace blanche sur ma peau, comme un bracelet qu'on ne retire pas. Moi, j'avais serré les dents. Elle avait dix-huit ans aussi, même si elle semblait en avoir dix de plus. Elle avait déjà ce don pour transformer chacun de mes silences en abandon. Chacune de mes absences en trahison. Chacun de mes « non » en blessure qu'elle me retournait comme une arme.
 
 *« Je ne t'écris pas pour te culpabiliser. Je t'écris parce qu'enfin, j'ai besoin de toi. Pas avant. Pas pendant. Maintenant. Quand il sera trop tard pour me le refuser. »*
 
@@ -74,9 +74,9 @@ J'ai senti le mot me traverser comme une chose solide. Tutrice. Moi. Clémence B
 
 — Oui. Je suis là.
 
-— Il faudrait venir dès que possible. Le petit est avec son père pour l'instant.
+— Il faudrait venir dès que possible. La petite est avec son père pour l'instant.
 
-Le petit. Malo. Je l'avais vu une seule fois, à sa naissance. Un bébé rouge et plissé qui m'avait regardée avec des yeux trop anciens pour un corps si neuf. Charlotte avait ri de mon malheur à le tenir. « Tu as peur de le casser, avait-elle dit. Tu as toujours peur de tout casser. » Elle disait ça en riant, mais elle ne plaisantait pas. Elle ne plaisantait jamais quand elle me donnait un rôle. Et le rôle qu'elle me donnait maintenant, depuis l'au-delà, depuis cette lettre et cet appel synchronisés comme un événement préparé, c'était le rôle le plus ancien de tous : la remplaçante.
+La petite. Malo. Je l'avais vue une seule fois, à sa naissance. Un bébé rouge et plissé qui m'avait regardée avec des yeux trop anciens pour un corps si neuf. Charlotte avait ri de mon malheur à la tenir. « Tu as peur de la casser, avait-elle dit. Tu as toujours peur de tout casser. » Elle disait ça en riant, mais elle ne plaisantait pas. Elle ne plaisantait jamais quand elle me donnait un rôle. Et le rôle qu'elle me donnait maintenant, depuis l'au-delà, depuis cette lettre et cet appel synchronisés comme un événement préparé, c'était le rôle le plus ancien de tous : la remplaçante.
 
 La première chose qu'on m'a demandée, ce jour-là, ce n'était pas comment j'allais. Ce n'était pas si je voulais du thé ou de l'eau. C'était : « Quelle taille vous faites ? »
 
@@ -145,13 +145,13 @@ J'ai pris le café. Il était trop sucré. Lucie prenait toujours un café trop 
 
 Lucie a reculé sa chaise. Le bruit a réveillé l'étudiant à la table voisine. Il a levé la tête, nous a regardées avec l'œil mou d'un dormeur qu'on dérange, a baissé les yeux. La dame aux magazines de jardinage nous a jeté un regard par-dessus son épaule, puis est revenue à ses tomates.
 
-— Tu vas le prendre ? a demandé Lucie à voix basse.
+— Tu vas la prendre ? a demandé Lucie à voix basse.
 
 — Je n'ai pas le choix.
 
 — Bien sûr que si. Tu peux refuser. C'est ton droit.
 
-— Et s'il part en famille d'accueil ? S'il est séparé de tout ce qu'il connaît ?
+— Et si elle part en famille d'accueil ? Si elle est séparée de tout ce qu'elle connaît ?
 
 — Ce n'est pas ta faute.
 
@@ -344,9 +344,9 @@ Derrière Paul, debout au deuxième rang, son frère. Léo. Je l'avais croisé f
 
 J'ai regardé autour de moi.
 
-L'enfant était assis au bout du banc, les pieds pendant dans le vide. Il portait un petit costume sombre qui le faisait paraître encore plus fragile. Il ne bougeait pas. Il ne regardait pas le cercueil. Il fixait ses chaussures, ou quelque chose devant ses chaussures. Comme s'il y avait un monde invisible à ses pieds, plus intéressant que le nôtre.
+L'enfant était assis au bout du banc, les pieds pendant dans le vide. Elle portait un petit costume sombre qui la faisait paraître encore plus fragile. Elle ne bougeait pas. Elle ne regardait pas le cercueil. Elle fixait ses chaussures, ou quelque chose devant ses chaussures. Comme s'il y avait un monde invisible à ses pieds, plus intéressant que le nôtre.
 
-— Il ne parle plus, a dit Denise. Depuis qu'ils l'ont retrouvé.
+— Elle ne parle plus, a dit Denise. Depuis qu'ils l'ont retrouvée.
 
 — Retrouvé ?
 
@@ -431,7 +431,7 @@ Le notaire nous a reçus lundi après-midi.
 
 Maison Daoulas, 4 rue de l'Église. Un bureau de notaire exactement comme on s'y attend : boiseries sombres, tapis épais, odeur de vieux papier et d'eau de toilette masculine. Sur les murs, des gravures de bateaux à voile et un diplôme encadré qui datait d'avant ma naissance. Une pendule en laiton comptait les secondes derrière le bureau, trop fort, à la manière d'un temps facturé à l'heure.
 
-Denise, Paul et moi étions assis devant le bureau. Malo était resté avec une voisine, la dame Morin, qui habitait à côté et qui avait déjà élevé quatre enfants. Quatre enfants normaux, avait-elle précisé, à la manière dont on présente une garantie sanitaire.
+Denise, Paul et moi étions assis devant le bureau. Malo était restée avec une voisine, la dame Morin, qui habitait à côté et qui avait déjà élevé quatre enfants. Quatre enfants normaux, avait-elle précisé, à la manière dont on présente une garantie sanitaire.
 
 Maître Nourry portait des lunettes à monture dorée. Il avait l'air fatigué, comme s'il avait déjà fait ce discours cent fois ce mois-ci. Peut-être plus. Sa chemise blanche était impeccable, mais son nœud de cravate avait glissé d'un centimètre vers la gauche. Le centimètre de la défaite. Je ne sais pas pourquoi, ça m'a fait de la peine.
 
@@ -675,7 +675,7 @@ J'ai retiré mon pull. Le tissu sentait la mer, le sel, l'humidité de la plage.
 
 Denise a fait un pas vers moi. Ses chaussures de ville ont grincé sur le parquet ciré. Des chaussures noires, à petit talon, les mêmes qu'aux funérailles. Elle n'avait pas pris le temps de les retirer. Elle était venue armée.
 
-— Non. Après, si tu le laisses, c'est moi qui le prendrai.
+— Non. Après, si tu la laisses, c'est moi qui la prendrai.
 
 Je me suis figée.
 
@@ -762,7 +762,7 @@ Il a sorti un paquet de cigarettes de sa poche. Je ne savais pas qu'il fumait. I
 
 J'ai attendu. La fumée de sa cigarette venait se mêler à l'air salé. Je me suis demandé si c'était une nouvelle habitude, ou si Charlotte le savait. Si elle avait supporté l'odeur de tabac sur les draps, sur les rideaux, sur les vêtements. Ou s'il fumait en cachette, comme un secret qu'on garde pour soi, un petit mensonge toléré.
 
-— Il n'a pas parlé depuis la mort de Charlotte. Pas un mot. Les médecins disent que c'est un choc. Un refus. Rien d'organique.
+— Elle n'a pas parlé depuis la mort de Charlotte. Pas un mot. Les médecins disent que c'est un choc. Un refus. Rien d'organique.
 
 — Combien de temps ça peut durer ?
 
@@ -968,7 +968,7 @@ J'ai accepté.
 
 Je ne sais pas exactement à quel moment. Peut-être quand Inès m'a regardée, on aurait dit que j'étais déjà Charlotte. Peut-être quand Paul m'a dit que j'étais la seule. Peut-être quand j'ai vu Malo, assise sur les marches de la maison, à me regarder porter mes affaires dans le hall.
 
-Il ne m'a pas aidée. Il n'a pas bougé. Mais ses yeux m'ont suivie. Deux petits points gris, fixes, sans colère ni curiosité. Comme s'il observait un phénomène météo.
+Elle ne m'a pas aidée. Elle n'a pas bougé. Mais ses yeux m'ont suivie. Deux petits points gris, fixes, sans colère ni curiosité. Comme si elle observait un phénomène météo.
 
 J'ai posé ma valise dans la chambre d'amis.
 
@@ -1076,7 +1076,7 @@ J'ai regardé les clés. Rennes. L'appartement. Ma vie d'avant. J'aurais pu appe
 
 Malo était assise dans le salon. Pas sur le canapé. Par terre, contre le mur, les jambes croisées. Elle n'avait allumé aucune lampe. Elle regardait la baie vitrée. Dehors, un goéland s'est posé sur la terrasse. Il a tourné la tête vers la vitre. Lui et Malo se sont regardés un long moment.
 
-Je me suis assise à l'autre bout du salon. Pas trop près. Pas sur le canapé non plus. Par terre, comme lui, contre le mur opposé. Le parquet était froid sous moi. Je n'ai rien dit. Lui non plus.
+Je me suis assise à l'autre bout du salon. Pas trop près. Pas sur le canapé non plus. Par terre, comme elle, contre le mur opposé. Le parquet était froid sous moi. Je n'ai rien dit. Elle non plus.
 
 Le goéland s'est envolé. Malo l'a suivi des yeux jusqu'à ce qu'il disparaisse dans la nuit.
 
@@ -1133,13 +1133,13 @@ Je suis rentrée.
 
 Je suis montée à l'étage. Malo dormait dans la chambre à côté de la mienne. La porte était entrouverte. J'ai jeté un œil à l'intérieur.
 
-Il dormait sur le côté, recroquevillé, les genoux contre la poitrine. Il tenait une couverture entre ses doigts, comme un doudou. Sa respiration était courte, saccadée, celle d'un enfant qui fait semblant de dormir ou qui rêve trop fort.
+Elle dormait sur le côté, recroquevillée, les genoux contre la poitrine. Elle tenait une couverture entre ses doigts, comme un doudou. Sa respiration était courte, saccadée, celle d'un enfant qui fait semblant de dormir ou qui rêve trop fort.
 
 J'ai retenu mon souffle.
 
-Il ressemblait tellement à Charlotte. Pas seulement les cheveux. La façon dont il dormait. Le pli de ses paupières. L'arrondi de son menton. Le mouvement de sa mâchoire, comme s'il serrait les dents contre quelque chose qu'il refusait de dire.
+Elle ressemblait tellement à Charlotte. Pas seulement les cheveux. La façon dont elle dormait. Le pli de ses paupières. L'arrondi de son menton. Le mouvement de sa mâchoire, comme si elle serrait les dents contre quelque chose qu'elle refusait de dire.
 
-Elle a remué. Juste un peu. Ses doigts ont serré la couverture plus fort. Puis elle s'est immobile à nouveau. Son visage s'est détendu. Pendant un instant, elle a été tout petite, toute fragile. Pendant un instant, elle n'a plus été le fantôme de Charlotte. Elle a été Malo.
+Elle a remué. Juste un peu. Ses doigts ont serré la couverture plus fort. Puis elle est restée immobile à nouveau. Son visage s'est détendu. Pendant un instant, elle a été tout petite, toute fragile. Pendant un instant, elle n'a plus été le fantôme de Charlotte. Elle a été Malo.
 
 Sur la table de nuit, il y avait un dessin. Un crayon de couleur, à peine appuyé. Des formes noires. Une maison. Un trait. Un autre trait. Et une silhouette, toute petite, au bord de la feuille. Seule. Pas de mère. Pas de père. Juste une silhouette debout dans le vide.
 
@@ -1326,7 +1326,7 @@ Malo et moi étions seuls.
 
 — Tu veux du beurre sur ton pain ? ai-je demandé.
 
-Il n'a pas répondu.
+Elle n'a pas répondu.
 
 — De la confiture ?
 
@@ -1338,9 +1338,9 @@ J'ai posé mon couteau. Le bruit métallique sur le plan de travail a résonné 
 
 Je me suis détestée aussitôt. *Pour que ton corps fonctionne.* Comme si j'avais été payée pour maintenir un appareil en état de marche.
 
-Il a regardé son assiette.
+Elle a regardé son assiette.
 
-— Maman mangeait pas le matin, a-t-il dit.
+— Maman mangeait pas le matin, a-t-elle dit.
 
 Sa voix était si faible que j'ai failli ne pas l'entendre. Une voix de craie, de poussière. Comme si elle sortait d'un endroit très profond, très sec. Un puits. Une cave. Un endroit où l'on range les choses qu'on ne veut plus dire mais qu'on ne peut pas jeter.
 
@@ -1348,7 +1348,7 @@ J'ai retenu mon souffle.
 
 — Quoi ?
 
-Il a levé les yeux vers moi. Ses yeux étaient d'un gris plus clair que je ne l'aurais cru. Des yeux qui n'avaient pas encore décidé s'ils voulaient faire confiance au monde. Des yeux qui ne souriaient pas mais qui ne fuyaient plus non plus. Des yeux en suspens, comme une lumière qu'on a éteinte mais dont le filament brille encore une demi-seconde.
+Elle a levé les yeux vers moi. Ses yeux étaient d'un gris plus clair que je ne l'aurais cru. Des yeux qui n'avaient pas encore décidé s'ils voulaient faire confiance au monde. Des yeux qui ne souriaient pas mais qui ne fuyaient plus non plus. Des yeux en suspens, comme une lumière qu'on a éteinte mais dont le filament brille encore une demi-seconde.
 
 — Maman mangeait pas le matin. Elle buvait du café noir. Elle disait que le petit déjeuner c'était pour les enfants et les vaches.
 
@@ -1360,13 +1360,13 @@ J'ai souri malgré moi. Une grimace tordue qui ressemblait presque à un vrai so
 
 — C'était ma sœur.
 
-Il a hoché la tête, pareil à quelqu'un que cette information rassurait. On aurait dit que, enfin, quelque chose s'assemblait. Que depuis qu'il ne parlait plus, il avait gardé en réserve une petite case vide, étiquetée « sœur », et que mes mots venaient enfin la remplir.
+Elle a hoché la tête, pareil à quelqu'un que cette information rassurait. On aurait dit que, enfin, quelque chose s'assemblait. Que depuis qu'elle ne parlait plus, elle avait gardé en réserve une petite case vide, étiquetée « sœur », et que mes mots venaient enfin la remplir.
 
-— Tu vas devenir maman, maintenant ? a-t-il demandé.
+— Tu vas devenir maman, maintenant ? a-t-elle demandé.
 
 La question m'a transpercée. J'ai senti quelque chose se coincer dans ma gorge, entre le cœur et la voix. Un nœud petit, solide, comme un caillou qu'on a avalé sans le vouloir et qu'on ne peut ni recracher ni digérer.
 
-Je me suis assise en face de lui. Le tabouret était froid sous mes cuisses. Le granit de l'îlot reflétait la lumière du matin, blanche, nette, chirurgicale.
+Je me suis assise en face d'elle. Le tabouret était froid sous mes cuisses. Le granit de l'îlot reflétait la lumière du matin, blanche, nette, chirurgicale.
 
 — Non. Je vais m'occuper de toi. C'est différent.
 
@@ -1374,7 +1374,7 @@ Je me suis assise en face de lui. Le tabouret était froid sous mes cuisses. Le 
 
 — Une maman, c'est… c'est ta maman. Moi, je suis ta tante. Je suis là pour t'aider. Pour qu'elle te manque moins.
 
-Il a réfléchi un moment. Il a tourné sa cuillère dans son bol, sans la porter à sa bouche. Les cornflakes étaient maintenant complètement mous. Une bouillie pâle qui n'avait plus rien d'un petit déjeuner et tout d'un échec.
+Elle a réfléchi un moment. Elle a tourné sa cuillère dans son bol, sans la porter à sa bouche. Les cornflakes étaient maintenant complètement mous. Une bouillie pâle qui n'avait plus rien d'un petit déjeuner et tout d'un échec.
 
 — Elle me manque quand même.
 
@@ -1388,7 +1388,7 @@ Il a réfléchi un moment. Il a tourné sa cuillère dans son bol, sans la porte
 
 Je n'ai pas su répondre.
 
-Il a reposé sa cuillère. Elle a fait un bruit mou contre le bol, un bruit de chose qui coule.
+Elle a reposé sa cuillère. Elle a fait un bruit mou contre le bol, un bruit de chose qui coule.
 
 — Maman, elle disait que les gens qui partent reviennent jamais.
 
@@ -1398,7 +1398,7 @@ Il a reposé sa cuillère. Elle a fait un bruit mou contre le bol, un bruit de c
 
 *Copies.* Le mot est tombé dans la cuisine comme une pierre dans une mare. J'ai senti la vague atteindre mes pieds. J'ai regardé Malo. Elle ne savait pas. Bien sûr qu'elle ne savait pas. Elle avait six ans. Elle utilisait les mots comme on utilise des briques, sans savoir quelle maison on construit.
 
-— Tu vas partir aussi ? a-t-il demandé.
+— Tu vas partir aussi ? a-t-elle demandé.
 
 — Non.
 
@@ -1408,9 +1408,9 @@ J'ai hésité une seconde. Une seconde de trop, sans doute. Les enfants entenden
 
 — Promis.
 
-Il a baissé les yeux. Puis, lentement, il a pris une bouchée de pain. Un tout petit morceau, à peine croqué. Mais c'était quelque chose.
+Elle a baissé les yeux. Puis, lentement, elle a pris une bouchée de pain. Un tout petit morceau, à peine croqué. Mais c'était quelque chose.
 
-J'ai senti mes yeux se remplir de larmes. Je me suis levée pour ne pas qu'il les voie.
+J'ai senti mes yeux se remplir de larmes. Je me suis levée pour ne pas qu'elle les voie.
 
 Dans l'évier, j'ai laissé couler l'eau. J'ai regardé par la fenêtre. Mes mains tremblaient légèrement. L'eau coulait sur mes doigts, tiède d'abord, puis froide, puis trop froide. Je n'ai pas bougé. Je suis restée là, les mains sous le jet, à fixer la mer.
 
@@ -1434,17 +1434,17 @@ Derrière moi, Malo avait fini son pain. Je l'ai entendue poser son verre. Un br
 
 Je me suis retournée.
 
-Il me regardait.
+Elle me regardait.
 
-— Tu ressembles à maman, a-t-il dit.
+— Tu ressembles à maman, a-t-elle dit.
 
-Ce n'était pas un compliment. Ce n'était pas une accusation non plus. C'était un constat. Le constat d'un enfant qui a appris à observer très tôt, parce que les gens autour de lui mentaient souvent et qu'il fallait compenser.
+Ce n'était pas un compliment. Ce n'était pas une accusation non plus. C'était un constat. Le constat d'un enfant qui a appris à observer très tôt, parce que les gens autour d'elle mentaient souvent et qu'il fallait compenser.
 
 — Oui, ai-je dit. Un peu.
 
 — Non. Beaucoup.
 
-Il a reposé son verre.
+Elle a reposé son verre.
 
 — Mais tu sens pas pareil.
 
@@ -1803,11 +1803,11 @@ La cuisine sentait le javel. Inès avait nettoyé le plan de travail avant de pa
 
 Malo est apparue dans l'encadrement de la porte.
 
-Il portait un pyjama à rayures. Trop grand pour lui. Les manches dépassaient de ses doigts et il avait les poings fermés dans le tissu, comme un boxeur. Ses pieds nus claquaient sur le carrelage froid. Il n'avait pas de chaussons. Je n'avais pas pensé à acheter des chaussons.
+Elle portait un pyjama à rayures. Trop grand pour elle. Les manches dépassaient de ses doigts et elle avait les poings fermés dans le tissu, comme un boxeur. Ses pieds nus claquaient sur le carrelage froid. Elle n'avait pas de chaussons. Je n'avais pas pensé à acheter des chaussons.
 
 — Tu as faim ? ai-je demandé.
 
-Il a hoché la tête.
+Elle a hoché la tête.
 
 — Tu veux quoi ?
 
@@ -1825,9 +1825,9 @@ J'ai regardé la liste. *Pain grillé, beurre demi-sel, confiture abricot maison
 
 — Je ne sais pas faire des crêpes.
 
-Il a baissé les yeux. Ses cils se sont posés sur ses joues. Il avait les cils de Charlotte. Longs, sombres, presque féminins sur ce visage d'enfant. Quand il les baissait, on voyait les ombres sous ses yeux. Des cernes légères, bleutées, qui n'avaient rien à voir avec la fatigue d'un soir. C'étaient des cernes de deuil.
+Elle a baissé les yeux. Ses cils se sont posés sur ses joues. Elle avait les cils de Charlotte. Longs, sombres, presque féminins sur ce visage d'enfant. Quand elle les baissait, on voyait les ombres sous ses yeux. Des cernes légères, bleutées, qui n'avaient rien à voir avec la fatigue d'un soir. C'étaient des cernes de deuil.
 
-— Maman savait, a-t-il dit.
+— Maman savait, a-t-elle dit.
 
 J'ai senti une piqûre au cœur. Pas une grosse. Une de celles qui ne font pas de bruit mais qui laissent une trace. Le genre de piqûre qui te rappelle que tu es en train de remplacer quelqu'un d'irremplaçable.
 
@@ -1839,7 +1839,7 @@ La pâte était trop épaisse, elle tenait à la cuillère comme du plâtre. J'a
 
 Malo me regardait faire, sérieuse. Comme une scientifique qui observe un cobaye faire n'importe quoi. Elle s'était assise sur le tabouret, les jambes pendant. Ses pieds ne touchaient pas le sol. Elle balançait ses chaussures invisibles dans le vide.
 
-— C'est pas comme ça que faisait maman, a-t-il dit.
+— C'est pas comme ça que faisait maman, a-t-elle dit.
 
 — Je sais. Mais c'est comme ça que je fais, moi.
 
@@ -1849,7 +1849,7 @@ Malo me regardait faire, sérieuse. Comme une scientifique qui observe un cobaye
 
 — Un tout petit peu. Pour le goût.
 
-Il a levé les yeux vers moi. Il y avait quelque chose dedans que je n'avais pas vu avant. Une lumière. Pas la joie. Le souvenir de la joie. Le fantôme d'un moment où sa mère faisait des crêpes et où il la regardait, et où tout allait bien. Ou peut-être rien n'allait bien, mais le rhum sentait bon, et c'était suffisant.
+Elle a levé les yeux vers moi. Il y avait quelque chose dedans que je n'avais pas vu avant. Une lumière. Pas la joie. Le souvenir de la joie. Le fantôme d'un moment où sa mère faisait des crêpes et où elle la regardait, et où tout allait bien. Ou peut-être rien n'allait bien, mais le rhum sentait bon, et c'était suffisant.
 
 J'ai cherché dans le placard. Il y avait une bouteille de vieux rhum, presque pleine, au fond. La poussière sur l'étiquette formait un film gris. Je l'ai sortie. Derrière la bouteille, coincé entre le placard et le mur, un papier froissé. Je l'ai tiré machinalement, sans y penser.
 
@@ -1865,13 +1865,13 @@ J'ai versé une goutte dans la pâte. L'odeur a jailli immédiatement. Chaude, s
 
 Malo a fermé les yeux. Elle a inspiré profondément. Je l'ai vue se détendre, un demi-degré, le temps d'un souffle.
 
-— Ça sent maman, a-t-il murmuré.
+— Ça sent maman, a-t-elle murmuré.
 
 Je n'ai rien dit. J'ai versé une louche de pâte dans la poêle. Elle a brûlé légèrement sur les bords, collé au centre. J'ai gratté avec une spatule. La crêpe s'est déchirée en deux. La deuxième a été pire. La troisième à peine mieux. La quatrième a tenu, à peu près, comme une chose qui ne veut pas mourir mais qui n'arrive pas à vivre non plus.
 
 Quand j'ai servi la première crêpe, elle était marron d'un côté, pâle de l'autre. Des morceaux de pâte à peine cuits se voyaient au milieu. Malo l'a regardée.
 
-— Elle est pas belle, a-t-il dit.
+— Elle est pas belle, a-t-elle dit.
 
 — Non.
 
@@ -1879,19 +1879,19 @@ Quand j'ai servi la première crêpe, elle était marron d'un côté, pâle de l
 
 — Goûte.
 
-Il a pris un morceau. Il a mâché lentement. Il a froncé les sourcils. Son visage exprimait une concentration excessive, comme s'il évaluait un plat dans un restaurant étoilé et non une crêpe ratée dans une cuisine bretonne.
+Elle a pris un morceau. Elle a mâché lentement. Elle a froncé les sourcils. Son visage exprimait une concentration excessive, comme si elle évaluait un plat dans un restaurant étoilé et non une crêpe ratée dans une cuisine bretonne.
 
-— C'est pas pareil, a-t-il dit.
+— C'est pas pareil, a-t-elle dit.
 
 — C'est différent.
 
-— C'est différent, a-t-il répété.
+— C'est différent, a-t-elle répété.
 
-Il a pris une deuxième bouchée. Puis une troisième. Il mâchait avec application, la bouche close, comme sa mère le faisait peut-être. Comme Charlotte mâchait, avec cette précision qui faisait que même manger ressemblait à un acte contrôlé.
+Elle a pris une deuxième bouchée. Puis une troisième. Elle mâchait avec application, la bouche close, comme sa mère le faisait peut-être. Comme Charlotte mâchait, avec cette précision qui faisait que même manger ressemblait à un acte contrôlé.
 
 — C'est pas mauvais.
 
-C'était le plus beau compliment qu'il pouvait me faire.
+C'était le plus beau compliment qu'elle pouvait me faire.
 
 Nous avons mangé nos crêpes ratées à la cuisine, face à la mer. Le soleil entrait par la baie vitrée. Un soleil d'octobre, bas, orange, qui peignait des bandes lumineuses sur le carrelage. La mer était calme. Grise. Immobile. Les vagues avaient renoncé à venir frapper les rochers. Même la mer savait qu'il ne fallait pas déranger.
 
@@ -2302,7 +2302,7 @@ Puis j'ai décroché.
 
 Silence.
 
-Pas le silence d'une mauvaise connexion. Le silence de quelqu'un qui écoute. Qui respire. Qui attend le bon moment pour parler. Le silence d'un chasseur qui épaulé son arme avant de presser la détente.
+Pas le silence d'une mauvaise connexion. Le silence de quelqu'un qui écoute. Qui respire. Qui attend le bon moment pour parler. Le silence d'un chasseur qui épaulait son arme avant de presser la détente.
 
 — Allô ? ai-je répété.
 
@@ -2469,7 +2469,7 @@ Théo. Trois semaines. Je n'avais parlé de Théo à personne. Pas à Lucie. Pas
 
 Et pourtant, Charlotte le savait. Elle savait quand ça avait commencé. Elle savait quand ça avait fini. Elle avait probablement su avant moi que ça finirait. Elle avait peut-être même su pourquoi. Mieux que moi. Charlotte comprenait mes raisons avant que je les comprenne. Elle lisait ma vie comme on lit un livre dont on a déjà écrit la fin.
 
-J'ai tourné les pages de plus en plus vite. Mes doigts laissaient des traces de sueur sur le papier. Les pages étaient fines, légèrement jaunies, et mon humidité les marquait. Comme une trace. Une preuve que j'avais été là, que j'avais lu. L'écriture restait la même. Régulière. Patient. Celle d'une femme qui avait du temps devant elle. Celle d'une femme qui savourait. Chaque lettre était tracée sans hésitation. Sans rature. Sans erreur. L'écriture de quelqu'un qui sait ce qu'elle fait. Qui l'a fait longtemps. Qui ne doute plus.
+J'ai tourné les pages de plus en plus vite. Mes doigts laissaient des traces de sueur sur le papier. Les pages étaient fines, légèrement jaunies, et mon humidité les marquait. Comme une trace. Une preuve que j'avais été là, que j'avais lu. L'écriture restait la même. Régulière. Patiente. Celle d'une femme qui avait du temps devant elle. Celle d'une femme qui savourait. Chaque lettre était tracée sans hésitation. Sans rature. Sans erreur. L'écriture de quelqu'un qui sait ce qu'elle fait. Qui l'a fait longtemps. Qui ne doute plus.
 
 Puis je suis tombée sur une page différente.
 
@@ -3395,7 +3395,7 @@ J'ai commencé par le salon. Sous les coussins du canapé. Derrière les tableau
 
 Rien.
 
-La cuisine. Les placards. Trop bien rangés. Chaque chose à sa place. Charlotte ou quelqu'un d'elle. J'ai passé les doigts sur les étagères, cherchant une fissure, une anomalie. Rien.
+La cuisine. Les placards. Trop bien rangés. Chaque chose à sa place. Comme Charlotte, ou quelqu'un pour elle. J'ai passé les doigts sur les étagères, cherchant une fissure, une anomalie. Rien.
 
 La chambre. Sous le matelas. Dans les tiroirs de la commode. Derrière l'armoire, que j'ai dû tirer seule, le bois grinçant sur le parquet. Rien qu'un fil électrique et de la poussière.
 
@@ -3573,7 +3573,7 @@ Elle a fait un pas vers moi. Un seul. Ses cheveux trop blonds — ce blond cendr
 
 — Malo n'est pas ta fille.
 
-— Il est celui que Charlotte m'a confié. Elle m'a choisie pour le protéger.
+— Elle est celle que Charlotte m'a confiée. Elle m'a choisie pour la protéger.
 
 — Protéger de quoi ?
 
@@ -3713,7 +3713,7 @@ Sur le paillasson, en allant ouvrir à Malo, j'avais remarqué une carte. Ivoire
 
 Le café gouttait dans la cafetière avec un bruit mouillé, régulier, presque métallique. Chaque goutte tombait comme une petite dette que je payais sans comprendre le contrat. La vapeur montait, collait à la vitre, dessinait des fleurs blanches qui s'effaçaient aussitôt. Je regardais Malo à travers cette buée, comme à travers un écran dépoli, et pendant une seconde j'ai eu l'impression qu'elle n'était pas vraiment là. Qu'elle était déjà partie. Qu'il me restait juste l'image d'elle, projetée sur le verre.
 
-Elle était accroupie. Ses petits genoux touchaient la terre humide, bleuies par le froid. Elle disposait les soldats en rang. Un rang parfait. Droit. Régulier. Un rang de général. Un rang de quelqu'un qui a besoin que les choses soient en ordre parce que le reste, autour de lui, ne l'est pas. Les soldats de plomb ne bougent pas. Ne crient pas. Ne mentent pas. Ne disparaissent pas. Pas comme les grands. Pas comme les mères qui partent. Pas comme les tantes qui disparaissent entre deux souffles.
+Elle était accroupie. Ses petits genoux touchaient la terre humide, bleuies par le froid. Elle disposait les soldats en rang. Un rang parfait. Droit. Régulier. Un rang de général. Un rang de quelqu'un qui a besoin que les choses soient en ordre parce que le reste, autour d'elle, ne l'est pas. Les soldats de plomb ne bougent pas. Ne crient pas. Ne mentent pas. Ne disparaissent pas. Pas comme les grands. Pas comme les mères qui partent. Pas comme les tantes qui disparaissent entre deux souffles.
 
 Le téléphone a sonné. Un numéro masqué. J'ai décroché par réflexe.
 
@@ -3733,7 +3733,7 @@ J'ai baissé le téléphone. L'écran s'est rallumé une seconde, puis s'est ét
 
 Ça a duré quarante secondes. Peut-être moins. Mais quarante secondes suffisent.
 
-Quand je suis sortie, le jardin était vide. Les soldats de plomb étaient restés sur l'herbe, disposés en rang, tel un combat interrompu en plein milieu. On aurait dit qu'il avait été appelé. Qu'il avait obéi. Un enfant de six ans qui obéit à une voix qui n'est pas celle de sa mère. Ou qui l'est. Ou qui lui ressemble.
+Quand je suis sortie, le jardin était vide. Les soldats de plomb étaient restés sur l'herbe, disposés en rang, tel un combat interrompu en plein milieu. On aurait dit qu'elle avait été appelée. Qu'elle avait obéi. Un enfant de six ans qui obéit à une voix qui n'est pas celle de sa mère. Ou qui l'est. Ou qui lui ressemble.
 
 — Malo ! ai-je crié.
 
@@ -3753,7 +3753,7 @@ Sur la table de la cuisine, posé bien à plat à côté du sucrier. Un papier b
 
 J'ai avancé la main. Mes doigts ont touché le papier. Il était lisse, presque glacé. Pas du papier de cuisine. Du papier cher. Du papier de lettre. Celui qu'on garde pour les occasions importantes. Pour les annonces qu'on ne veut pas oublier. J'ai déplié lentement. Le pli a craqué, sec, dans le silence.
 
-*« Si tu veux le revoir, viens seule. Pas la police. Sinon, il finira comme Paul. »*
+*« Si tu veux la revoir, viens seule. Pas la police. Sinon, elle finira comme Paul. »*
 
 Paul.
 
@@ -3773,7 +3773,7 @@ J'ai senti mes jambes se dérober sous moi. Le sol de la cuisine, froid, carrel�
 
 J'ai posé la main sur le carrelage. Il était froid, lisse, indifférent. La cuisine sentait le café refroidi et le pain de la veille. Des odeurs ordinaires. Des odeurs de maison qui continue comme si de rien n'était. Pendant une seconde, j'ai eu envie de tout casser. De renverser la table. De briser les assiettes. De faire du bruit assez fort pour réveiller Malo, pour qu'elle apparaisse dans l'encadrement de la porte en me demandant ce qui se passait.
 
-Il n'est pas apparu.
+Elle n'est pas apparue.
 
 Paul. Tué. Malo. Enlevée. Charlotte. Vivante. Ariane. Libre. Gilles. Disparu. Et moi, assise sur le carrelage de la cuisine de ma sœur, en pyjama, les pieds nus, le papier froissé dans les doigts, à essayer de comprendre comment on en était arrivé là. Comment une femme qui rangeait des livres était devenue une femme qui courait après un enfant volé. Comment une bibliothécaire de province s'était retrouvée au centre d'un réseau de doubles, de remplaçantes, de femmes sans nom qui mouraient à la place d'autres.
 
@@ -3781,15 +3781,15 @@ Le téléphone trônait sur la table. Je l'ai regardé longtemps. Pas la police.
 
 J'ai appelé Inès. Pas la police. Inès.
 
-— Il a disparu, ai-je dit.
+— Elle a disparu, ai-je dit.
 
 — Je sais. J'ai vu la vidéo.
 
 — Tu as vu qui ?
 
-— Une femme. Blonde. Elle l'a pris par la main. Il est parti avec elle. Sans protester.
+— Une femme. Blonde. Elle l'a prise par la main. Elle est partie avec elle. Sans protester.
 
-— Pourquoi il est parti ?
+— Pourquoi elle est partie ?
 
 Un silence. Puis :
 
@@ -3834,7 +3834,7 @@ Une assurance. Charlotte avait une assurance. Comme on a une assurance pour sa v
 
 — Et toi, dans tout ça ?
 
-Inès a baissé les yeux. Pour la première fois depuis le début, elle avait l'air coupable. Pas honteuse — coupable. La nuance est importante. La honte, c'est quand on a peur du jugement. La culpabilité, c'est quand on sait qu'on a fait quelque chose de mal. Inès savait. Elle avait fait un détail de mal. Et maintenant, elle le savait. Trop tard. Comme toujours, trop tard.
+Inès a baissé les yeux. Pour la première fois depuis le début, elle avait l'air coupable. Pas honteuse — coupable. La nuance est importante. La honte, c'est quand on a peur du jugement. La culpabilité, c'est quand on sait qu'on a fait quelque chose de mal. Inès savait. Elle avait fait du mal. Et maintenant, elle le savait. Trop tard. Comme toujours, trop tard.
 
 — J'étais celle qui devait surveiller. M'assurer que le plan fonctionne. M'occuper des détails.
 
@@ -4335,7 +4335,7 @@ Mais j'avais déjà lâché le téléphone. Il pendait contre ma cuisse, émetta
 
 Parce que le sang coulait. Entre mes doigts. J'avais plaqué mes deux mains sur l'épaule de Charlotte et j'appuyais de toutes mes forces, comme si je pouvais la tenir ensemble par la seule volonté de mes paumes. Le sang était chaud. Plus chaud que ma peau. Épais. Pulsé. Chaque battement de son cœur en faisait jaillir un peu plus. Il s'écoulait entre mes doigts, glissait le long de mon poignet, tombait sur le carrelage en gouttes régulières. Un bruit mou. Un bruit que je n'oublierai jamais.
 
-Charlotte était pâle. Très pâle. Ses lèvres avaient la couleur de la cire. Celles qu'on trouve sur les bougies d'église, avant qu'elles brûlent. Ses yeux étaient mi-clos. Elle respirait par petits saccades, comme un animal blessé. Et elle me regardait. Elle me regardait comme si je n'étais pas réelle.
+Charlotte était pâle. Très pâle. Ses lèvres avaient la couleur de la cire. Celles qu'on trouve sur les bougies d'église, avant qu'elles brûlent. Ses yeux étaient mi-clos. Elle respirait par petites saccades, comme un animal blessé. Et elle me regardait. Elle me regardait comme si je n'étais pas réelle.
 
 — Tu vas t'en sortir, ai-je dit.
 
@@ -4442,7 +4442,7 @@ Inès avait emmené Malo. Elle m'a envoyé un message : *« Elle dort. On est ch
 
 Ne pas s'inquiéter. Comme si c'était possible. Comme si quelqu'un pouvait ne pas s'inquiéter. Ma fille — pas ma fille — dormait chez une femme qui avait trahi ma confiance, dans une maison que je ne connaissais pas, après avoir vu sa mère se faire tirer dessus. Non. Je ne m'inquiétais pas.
 
-J'ai regardé par la fenêtre du couloir. Le ciel devenait rose au-dessus de la baie. Les nuages s'étaient dégagés. Une lumière douce, presque tendre, se posait sur la ville. Le genre de lever de soleil qui donne envie de croire que tout va bien. Mais tout n'allait pas bien. Rien n'allait bien. Une femme avait été tirée. Une autre était en garde à vue. Un enfant dormait chez une étrangère. Et moi, je restais là, les mains sales, attendant des nouvelles d'une sœur qui m'avait volé mon visage.
+J'ai regardé par la fenêtre du couloir. Le ciel devenait rose au-dessus de la baie. Les nuages s'étaient dégagés. Une lumière douce, presque tendre, se posait sur la ville. Le genre de lever de soleil qui donne envie de croire que tout va bien. Mais tout n'allait pas bien. Rien n'allait bien. On avait tiré sur une femme. Une autre était en garde à vue. Un enfant dormait chez une étrangère. Et moi, je restais là, les mains sales, attendant des nouvelles d'une sœur qui m'avait volé mon visage.
 
 J'ai pensé à Gilles. Gilles qui était mort. Gilles dont le corps reposait quelque part sous la terre, pendant que moi je veillais sa meurtrière. Sa meurtrière ou la femme qui l'avait fait tuer. Je ne savais même pas. Je ne saurais peut-être jamais. Les versions se chevauchaient. Les rôles s'inversaient. Ariane avait tiré, mais Charlotte avait dressé le décor. Qui était plus coupable ? Celle qui appuie sur la détente ou celle qui pose les pièces sur l'échiquier ?
 
