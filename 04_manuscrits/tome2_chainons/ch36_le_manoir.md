@@ -54,7 +54,7 @@ Pas Étienne. Étienne est en garde à vue. Un autre homme. Grand, mince, le cr�
 
 — Où est ma fille ?
 
-L'homme sourit. Un sourire froid, professionnel, le sourire de quelqu'un qui fait son travail sans émotion. Le sourier d'un mercenaire.
+L'homme sourit. Un sourire froid, professionnel, le sourire de quelqu'un qui fait son travail sans émotion. Le sourire d'un mercenaire.
 
 — Votre fille est ici. En sécurité. Vous la verrez quand nous aurons ce que nous voulons.
 
@@ -134,7 +134,7 @@ La grille nord. Cinquante mètres. Trente mètres. Vingt mètres.
 
 Un bruit. Derrière. Dans le manoir. Un cri. Pas un cri humain. Un cri de veilleur. Un cri de douleur.
 
-Je me retourte. Le manoir est illuminé. Les fenêtres s'allument. Des silhouettes courent. Des voix crient.
+Je me retourne. Le manoir est illuminé. Les fenêtres s'allument. Des silhouettes courent. Des voix crient.
 
 Et puis la flamme.
 

@@ -16,7 +16,7 @@ Charlotte, à la cuisine. Charlotte qui cuisine. Charlotte qui rie. Charlotte, l
 
 Camille, au salon. Camille qui joue avec Malo. Camille, la revenue, l'absente, la retrouvée. Camille qui reste à Kerfany, qui a loué une maison au bord de la mer, qui écrit — Camille écrit un livre. Sur la chaîne. Sur les triplées. Sur tout. Camille, qui a été volée par la Transit, élevée loin, manipulée, enfermée — Camille qui transforme la douleur en mots.
 
-Gilles et Hélène. Ensemble. Assis sur le canapé. Gilles, le fils, avec un thé. Hélène, la mère, avec un chocolat. Hélène qui ne partira plus. Hélène qui habite dans la longère de Gilles, à Loctudy, qui cuisine, qui jardine, qui prend soin de son fils comme elle n'a jamais pu le faire. Trente ans de retard. Trente ans de maternalité rattrapée.
+Gilles et Hélène. Ensemble. Assis sur le canapé. Gilles, le fils, avec un thé. Hélène, la mère, avec un chocolat. Hélène qui ne partira plus. Hélène qui habite dans la longère de Gilles, à Loctudy, qui cuisine, qui jardine, qui prend soin de son fils comme elle n'a jamais pu le faire. Trente ans de retard. Trente ans de maternité rattrapée.
 
 Inès, à la fenêtre. Inès qui regarde la mer. Inès qui peint — des tableaux, maintenant, pas des murs. Inès qui expose à Quimper en janvier. Inès qui n'a jamais abandonné. Inès, l'amie, la fidèle, la constante.
 

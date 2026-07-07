@@ -30,7 +30,7 @@ Je ferme les yeux. L'anomalie. Le sang. Le sang qui ne tient pas. Mes sœurs et 
 
 — Et Charlotte a découvert tout ça seule ?
 
-— Charlotte a trouvé les dossiers, il y a cinq ans. Dans cette maison. Charlotte est venue ici, comme toi, avec une clé, en suivant des indices. Charlotte a tout lu. Tout compris. Charlotte était plus forte que toi, Clémence. Plus rapide. Plus clairevoyante. Charlotte a vu le schéma des dates en une heure. Toi, il t'a fallu une nuit.
+— Charlotte a trouvé les dossiers, il y a cinq ans. Dans cette maison. Charlotte est venue ici, comme toi, avec une clé, en suivant des indices. Charlotte a tout lu. Tout compris. Charlotte était plus forte que toi, Clémence. Plus rapide. Plus clairvoyante. Charlotte a vu le schéma des dates en une heure. Toi, il t'a fallu une nuit.
 
 — Et Charlotte a voulu tout révéler.
 

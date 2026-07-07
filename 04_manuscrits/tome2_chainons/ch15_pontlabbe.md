@@ -32,7 +32,7 @@ Elle me regarde. Elle fronce les sourcils. Elle réfléchit. Puis elle dit :
 
 — Merci.
 
-Je remonte dans la voiture. Le manoir de Kerguidi. Le manoir aux corbeaux. Je donne l'information à Paul. Il démarre. On suit la route de Locturdy. Les panneaux défilent. Les champs. Les haies. Et puis, au bout d'un chemin de terre, un portail.
+Je remonte dans la voiture. Le manoir de Kerguidi. Le manoir aux corbeaux. Je donne l'information à Paul. Il démarre. On suit la route de Loctudy. Les panneaux défilent. Les champs. Les haies. Et puis, au bout d'un chemin de terre, un portail.
 
 Le portail est en fer forgé. Noir. Haut de trois mètres. Surmonté d'un motif — un cercle, avec une chaîne enroulée autour. La chaîne de la Transit. Le symbole. Le signe. Nous sommes au bon endroit.
 

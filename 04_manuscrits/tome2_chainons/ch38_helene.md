@@ -62,7 +62,7 @@ La femme ressemble à Gilles. Les mêmes yeux. Le même front. La même mâchoir
 
 — Hélène, dis-je.
 
-Elle s'arrête dans l'encadurement de la porte. Elle me regarde. Ses yeux noisette — les yeux de Gilles — me reconnaissent.
+Elle s'arrête dans l'encadrement de la porte. Elle me regarde. Ses yeux noisette — les yeux de Gilles — me reconnaissent.
 
 — Clémence, dit-elle. Sa voix est douce, rauque, usée. La voix d'une femme qui n'a pas parlé depuis longtemps.
 

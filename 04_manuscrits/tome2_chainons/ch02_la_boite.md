@@ -6,7 +6,7 @@ L'après-midi passe. Je m'assois. Je me relève. Je m'assois. Je regarde l'envel
 
 J'ouvre le placard de l'entrée. Je monte sur la pointe des pieds. Je tire la couverture. La boîte en métal est là. Elle est plus légère que dans mon souvenir. Plus légère, ou c'est moi qui suis plus lourde. Je ne sais pas. Je la pose sur la table, à côté de l'enveloppe. Je la regarde.
 
-C'est une boîte en métal de la marque *Biscuits Poulain*, modèle des années quatre-vingt. Bleu foncé, lettres dorées, legerment rouillé sur les bords. Charlotte la gardait depuis qu'on était enfants. Elle y rangeait des choses. Des choses qu'elle ne voulait pas qu'on touche. Des choses qu'elle appelait *les preuves*. Je n'ai jamais su ce qu'il y avait dedans. Je n'ai jamais osé ouvrir. C'était un pacte entre nous. La boîte était à Charlotte. Le monde était à moi.
+C'est une boîte en métal de la marque *Biscuits Poulain*, modèle des années quatre-vingt. Bleu foncé, lettres dorées, légèrement rouillé sur les bords. Charlotte la gardait depuis qu'on était enfants. Elle y rangeait des choses. Des choses qu'elle ne voulait pas qu'on touche. Des choses qu'elle appelait *les preuves*. Je n'ai jamais su ce qu'il y avait dedans. Je n'ai jamais osé ouvrir. C'était un pacte entre nous. La boîte était à Charlotte. Le monde était à moi.
 
 Le monde n'a plus l'air à moi.
 

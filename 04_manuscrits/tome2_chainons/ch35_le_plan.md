@@ -4,7 +4,7 @@ La police arrive. Sept voitures. Quinze gendarmes. Un commissaire de Rennes, deb
 
 Étienne Kervadec ne résiste pas. Il s'assoit dans son fauteuil, les mains croisées, le sourire aux lèvres. Il répond aux questions avec une politesse de professeur. *Non, je n'ai pas enlevé d'enfant. Non, je ne sais pas où est Malo Roussel. Non, je n'ai jamais tué personne. Madeleine Le Gac ? Une étudiante brillante. Décédée en 1984. Hémorragie. Tragique.* Mensonges, tous. Mais des mensonges habiles. Des mensonges d'avocat. Des mensonges de soixante-dix ans de carrière.
 
-Ils l'emmènent au commissariat. Le placement en garde à vue. Le vieux rapace dans une cellule de comissariat, entouré de gendarmes qui ne comprennent pas qui ils tiennent.
+Ils l'emmènent au commissariat. Le placement en garde à vue. Le vieux rapace dans une cellule de commissariat, entouré de gendarmes qui ne comprennent pas qui ils tiennent.
 
 Paul reste avec moi. Paul, le fils du fondateur. Paul, l'agent repenti. Paul, le mari traître. Les gendarmes le regardent avec méfiance. L'épouse d'un agent, le fils d'un kidnappeur — ils ne savent pas qui nous sommes. Ils ne savent pas que la chaîne traverse nos vies comme un fil rouge dans une toile.
 

@@ -44,7 +44,7 @@ Je sors à la bibliothèque. Je montre ma carte. Je prends mon poste. Je classe,
 
 À onze heures, je vais aux toilettes. Je me lave les mains. Je me regarde dans la glace. J'ai mauvaise mine. J'ai toujours mauvaise mine depuis un mois. Les cernes. Les joues creuses. La mâchoire serrée. Je me force à desserrer la mâchoire. À sourire. Le sourire ne monte pas jusqu'aux yeux.
 
-Je reviens à mon poste. À midi, une collègue — une vraie collègue, avec un vrai nom, Louise, qui ne pose pas de questions — me propose de manger avec elle à la cantine du personnel. Je refuse. Elle ne insiste pas. Elle comprend, je crois.
+Je reviens à mon poste. À midi, une collègue — une vraie collègue, avec un vrai nom, Louise, qui ne pose pas de questions — me propose de manger avec elle à la cantine du personnel. Je refuse. Elle n'insiste pas. Elle comprend, je crois.
 
 À treize heures, je sors. Il pleut toujours. Je marche vers la station de tramway. Je passe devant un bureau de tabac. Sur le comptoir, à côté des bonbons, il y a un présentoir d'enveloppes. Des enveloppes blanches, des enveloppes kraft, des enveloppes à fenêtre. Je m'arrête. Je regarde. Je continue.
 

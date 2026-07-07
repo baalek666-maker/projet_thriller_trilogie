@@ -10,7 +10,7 @@ Silence.
 
 — Paul ?!
 
-Rien. Je raccroche. Les mains tremblent. Le téléphone glisse, tombe, se casse sur le carrelage. L'écran se fêle. Je le ramasse. L'écran fonctionne encore. Barement.
+Rien. Je raccroche. Les mains tremblent. Le téléphone glisse, tombe, se casse sur le carrelage. L'écran se fêle. Je le ramasse. L'écran fonctionne encore. À peine.
 
 Charlotte est à côté de moi. Elle ne dit rien. Elle prend les choses en main. Charlotte appelle l'école. La maîtresse confirme : Malo n'est pas venue ce matin. Le car scolaire est passé à huit heures moins le quart. Malo n'était pas à l'arrêt. La maîtresse a supposé que Malo était malade.
 
@@ -38,7 +38,7 @@ Le partage des rôles. Charlotte, la stratège, la femme de l'ombre, celle qui r
 
 Je prends la voiture. Je suis les traces de pneus. La départementale. Pont-l'Abbé. Quimper. Les traces se mêlent au trafic, se diluent, disparaissent. Les pneus d'un utilitaire sont les pneus de mille véhicules.
 
-Je m'arrête sur le bas-côté. Je tape sur le volant. Je crie. Le klxon hurle. Les vaches dans le champ me regardent avec des yeux ronds.
+Je m'arrête sur le bas-côté. Je tape sur le volant. Je crie. Le klaxon hurle. Les vaches dans le champ me regardent avec des yeux ronds.
 
 Malo. Ma fille. Six ans. Les cheveux blonds de Paul. Les yeux bleus des Roussel. Le rire qui résonne dans la maison. Les dessins de fleurs punaisés sur le réfrigérateur. Le pyjama à licornes. Le doudou — un lapin en peluche qui s'appelle Lapinou. Lapinou est sur le lit de Malo. Si Malo avait été emmenée par quelqu'un qu'elle connaissait, elle aurait pris Lapinou. Si Malo avait été forcée, Lapinou serait tombé. Lapinou est sur le lit. Net. Intact. Comme si Malo avait été prise si vite qu'elle n'a même pas pu tendre la main.
 

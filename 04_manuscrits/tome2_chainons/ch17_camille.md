@@ -46,7 +46,7 @@ J'entre. La chambre est simple. Un lit, une table, une chaise, une fenêtre qui 
 
 Camille frémit. Le nom de Joseph. Le numéro 3. Le veilleur. L'homme au chapeau.
 
-— Joseph est venu ici, dit-elle. Une fois. Il y a trois ans. Il est monté dans ma chambre. Il s'est assis sur cette chaise. Il m'a regardée. Il n'a rien dit pendant dix minutes. Puis il s'est levé, et il est parti. Je ne l'ai jamais revu. Mais je l'entends, la nuit. Dans le parc. Ses pas sur le gravier. Le taptement de sa canne.
+— Joseph est venu ici, dit-elle. Une fois. Il y a trois ans. Il est monté dans ma chambre. Il s'est assis sur cette chaise. Il m'a regardée. Il n'a rien dit pendant dix minutes. Puis il s'est levé, et il est parti. Je ne l'ai jamais revu. Mais je l'entends, la nuit. Dans le parc. Ses pas sur le gravier. Le tapotement de sa canne.
 
 Paul reste dans l'encadrement de la porte. Il regarde Camille. Il voit ce que je vois. Le même visage. La même femme, dédoublée, triplée, multipliée. Paul regarde mon visage sur un autre corps, et il ne sait pas quoi faire de cette information, de cette image, de cette vérité.
 

@@ -58,7 +58,7 @@ Le sol se dérobe. Pas en métaphore. En sensation. La chaise bouge. La table bo
 
 — Et ?
 
-— Il a pris les échantillons. Les trois tubes. Gilles, Lucie, Léo. Dans les congélateurs du manoir. Il a envoyé quelquée — je ne sais pas qui — prendre les tubes. Pour me punir. Pour me montrer qu'il savait tout, qu'il contrôlait tout, qu'il pouvait entrer dans le manoir d'Ariane sans être vu. Les tubes étaient un message : *Tu ne peux pas me quitter.*
+— Il a pris les échantillons. Les trois tubes. Gilles, Lucie, Léo. Dans les congélateurs du manoir. Il a envoyé quelqu'un — je ne sais pas qui — prendre les tubes. Pour me punir. Pour me montrer qu'il savait tout, qu'il contrôlait tout, qu'il pouvait entrer dans le manoir d'Ariane sans être vu. Les tubes étaient un message : *Tu ne peux pas me quitter.*
 
 — Hélène Doré, dis-je. La veilleuse disparue.
 

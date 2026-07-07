@@ -32,9 +32,9 @@ Je m'assois à la table. La table où Charlotte s'asseyait, le matin, avec son c
 
 Un bruit. À l'étage.
 
-Mon cœur s'arrête. J'ouvre les yeux. Je regarde le plafond. Le bruit vient de la chambre de Charlotte. Un bruit léger, régulier, comme un taptement. Comme quelqu'un qui tapote le rebord d'une fenêtre. Comme quelqu'un qui attend.
+Mon cœur s'arrête. J'ouvre les yeux. Je regarde le plafond. Le bruit vient de la chambre de Charlotte. Un bruit léger, régulier, comme un tapotement. Comme quelqu'un qui tapote le rebord d'une fenêtre. Comme quelqu'un qui attend.
 
-Je me lève. Je prends le couteau suisse dans ma poche. Je l'ouvre. La lame est courte, ridicule. Je la tiens quand même. Je monte l'escalier. Les marches grincent. Chaque marche. Une par une. Le taptement s'arrête.
+Je me lève. Je prends le couteau suisse dans ma poche. Je l'ouvre. La lame est courte, ridicule. Je la tiens quand même. Je monte l'escalier. Les marches grincent. Chaque marche. Une par une. Le tapotement s'arrête.
 
 J'arrive sur le palier. La porte de la chambre de Charlotte est entrouverte. Je la pousse du bout des doigts. Elle s'ouvre. La chambre est en ordre. Le lit est fait. Les rideaux sont tirés. Et à la fenêtre, une branche de tamaris bat contre la vitre. Le vent. C'était le vent. Rien d'autre. Le vent de Bretagne, qui ne s'arrête jamais, qui tape contre les vitres, qui secoue les branches, qui fait peur aux gens qui ont déjà peur.
 

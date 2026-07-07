@@ -24,7 +24,7 @@ Je regarde les étagères. 47 dossiers. 47 vies, documentées, archivées, écha
 
 Je l'ouvre. Les pages sont dactylographiées — tapées à la machine, pas à l'ordinateur. Ariane a commencé ça en 1989. Tout est sur papier. Tout est sur machine à écrire. Ariane n'a jamais informatisé les dossiers. Ariane n'a jamais fait confiance aux ordinateurs. Ariane est une femme d'une autre époque.
 
-Je feuillette le dossier de Gilles. Les résultats sanguins sont là — des chiffres, des taux, des valeurs que je ne comprends pas. Mais en marge, au crayon, l'écriture d'Ariane : *Forme aggressive. Transmission 100 %. Recommandation : retrait avant fermeture du cercle.*
+Je feuillette le dossier de Gilles. Les résultats sanguins sont là — des chiffres, des taux, des valeurs que je ne comprends pas. Mais en marge, au crayon, l'écriture d'Ariane : *Forme agressive. Transmission 100 %. Recommandation : retrait avant fermeture du cercle.*
 
 Retrait. Retrait. Le mot chirurgical. Le mot propre. Le mot qui ne dit pas *mort*. Le mot qui ne dit pas *meurtre*. *Retrait.* Comme un tirelire. Comme un boulon. Comme un maillon qu'on retire d'une chaîne avec une pince.
 
