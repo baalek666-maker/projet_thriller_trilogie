@@ -98,7 +98,7 @@ Une femme rentre chez elle après des années. Sa sœur jumelle est morte — on
 
 Dans la maison familiale, il y a une femme. Elle a le visage de sa sœur. Son nom. Sa vie. Elle couche dans son lit.
 
-Et le petit garçon la regarde comme si maman était enfin rentrée.
+Et la petite fille la regarde comme si maman était enfin rentrée.
 
 Quelqu'un ment.
 
