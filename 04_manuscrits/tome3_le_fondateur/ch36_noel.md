@@ -116,6 +116,6 @@ Je ris. Inès rit. Charlotte rit. Tout le monde rit.
 
 La bûche. Les bougies soufflées. Le chocolat chaud. Les chansons. Les rires. Les yeux qui piquent de fatigue. Les enfants qui s'endorment, un par un, contre les épaules, contre les poitrines.
 
-Noël. La paix. La fin.
+Noël. La paix. La fin de l'attente.
 
 Et le commencement.

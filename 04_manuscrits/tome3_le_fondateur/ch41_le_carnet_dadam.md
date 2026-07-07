@@ -98,7 +98,7 @@ Et ce jour-là, Adam saura.
 
 Mais en attendant, Adam court. Adam rit. Adam tombe. Adam se relève.
 
-Et c'est tout ce qui compte.
+Et c'est tout ce qui compte. Aujourd'hui. Demain. Pour longtemps.
 
 Je retourne à la cuisine. Inès est toujours à la fenêtre. Je la rejoins. Je passe mes bras autour d'elle. Je regarde le jardin. Adam. Malo. Paul au fond. Mon père près des tomates. Ma mère sur la terrasse. Le chat sur le mur.
 

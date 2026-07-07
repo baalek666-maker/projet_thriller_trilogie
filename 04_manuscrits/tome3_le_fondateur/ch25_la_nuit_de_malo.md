@@ -140,4 +140,4 @@ La perquisition viendra dans une semaine. Le juge accélère. Les gendarmes se p
 
 Mais cette nuit, Malo fait des cauchemars. Et moi aussi. Et le vieillard sourit dans la nuit. Et le temps presse.
 
-Et la dernière chaîne tremble.
+Et la dernière chaîne tremble. Comme si elle sentait venir la fin.

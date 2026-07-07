@@ -126,4 +126,4 @@ Ma voix ne tremble plus. La décision a fait son œuvre. Elle a séché la peur.
 
 Les Landes. Le domaine de Tursan. Le grand-père.
 
-La dernière chaîne.
+La dernière chaîne. Celle qui attend depuis soixante-dix ans dans le silence des pins.

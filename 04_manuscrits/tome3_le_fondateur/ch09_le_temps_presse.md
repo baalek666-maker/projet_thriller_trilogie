@@ -122,4 +122,4 @@ Elle raccroche. Je reste avec le téléphone contre mon oreille. Camille me rega
 
 Deux mois. Deux mois pour trouver un traitement qui ne soit pas un meurtre. Deux mois pour défier un homme de cent quatre ans et quatre-vingts ans de recherche. Deux mois pour que mes sœurs et moi, les quatre dernières Roussel, nous sauvions les enfants de la chaîne. Les nôtres et tous les autres.
 
-La dernière chaîne commence vraiment.
+La dernière chaîne. Et cette fois, c'est nous qui la tendons.

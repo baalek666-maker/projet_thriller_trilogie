@@ -154,4 +154,4 @@ Sept ans sera juste un âge. Comme pour les autres enfants. Comme pour tous les 
 
 Sept ans.
 
-La dernière chaîne tient.
+La dernière chaîne tient. Comme une promesse.

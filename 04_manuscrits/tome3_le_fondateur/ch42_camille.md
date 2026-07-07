@@ -78,4 +78,4 @@ Demain est un autre jour. Un jour sans chaîne. Un jour sans gène. Un jour sans
 
 Un jour libre.
 
-Le premier.
+Le premier d'une longue série.

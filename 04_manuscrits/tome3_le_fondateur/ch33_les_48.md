@@ -100,4 +100,4 @@ La chaîne ne meurt pas. Mais elle change. Elle cesse d'être une chaîne de san
 
 La chaîne ne meurt pas. Mais elle n'est plus la même.
 
-Et c'est suffisant.
+Et ça suffit.
