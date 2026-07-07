@@ -483,7 +483,7 @@ La pièce est devenue silencieuse. Même la pendule semblait s'être arrêtée.
 
 — Biologiquement, oui. Légalement, oui. Mais Charlotte et moi… nous n'étions plus ensemble. Pas vraiment. Elle m'a demandé de rester pour les apparences. J'ai accepté pour Malo.
 
-— Tu acceptes de le laisser partir ?
+— Tu acceptes de la laisser partir ?
 
 Paul a enfin tourné la tête vers moi. Ses yeux étaient rouges, mais pas de larmes. De la fatigue. De la colère rentrée. De toutes ces nuits où il avait dû faire semblant.
 
@@ -1016,9 +1016,9 @@ Il a serré Malo contre lui. L'enfant n'a pas réagi. Pas de bras levés, pas de
 
 — Ce n'est pas une question de volonté. C'est une question de temps.
 
-— Pourquoi tu ne restes pas ? ai-je demandé. Il a besoin de toi.
+— Pourquoi tu ne restes pas ? ai-je demandé. Elle a besoin de toi.
 
-— Il a besoin de Charlotte. Comme je ne peux pas lui donner Charlotte, je te donne toi.
+— Elle a besoin de Charlotte. Comme je ne peux pas lui donner Charlotte, je te donne toi.
 
 — Ce n'est pas pareil.
 
@@ -1030,13 +1030,13 @@ Il a regardé l'enfant une dernière fois. Le visage de Malo était fermé. Ses 
 
 — Je suis sa tante.
 
-— Pour lui, ça ne veut rien dire.
+— Pour elle, ça ne veut rien dire.
 
 Il est parti sans se retourner. La portière a claqué. Le moteur a toussé une fois, puis s'est lancé. Le gravier a crissé sous les pneus, et puis il n'y a plus eu que le bruit de la mer.
 
 Juste avant le virage, une autre voiture s'est engagée dans le chemin. Une vieille Peugeot bleue. Léo. Il s'est garé derrière les buissons, a coupé le moteur. Il n'est pas descendu tout de suite. Il est resté là, assis derrière son volant, à regarder la berline de Paul disparaître. Puis il a démarré, a fait demi-tour, et est reparti. Bizarre. J'ai pensé qu'il venait vérifier que j'étais bien installée. Le frère attentionné. Le bon samaritain de la famille.
 
-Malo et moi sommes restés sur le seuil.
+Malo et moi sommes restées sur le seuil.
 
 Le vent de mer soulevait ses petits cheveux blonds. Elle regardait la voiture de Paul s'éloigner jusqu'à ce qu'elle disparaisse au tournant. Elle n'a pas levé la main. Elle n'a pas pleuré. Elle a juste attendu que la poussière retombe.
 
@@ -1050,7 +1050,7 @@ Malo n'a pas répondu. Elle n'a pas bougé non plus.
 
 — Tu veux entrer ? ai-je demandé.
 
-Il n'a pas répondu.
+Elle n'a pas répondu.
 
 — On va se débrouiller, toi et moi.
 
@@ -1058,9 +1058,9 @@ Rien.
 
 J'ai tendu la main. Mes doigts étaient ridés par le vent, un peu gonflés d'avoir trop marché au froid. Une main d'adulte, grande, pâle, inutile. J'ai senti le sel sur ma peau, comme une pellicule fine. J'ai senti le froid du vent entre mes doigts.
 
-Il l'a contemplée un moment. Ses yeux gris sont descendus de mes doigts à mon poignet, puis à mon bras, puis à mon visage. Il m'a regardée comme on regarde une question qu'on n'a pas encore posée.
+Elle l'a contemplée un moment. Ses yeux gris sont descendus de mes doigts à mon poignet, puis à mon bras, puis à mon visage. Elle m'a regardée comme on regarde une question qu'on n'a pas encore posée.
 
-Puis il s'est levé tout seul et est rentré dans la maison.
+Puis elle s'est levée toute seule et est rentrée dans la maison.
 
 Sans me toucher.
 
@@ -2120,7 +2120,7 @@ J'ai eu un vertige. Je me suis appuyée contre le comptoir. Le marbre était fro
 
 Malo m'a appelée depuis le salon. J'ai rejoint. Elle était assise par terre, devant la télévision éteinte, les soldats de plomb alignés en carré devant elle. Elle m'a regardée. Longtemps. Avec cet air qu'elle avait depuis le début, cet air d'enfant qui mesure, qui soupèse, qui calcule.
 
-— T'as la même façon de marcher qu'elle, a-t-il dit.
+— T'as la même façon de marcher qu'elle, a-t-elle dit.
 
 — Pardon ?
 
@@ -2173,15 +2173,15 @@ Il a hésité. Le temps de deux battements de cœur. J'ai compté. Deux. Pas tro
 
 Le chien a reniflé ma main. Je l'ai laissé faire. Son museau était humide, froid. Son souffle tiède et rapide. Un souffle de vieux chien qui a connu meilleur temps.
 
-— Vous êtes venue pour le petit, j'imagine.
+— Vous êtes venue pour la petite, j'imagine.
 
 — Oui.
 
-— C'est un bon enfant. Très silencieux. Comme sa mère.
+— C'est un bon enfant. Très silencieuse. Comme sa mère.
 
 J'ai regardé Gilles.
 
-— Silencieux ? Charlotte ?
+— Silencieuse ? Charlotte ?
 
 — Oh, elle parlait. Beaucoup même. Mais elle disait rarement ce qu'elle pensait vraiment. Elle cachait toujours quelque chose derrière son sourire. Un secret, ou une peur. Parfois les deux.
 
@@ -2360,13 +2360,13 @@ J'ai couru dans sa chambre.
 
 Le couloir était noir. Mes pieds nus ont claqué sur le carrelage froid. La porte de sa chambre était entrouverte. La veilleuse projetait des ombres mouvantes sur les murs. Ombres d'animaux, d'arbres, de formes qu'on ne reconnaît pas. Des ombres qui grandissaient quand je m'approchais, pareil à des choses vivantes. On aurait dit que la maison elle-même retenait son souffle en attendant de voir ce que je ferais.
 
-Il était assis dans son lit, les yeux écarquillés, le souffle court. Ses mains agrippaient la couverture. Ses doigts étaient blancs. Son visage brillait de sueur. Quand il m'a vue, il a tendu les bras.
+Elle était assise dans son lit, les yeux écarquillés, le souffle court. Ses mains agrippaient la couverture. Ses doigts étaient blancs. Son visage brillait de sueur. Quand elle m'a vue, elle a tendu les bras.
 
-Pour la première fois, il m'a laissé le prendre contre moi.
+Pour la première fois, elle m'a laissée la prendre contre moi.
 
-Je l'ai serré. Son corps était chaud, tremblant, petit. Son cœur cognait contre le mien. Deux cœurs. L'un effrayé. L'autre terrifié. Mais pas pour les mêmes raisons.
+Je l'ai serrée. Son corps était chaud, tremblant, petit. Son cœur cognait contre le mien. Deux cœurs. L'un effrayé. L'autre terrifié. Mais pas pour les mêmes raisons.
 
-J'ai répété des mots doux, sans savoir ce que je disais. Des syllabes sans sens. Des sons. Le genre de bruits qu'on fait pour calmer un enfant, ou un animal, ou soi-même. Il s'est endormi contre moi, peu à peu. Son souffle a ralenti. Ses doigts ont lâché la couverture. Son corps s'est alourdi.
+J'ai répété des mots doux, sans savoir ce que je disais. Des syllabes sans sens. Des sons. Le genre de bruits qu'on fait pour calmer un enfant, ou un animal, ou soi-même. Elle s'est endormie contre moi, peu à peu. Son souffle a ralenti. Ses doigts ont lâché la couverture. Son corps s'est alourdi.
 
 Mais moi, je regardais la porte du couloir.
 
@@ -2380,7 +2380,7 @@ Pas avant que je sois elle. Pas avant que tout le monde, autour de moi, cesse de
 
 Je suis restée contre Malo encore un moment. Le temps qu'elle respire, le temps que son cœur ralentisse, le temps que ses doigts se relâchent autour de mon pull. Puis je l'ai couchée doucement, en glissant un bras sous sa nuque, l'autre sous ses genoux. Je l'ai portée jusqu'à son lit. Elle pesait à peine. Six ans de vie, dont une bonne partie en secret, en mensonge, en substitution. Six ans à grandir dans une maison où sa mère portait le visage de quelqu'un d'autre. Où sa tante portait le même visage. Où les miroirs ne savaient plus quoi refléter.
 
-Je l'ai bordé. Ses cheveux noirs, fins comme des algues, collaient à son front. Je les ai repoussés avec mes doigts. La peau était brûlante. Fiévreuse. Ou peut-être simplement vivante. Peut-être que les enfants vivants ont toujours la peau trop chaude. Trop présente. Trop là. Trop réelle pour qu'on puisse les confondre avec des souvenirs.
+Je l'ai bordée. Ses cheveux noirs, fins comme des algues, collaient à son front. Je les ai repoussés avec mes doigts. La peau était brûlante. Fiévreuse. Ou peut-être simplement vivante. Peut-être que les enfants vivants ont toujours la peau trop chaude. Trop présente. Trop là. Trop réelle pour qu'on puisse les confondre avec des souvenirs.
 
 Je me suis relevée. Mes genoux ont craqué dans le silence. La porte de sa chambre, je l'ai laissée entrouverte, comme Charlotte. Comme Charlotte laissait toutes les portes entrouvertes. Je ne savais même pas pourquoi. Je le faisais, c'est tout. Je reproduisais. Je copiais. Comme un disque qui passe en boucle. Une chanson qu'on ne sait plus ne pas fredonner.
 
@@ -2409,7 +2409,7 @@ Mais je n'ai pas pu m'empêcher.
 
 Mes doigts tremblaient. La maison dormait encore. En bas, le réveil de la cuisine marquait six heures et demie. Dehors, la mer était grise, aplatie sous un ciel sans lumière. Une lumière laiteuse, blafarde, qui ne promettait rien. Pas de soleil. Pas de relief. Juste une nébulosité dense qui pesait sur la baie et effaçait la ligne d'horizon. On aurait dit que le monde n'allait pas plus loin que le jardin. On aurait dit que la maison flottait.
 
-Malo respirait dans la chambre d'à côté, un souffle lent, régulier, celui d'une enfant qui a appris à dormir loin des bruits des adultes. Un souffle qu'on entendait à travers le mur, mince, fragile comme une promesse qu'on ne sait pas tenir. Je l'avais laissée endormie, les drags tirés jusqu'au menton, un poing fermé contre l'oreiller. Elle avait les cils longs. Les mêmes que Charlotte.
+Malo respirait dans la chambre d'à côté, un souffle lent, régulier, celui d'une enfant qui a appris à dormir loin des bruits des adultes. Un souffle qu'on entendait à travers le mur, mince, fragile comme une promesse qu'on ne sait pas tenir. Je l'avais laissée endormie, les draps tirés jusqu'au menton, un poing fermé contre l'oreiller. Elle avait les cils longs. Les mêmes que Charlotte.
 
 J'ai traversé le couloir pieds nus. Le parquet était froid. Glacial, même, sur la pointe des orteils. Chaque planche avait sa propre température, sa propre voix. Certaines grinçaient. D'autres restaient muettes. Je commençais à les connaître. Comme on connaît le corps de quelqu'un qu'on côtoie. Je connaissais la maison de Charlotte comme on connaît un amant qu'on n'a pas choisi.
 
@@ -2652,7 +2652,7 @@ Les rituels. Elle avait employé le même mot que Charlotte dans ses listes. J'a
 
 Malo m'a tirée par la manche avant que je parte.
 
-— Tu reviens ? a-t-il demandé.
+— Tu reviens ? a-t-elle demandé.
 
 — Ce soir.
 
@@ -2660,13 +2660,13 @@ Malo m'a tirée par la manche avant que je parte.
 
 — Promis.
 
-Il a hésité. Ses yeux ont bougé. Vers la gauche. Vers le couloir. Vers quelque chose que je ne voyais pas. Puis il a ajouté, très bas :
+Elle a hésité. Ses yeux ont bougé. Vers la gauche. Vers le couloir. Vers quelque chose que je ne voyais pas. Puis elle a ajouté, très bas :
 
 — Ne va pas là-bas.
 
 Je n'ai pas demandé où. Je n'ai pas voulu savoir comment elle savait. Les enfants sentent les choses. Les adultes les oublient. Les enfants sentent les fissures, les trous, les zones de vide que les adultes contournent sans les voir. Malo savait que j'allais quelque part. Elle savait que ce quelque part était dangereux. Elle ne savait pas pourquoi. Elle le sentait. Comme elle sentait les tensions. Comme elle sentait que sa mère avait peur. Comme elle sentait que je n'étais pas sa mère, même si je lui ressemblais.
 
-Je lui ai embrassé le front. Sa peau sentait le sommeil. Tiède, un peu humide. Il n'a pas bougé. Il n'a pas souri. Il m'a regardée partir avec des yeux trop vieux pour son âge.
+Je lui ai embrassé le front. Sa peau sentait le sommeil. Tiède, un peu humide. Elle n'a pas bougé. Elle n'a pas souri. Elle m'a regardée partir avec des yeux trop vieux pour son âge.
 
 Je conduisais la voiture de Charlotte. Une Volvo noire, impeccable, qui sentait encore son parfum. Le siège était réglé à sa taille. Je devais m'asseoir plus droite pour atteindre le volant. Mes genoux étaient trop près du tableau de bord. Mes mains ne tombaient pas naturellement sur le volant, elles devaient le chercher, s'élever, se plier. Pendant tout le trajet, j'avais l'impression de conduire dans sa posture. Ses épaules. Ses coudes. Son angle de vue. Le rétroviseur était réglé pour ses yeux. Je voyais la route à travers sa perspective. Le siège était encore marqué de sa forme. Comme un moulage. Une empreinte.
 
@@ -3068,15 +3068,15 @@ Mais j'ai compris que la femme dans le jardin n'était peut-être pas celle que 
 
 Malo m'a regardée différemment le lendemain.
 
-Je l'ai senti dès qu'il est entré dans la cuisine. Ce regard en biais, un peu trop long, qui se posait sur moi comme on teste une surface douteuse du bout du doigt. Il s'est assis sans un mot. A tiré son bol vers lui. Le bois de la chaise a grincé sur le carrelage. Un son minuscule, mais qui, dans le silence de la maison, prenait des proportions de couperet.
+Je l'ai senti dès qu'elle est entrée dans la cuisine. Ce regard en biais, un peu trop long, qui se posait sur moi comme on teste une surface douteuse du bout du doigt. Elle s'est assise sans un mot. A tiré son bol vers elle. Le bois de la chaise a grincé sur le carrelage. Un son minuscule, mais qui, dans le silence de la maison, prenait des proportions de couperet.
 
 Nous prenions le petit déjeuner. J'avais essayé de faire des crêpes, mieux que la première fois. Elles étaient presque réussies. Dorées aux bords, un peu épaisses au milieu. L'odeur de beurre chaud flottait encore dans la pièce, mêlée à celle du bois mouillé dans l'âtre. J'avais mis du sucre sur la table, comme dans sa liste. Le sucre en poudre, pas le sucre en morceaux. Charlotte préférait le sucre en poudre. Moi aussi, apparemment.
 
 C'était ça qui me terrifiait. Pas les perruques. Pas les passeports. Pas même la femme dans le jardin. C'étaient les coïncidences. Les petits riens qui s'alignaient, jour après jour, comme des constellations dont je ne choisissais pas les étoiles. Le sucre en poudre. La façon de plier le torchon. L'angle de la cuillère dans la tasse. J'étais en train de devenir Charlotte sans le décider. Sans le vouloir. Comme une plante qui pousse dans la direction du soleil sans savoir qu'elle pousse.
 
-Il a regardé son assiette.
+Elle a regardé son assiette.
 
-— Tu as changé, a-t-il dit.
+— Tu as changé, a-t-elle dit.
 
 — Comment ?
 
@@ -3084,7 +3084,7 @@ Il a regardé son assiette.
 
 — Comme maman ?
 
-Il a hoché la tête. Lentement. Comme quelqu'un qui pèse chacun de ses gestes. Comme quelqu'un qui a appris, à six ans, que les mots peuvent blesser plus que les coups.
+Elle a hoché la tête. Lentement. Comme quelqu'un qui pèse chacun de ses gestes. Comme quelqu'un qui a appris, à six ans, que les mots peuvent blesser plus que les coups.
 
 — Tu dis les mêmes mots. Tu fais les mêmes bruits avec la cuillère.
 
@@ -3100,11 +3100,11 @@ Ma voix avait résonné dans la cuisine vide. Trop claire. Trop calme. La voix d
 
 — C'est comme si elle était revenue.
 
-Sa voix était calme, sans émotion. Il avait parlé comme on constate la pluie. Sans tristesse, sans joie. Un fait. Une donnée. La pluie tombe. Le soleil se lève. Maman est revenue.
+Sa voix était calme, sans émotion. Elle avait parlé comme on constate la pluie. Sans tristesse, sans joie. Un fait. Une donnée. La pluie tombe. Le soleil se lève. Maman est revenue.
 
 — Tu aimerais ça ? ai-je demandé.
 
-Il a réfléchi. Ses yeux ont bougé, comme s'il cherchait la réponse quelque part derrière moi, dans le vide au-dessus de l'évier. Ses cils jetaient des ombres sur ses joues. Des ombres trop grandes pour un visage si petit.
+Elle a réfléchi. Ses yeux ont bougé, comme si elle cherchait la réponse quelque part derrière moi, dans le vide au-dessus de l'évier. Ses cils jetaient des ombres sur ses joues. Des ombres trop grandes pour un visage si petit.
 
 — Non.
 
@@ -3128,7 +3128,7 @@ Elle a détourné les yeux. La réponse d'une enfant qui sait mais qui ne dira p
 
 Malo a enfin regardé ses crêpes. Elle en a coupé un morceau avec le couteau, trop grand pour elle. La lame a raclé l'assiette. Le son m'a serré la gorge.
 
-— Je veux pas qu'elle revienne, a-t-il dit.
+— Je veux pas qu'elle revienne, a-t-elle dit.
 
 — Maman ?
 
@@ -3136,17 +3136,17 @@ Malo a enfin regardé ses crêpes. Elle en a coupé un morceau avec le couteau, 
 
 — Quelle autre ?
 
-Il a baissé la voix. Au point que j'ai dû me pencher pour entendre. Son souffle sentait le lait chaud. Ses cils étaient si longs qu'ils jetaient une ombre sur ses joues. La lumière du matin, filtrée par le rideau, dessinait des formes sur la table. Des formes qui bougeaient quand le vent bougeait le tissu. Des formes qui ressemblaient à des mains. Ou à des visages.
+Elle a baissé la voix. Au point que j'ai dû me pencher pour entendre. Son souffle sentait le lait chaud. Ses cils étaient si longs qu'ils jetaient une ombre sur ses joues. La lumière du matin, filtrée par le rideau, dessinait des formes sur la table. Des formes qui bougeaient quand le vent bougeait le tissu. Des formes qui ressemblaient à des mains. Ou à des visages.
 
 — Celle qui a le même visage qu'elle.
 
 Le silence qui a suivi était épais. Pas le silence de la maison — celui-là, je le connaissais. C'était le silence de quelque chose qui se révèle. Le silence d'une pièce qu'on croyait vide et où quelqu'un est caché. Je sentais mon propre sang battre dans mes tempes. Mes mains étaient posées sur la table, à plat, comme pour m'empêcher de tomber. Comme si les mots de Malo pouvaient me renverser.
 
-J'ai voulu lui demander quand. Où. Comment il l'avait vue. Si elle était venue la nuit, par le jardin, comme la silhouette de la vidéo. Si elle était entrée par la porte, comme une invitée. Si elle s'était assise à cette même table, à cette même place, avec le même bol, le même sucre, les mêmes mots.
+J'ai voulu lui demander quand. Où. Comment elle l'avait vue. Si elle était venue la nuit, par le jardin, comme la silhouette de la vidéo. Si elle était entrée par la porte, comme une invitée. Si elle s'était assise à cette même table, à cette même place, avec le même bol, le même sucre, les mêmes mots.
 
 Je n'ai rien demandé. Parce que les questions, parfois, font plus mal que les réponses. Parce qu'un enfant de six ans ne devrait pas avoir à répondre. Parce que le simple fait de poser la question, c'était admettre que l'autre existait. Et je n'étais pas prête. Pas encore. Pas maintenant.
 
-Je me suis redressée. Lentement. Pour ne pas le brusquer. Pour ne pas lui faire peur. Mais à l'intérieur, quelque chose venait de se rompre. Comme une corde qu'on tend trop. Le même visage. L'autre. Celle qui avait le même visage. Ariane, peut-être. Ou une autre. Ou Charlotte elle-même, revenue de l'endroit où les morts ne devraient pas revenir.
+Je me suis redressée. Lentement. Pour ne pas la brusquer. Pour ne pas lui faire peur. Mais à l'intérieur, quelque chose venait de se rompre. Comme une corde qu'on tend trop. Le même visage. L'autre. Celle qui avait le même visage. Ariane, peut-être. Ou une autre. Ou Charlotte elle-même, revenue de l'endroit où les morts ne devraient pas revenir.
 
 Malo a mangé sa crêpe en silence. Elle n'a plus rien dit. Elle mâchait lentement, les yeux baissés, absorbée dans une tâche que je ne pouvais pas partager. Je suis restée immobile, la cuillère dans la main, à regarder cet enfant qui avait vu des choses que les adultes refusaient de voir.
 
@@ -3181,7 +3181,7 @@ Denise m'a appelée le samedi matin.
 
 Sept heures et demie. Le téléphone a sonné dans la cuisine vide. Le carrelage était encore froid sous mes pieds nus. J'ai décroché avec une tasse dans l'autre main. Le café fumait. Je ne le boirais pas, comme d'habitude. Je le laisserais refroidir, comme d'habitude. Je regarderais la pellicule marron se former, comme d'habitude. Mes habitudes devenaient des habitudes de Charlotte sans que je le décide.
 
-— Viens me voir, a-t-elle dit. Sans le petit.
+— Viens me voir, a-t-elle dit. Sans la petite.
 
 Sa voix. Différente. Plus basse que d'habitude. Dégraissée de toute sa rudesse habituelle. Quelque chose avait été retiré. Comme si elle avait enlevé une armure en décrochant. Denise sans armure, ça n'existait pas. C'était comme voir un mur sans crépi. On découvrait les briques. Les fissures. Les endroits où le temps avait attaqué.
 
@@ -4064,7 +4064,7 @@ Charlotte a vu la lame. Elle n'a pas cillé.
 
 Elle a marqué une pause. Quelque chose est passé dans ses yeux. Pas de la peur. Autre chose.
 
-— Le jour où il t'a parlé. Pour toi. Jamais pour moi. Je me suis dit : peut-être que c'est mieux. Peut-être qu'il mérite quelqu'un qui sait lui répondre.
+— Le jour où elle t'a parlé. Pour toi. Jamais pour moi. Je me suis dit : peut-être que c'est mieux. Peut-être qu'elle mérite quelqu'un qui sait lui répondre.
 
 Sa voix a baissé.
 
@@ -4090,7 +4090,7 @@ Ariane a fait un pas. Charlotte a levé la main. Une main de malade. Une main qu
 
 Puis elle s'est tournée vers moi. Son visage était le mien. Le même moule. Le même nez trop long. Les mêmes pommettes. Mais tout le reste — la posture, la fatigue, la reddition — tout le reste était elle.
 
-— Protège-le, a-t-elle dit. C'est tout ce que je te demande.
+— Protège-la, a-t-elle dit. C'est tout ce que je te demande.
 
 J'ai serré le couteau. J'ai regardé Malo, debout près de la fenêtre, le visage tourné vers nous. Elle ne pleurait pas. Elle regardait. Comme si elle avait compris ce qu'aucun de nous ne comprenait encore.
 
@@ -4102,7 +4102,7 @@ Charlotte s'est laissée glisser contre le mur. Ses genoux ont cédé d'un coup,
 
 Elle a parlé sans me regarder. Sa voix était basse, presque rauque, comme du papier qu'on froisse. Les mots sortaient par saccades, comme si elle les tirait d'un endroit d'elle-même qu'elle gardait fermé depuis des mois. Des années, peut-être. J'ai serré la mâchoire. Je voulais la détester. C'était plus facile, avant. Avant cette maison grise, avant ce visage amaigri, avant ce pull qui avait été le mien et qui ne m'appartenait plus. Avant de comprendre qu'elle n'était pas un monstre. Juste une femme épuisée d'avoir tout prévu, tout contrôlé, tout mis en boîte, et qui n'avait plus la force de fermer le dernier tiroir.
 
-— Je ne te demande pas de me pardonner, a-t-elle ajouté. Je te demande de le garder. C'est tout. Le reste, c'est pour moi.
+— Je ne te demande pas de me pardonner, a-t-elle ajouté. Je te demande de la garder. C'est tout. Le reste, c'est pour moi.
 
 Malo n'avait pas bougé. Toujours près de la fenêtre. Toujours ce regard de gosse qui sait sans qu'on le lui ait dit. J'ai pensé : c'est peut-être ça, l'amour. Pas le grand mot. Pas le serment. Juste la capacité de tenir un couteau dans une main et un enfant dans l'autre, sans trembler, sans choisir, sans décider qui mérite quoi. Juste rester debout dans une cuisine qui pue le mensonge, et attendre que la marée tourne.
 
@@ -4127,11 +4127,11 @@ La Bretagne reprenait toujours ce qui lui appartenait. Les maisons. Les noms. Le
 ## Chapitre 37 : L'arme
 
 
-Malo s'est levé à son tour.
+Malo s'est levée à son tour.
 
-Il est venu vers moi. Pas vers Charlotte. Pas vers Ariane. Vers moi. Son pas était hésitant, comme s'il marchait dans un champ de mines. Il savait que tous les adultes autour de lui étaient dangereux. Il a choisi le moins dangereux. Le moins connu. Moi.
+Elle est venue vers moi. Pas vers Charlotte. Pas vers Ariane. Vers moi. Son pas était hésitant, comme si elle marchait dans un champ de mines. Elle savait que tous les adultes autour d'elle étaient dangereux. Elle a choisi le moins dangereux. Le moins connu. Moi.
 
-— Clémence, a-t-il dit.
+— Clémence, a-t-elle dit.
 
 Sa voix était petite. Cassée. Une voix d'enfant qui a trop entendu, trop vu, trop compris pour son âge. Une voix qui ne devrait pas exister à six ans. Une voix déjà vieille.
 
@@ -4139,7 +4139,7 @@ Charlotte a vu le mouvement. Son visage s'est durci. Pas par l'inquiétude mater
 
 — Reste là, Malo.
 
-Il a continué.
+Elle a continué.
 
 — Je t'ai dit de rester là !
 
@@ -4147,11 +4147,11 @@ Sa voix a explosé. Le même ton que dans mes cauchemars. Le même son que j'ava
 
 Malo s'est figée. Son petit corps tremblait. Ses mains, petites, pâles, serraient le bas de son pyjama. Mais elle n'est pas revenue en arrière. Elle est restée là, entre Charlotte et moi, immobile, têtue, comme un animal qui ne sait pas où aller mais qui refuse de reculer.
 
-Il avait les yeux de Charlotte. La même forme. La même couleur. Mais dedans, il n'y avait pas la dureté. Pas encore. Il y avait quelque chose de plus ancien, de plus fragile. La confiance. Ce qu'il en restait. Les derniers grammes de foi envers les adultes. Je me suis demandé combien il en restait après cette nuit. Combien survivraient.
+Elle avait les yeux de Charlotte. La même forme. La même couleur. Mais dedans, il n'y avait pas la dureté. Pas encore. Il y avait quelque chose de plus ancien, de plus fragile. La confiance. Ce qu'il en restait. Les derniers grammes de foi envers les adultes. Je me suis demandé combien il en restait après cette nuit. Combien survivraient.
 
 — Viens, ai-je dit doucement.
 
-Il a fait un pas.
+Elle a fait un pas.
 
 Le silence dans la cuisine était si épais qu'on aurait pu le couper. Le vent avait cessé — ou peut-être que je ne l'entendais plus. Mes oreilles ne captaient plus que le battement de mon propre sang. Le tic-tac du réveil de la cuisine, quelque part derrière moi, avait disparu. Comme si le temps lui-même retenait son souffle.
 
@@ -4173,7 +4173,7 @@ Sa voix avait changé. L'autorité était toujours là, mais les bords tremblaie
 
 Elle a levé l'arme. Le canon pointait vers moi. Sa main était stable. Trop stable. Une stabilité mécanique, pas humaine. La stabilité de quelqu'un qui a tué la peur en lui-même depuis longtemps. Qui l'a étouffée, enterrée, recouverte de terre. Une main de statue. Une main qui n'appartient plus à un corps vivant.
 
-— Toi, tu vas disparaître. Charlotte reprendra sa place. Moi, je prendrai la sienne. Et le petit ira avec qui je veux.
+— Toi, tu vas disparaître. Charlotte reprendra sa place. Moi, je prendrai la sienne. Et la petite ira avec qui je veux.
 
 — Tu ne feras pas ça, a dit Charlotte.
 
@@ -4244,13 +4244,13 @@ Ariane a braqué l'arme vers nous.
 
 J'ai serré Malo contre moi. Son cœur battait contre le mien — les deux cœurs, l'un petit et rapide, l'autre grand et terrifié, crépitaient l'un contre l'autre comme deux oiseaux dans une cage. Je sentais sa colonne vertébrale sous mes doigts. Fine. Fragile. Une colonne d'enfant. Une chose qu'on ne brise pas. Une chose pour laquelle on meurt.
 
-— Laisse-le partir. Fais ce que tu veux de moi, mais laisse-le partir.
+— Laisse-la partir. Fais ce que tu veux de moi, mais laisse-la partir.
 
-— Il me connaît comme sa mère. Il reste.
+— Elle me connaît comme sa mère. Elle reste.
 
 Malo a levé la tête.
 
-— Tu n'es pas maman, a-t-il dit.
+— Tu n'es pas maman, a-t-elle dit.
 
 Ariane a froncé les sourcils.
 
@@ -4258,7 +4258,7 @@ Ariane a froncé les sourcils.
 
 — Maman, elle sentait la vanille. Toi, tu sens le feu.
 
-Pour un enfant de six ans, c'était la chose la plus précise qu'il ait dite depuis des jours. La plus courageuse aussi. Une observation de chimiste, pas de victime. Une vérité d'enfant — celles qui ne se démontreraient pas, qui ne se discutaient pas. La vanille. Le feu. Deux odeurs. Deux femmes. Et la certitude, dans sa voix, qu'il savait laquelle était laquelle.
+Pour un enfant de six ans, c'était la chose la plus précise qu'elle ait dite depuis des jours. La plus courageuse aussi. Une observation de chimiste, pas de victime. Une vérité d'enfant — celles qui ne se démontreraient pas, qui ne se discutaient pas. La vanille. Le feu. Deux odeurs. Deux femmes. Et la certitude, dans sa voix, qu'elle savait laquelle était laquelle.
 
 Ariane a hésité une fraction de seconde. Pas longtemps. Un battement de cil. L'espace d'un doute. Le doute de quelqu'un qui se croit parfait et qui, pour la première fois, voit la faille. La faille qu'elle avait cru colmater. La faille qu'on ne colmate jamais. L'odeur. Ce qu'on ne peut pas imiter. Ce que Faustine avait appelé la peur — mais c'était autre chose. C'était l'identité. Ce qui reste quand tout le reste est copié.
 
@@ -4367,7 +4367,7 @@ Je savais ce que ça ferait à un enfant. Ce que ça laisse. Un trou. Un silence
 
 Je ne savais pas si c'était vrai. Je ne savais même pas si Charlotte était sa maman — ou si Ariane l'était — ou si aucune des deux ne l'était vraiment. Malo avait été une pièce dans un jeu. Un objet qu'on déplace. Un pion. Un produit. Depuis le début, depuis sa naissance peut-être, elle n'avait jamais été un enfant pour eux. Elle avait été un outil. Un moyen de presser. De maintenir. De contrôler.
 
-Et moi, j'avais cru l'aimer. Et j'avais cru qu'il m'aimait. Mais l'amour d'un enfant de six ans, c'est de la glue. Ça colle à tout. Même à ceux qui ne le méritent pas. Même à ceux qui mentent. Même à une femme qui porte un faux visage et un faux nom et qui chuchote *je suis ta maman* dans le noir d'une chambre d'enfant.
+Et moi, j'avais cru l'aimer. Et j'avais cru qu'elle m'aimait. Mais l'amour d'un enfant de six ans, c'est de la glue. Ça colle à tout. Même à ceux qui ne le méritent pas. Même à ceux qui mentent. Même à une femme qui porte un faux visage et un faux nom et qui chuchote *je suis ta maman* dans le noir d'une chambre d'enfant.
 
 Je sentais le pouls de Charlotte sous mes doigts. Faible. Irrégulier. Comme un moteur qui tousse avant de caler.
 
@@ -4573,7 +4573,7 @@ Il y avait aussi une femme. Assise derrière lui. Elle n'a pas dit son nom. Elle
 
 — Vous n'avez pas appelé la police.
 
-— J'avais peur pour lui.
+— J'avais peur pour elle.
 
 — Peur de quoi ?
 
@@ -4815,15 +4815,15 @@ Je me suis relevée. Lentement. La chaise a glissé derrière moi sur le carrela
 
 Quand je suis rentrée chez Inès, Malo m'attendait.
 
-Il était assis sur le canapé, enveloppé dans une couverture à carreaux. Celle d'Inès, la vieille, en laine grattée, qui sentait la naphtaline et les cheveux de chien. Ses pieds nus pendaient au-dessus du sol. Il était trop petit pour que ses pieds touchent le parquet. Il balançait ses jambettes, doucement, machinalement, comme on balance les jambes quand on attend quelque chose qu'on n'ose pas nommer.
+Elle était assise sur le canapé, enveloppée dans une couverture à carreaux. Celle d'Inès, la vieille, en laine grattée, qui sentait la naphtaline et les cheveux de chien. Ses pieds nus pendaient au-dessus du sol. Elle était trop petite pour que ses pieds touchent le parquet. Elle balançait ses jambettes, doucement, machinalement, comme on balance les jambes quand on attend quelque chose qu'on n'ose pas nommer.
 
-Il n'avait pas mangé — l'assiette de biscuits qu'Inès avait posée sur la table basse était intacte. Les biscuits étaient rangés en cercle, par couleurs. Inès faisait ça. Elle rangeait les choses. Les biscuits, les tasses, les couverts. Comme si ordonner les objets pouvait ordonner le monde. Comme si aligner des biscuits pouvait empêcher une famille de se défaire.
+Elle n'avait pas mangé — l'assiette de biscuits qu'Inès avait posée sur la table basse était intacte. Les biscuits étaient rangés en cercle, par couleurs. Inès faisait ça. Elle rangeait les choses. Les biscuits, les tasses, les couverts. Comme si ordonner les objets pouvait ordonner le monde. Comme si aligner des biscuits pouvait empêcher une famille de se défaire.
 
 Malo a levé les yeux quand je suis entrée. Ses yeux étaient ceux d'un vieillard dans un visage d'enfant. Des yeux qui avaient vu trop de choses en trop peu de temps. Des yeux qui ne pleuraient plus — non parce qu'ils étaient secs, mais parce qu'ils avaient appris que pleurer ne servait à rien. Que les adultes ne viennent pas quand on pleure. Qu'ils viennent quand ils veulent.
 
-Je me suis arrêtée sur le seuil du salon. Je n'osais pas entrer. C'était absurde — j'avais vécu des jours entiers avec cet enfant, je l'avais couché, nourri, promené, consolé. Mais là, dans la lumière jaune de la lampe d'Inès, avec le visage encore tuméfié par les dernières heures, je me suis sentie étrangère. Comme si le masque était tombé et que l'enfant me voyait enfin. Vraiment. Sans le filtre de la ressemblance, sans l'illusion de la mère.
+Je me suis arrêtée sur le seuil du salon. Je n'osais pas entrer. C'était absurde — j'avais vécu des jours entiers avec cet enfant, je l'avais couchée, nourrie, promenée, consolée. Mais là, dans la lumière jaune de la lampe d'Inès, avec le visage encore tuméfié par les dernières heures, je me suis sentie étrangère. Comme si le masque était tombé et que l'enfant me voyait enfin. Vraiment. Sans le filtre de la ressemblance, sans l'illusion de la mère.
 
-— Elle va vivre ? a-t-il demandé.
+— Elle va vivre ? a-t-elle demandé.
 
 — Oui.
 
@@ -4833,9 +4833,9 @@ Un seul mot. Pas de détail. Pas d'explication. Les enfants de six ans ne veulen
 
 — Je ne sais pas. Peut-être. Les médecins disent qu'elle est blessée. Les policiers disent qu'elle a fait des choses mauvaises. Le juge décidera.
 
-Il a hoché la tête. Pas comme un enfant qui accepte — un enfant qui a déjà compris que le monde des adultes était trop compliqué pour être juste. Qu'il y avait des choses mauvaises et des gens blessés et des juges qui décidaient, et que tout ça s'emboîtait comme des rouages dans une machine que personne ne contrôlait vraiment. Il avait six ans et il avait déjà cette sagesse qu'on n'acquiert qu'en ayant été abandonné. En ayant vu partir. En ayant attendu le retour.
+Elle a hoché la tête. Pas comme un enfant qui accepte — un enfant qui a déjà compris que le monde des adultes était trop compliqué pour être juste. Qu'il y avait des choses mauvaises et des gens blessés et des juges qui décidaient, et que tout ça s'emboîtait comme des rouages dans une machine que personne ne contrôlait vraiment. Elle avait six ans et elle avait déjà cette sagesse qu'on n'acquiert qu'en ayant été abandonnée. En ayant vu partir. En ayant attendu le retour.
 
-Puis il a dit quelque chose que je n'attendais pas.
+Puis elle a dit quelque chose que je n'attendais pas.
 
 — Je veux rester avec toi.
 
@@ -4843,7 +4843,7 @@ Le mot « toi » a claqué dans l'air. Pas maman. Pas « la dame ». Toi. Un pro
 
 J'ai senti mon cœur se fendre. Pas se serrer — se fendre, comme du bois qu'on fend au coin. Le cœur de quelqu'un qui n'a pas demandé cette responsabilité. Le cœur de quelqu'un qui ne sait pas si elle est capable. Le cœur de quelqu'un qui a passé sa vie à éviter les engagements, les racines, les attaches — et qui se retrouve là, devant un enfant de six ans qui lui dit « toi » comme on dit « sauve-moi ».
 
-— Tu es sûr ?
+— Tu es sûre ?
 
 — Tu n'es pas maman. Mais tu sens bon. Tu sens la bibliothèque. Et tu me parles pas comme si j'étais bébé.
 
@@ -4853,13 +4853,13 @@ J'ai souri, malgré les larmes. Les larmes sont venues sans prévenir. Pas des s
 
 — D'accord. On reste ensemble.
 
-— On part ? a-t-il demandé.
+— On part ? a-t-elle demandé.
 
 — Tu veux partir ?
 
 — Cette maison est triste. Tout le monde est triste ici. Maman était triste. La dame blonde était triste. Inès est triste. Toi aussi, parfois, quand tu regardes par la fenêtre.
 
-Il avait raison.
+Elle avait raison.
 
 Inès était dans la cuisine. Je l'entendais remuer des casseroles, faire couler de l'eau. Elle ne venait pas. Elle nous laissait. Elle savait que certains moments ne supportent pas un troisième. Que certaines conversations ont besoin de deux. Que les décisions se prennent à voix basse, dans la lumière jaune d'une lampe, entre une femme blessée et un enfant trop sage.
 
@@ -4883,23 +4883,23 @@ La question était attendue. Et elle m'a fait mal. Parce que « maman » — c'�
 
 — Peut-être. On verra.
 
-Il a hoché la tête. Il a accepté. Pas parce qu'il comprenait, mais parce qu'il me faisait confiance. Une confiance neuve, fragile, comme une plante qu'on vient de rempoter. On ne sait pas si elle va prendre. On ne sait pas si la terre est bonne. Mais on arrose quand même.
+Elle a hoché la tête. Elle a accepté. Pas parce qu'elle comprenait, mais parce qu'elle me faisait confiance. Une confiance neuve, fragile, comme une plante qu'on vient de rempoter. On ne sait pas si elle va prendre. On ne sait pas si la terre est bonne. Mais on arrose quand même.
 
-Il s'est blotti contre moi. Sa tête s'est posée contre mon épaule. Ses cheveux sentaient le shampoing pour enfant, celui à la fraise, celui d'Inès. Il ne pesait pas lourd. Six ans de poids. Six ans de peur. Six ans de mère défaillante, de père absent, de doubles et de remplaçantes. Tout ça, sur mes épaules, dans mes bras, contre ma poitrine.
+Elle s'est blottie contre moi. Sa tête s'est posée contre mon épaule. Ses cheveux sentaient le shampoing pour enfant, celui à la fraise, celui d'Inès. Elle ne pesait pas lourd. Six ans de poids. Six ans de peur. Six ans de mère défaillante, de père absent, de doubles et de remplaçantes. Tout ça, sur mes épaules, dans mes bras, contre ma poitrine.
 
-Pour la première fois depuis des jours, il m'a fait confiance. Non pas parce que je ressemblais à sa mère. Mais parce que je ne lui ressemblais pas.
+Pour la première fois depuis des jours, elle m'a fait confiance. Non pas parce que je ressemblais à sa mère. Mais parce que je ne lui ressemblais pas.
 
 Je suis restée immobile. La couverture à carreaux pesait contre ma poitrine. Le poids de Malo, endormie, pesait aussi. Deux poids. Le tissu. L'enfant. Le tissu qui sentait la naphtaline et les cheveux de chien. L'enfant qui sentait le shampoing à la fraise et la fatigue. Deux odeurs qui ne se mélangeaient pas. Deux mondes qui se touchaient sans se confondre.
 
 Par la fenêtre du salon, je voyais le jardin. Le même jardin que celui de Kerfany, en plus petit. Une pelouse mal coupée. Trois hortensias. Un mur de granit au fond, couvert de lichen. Un muret, aussi, qui marquait la limite avec le chemin côtier. Au-delà, on devinait la mer. Pas la mer d'ici, celle de Bretagne-Sud. Une autre mer. Une mer du nord, plus grise, plus haute, plus prometteuse. Une mer qu'on ne reconnaît pas tout à fait. Une mer qui n'a pas encore de souvenirs.
 
-Malo a bougé dans son sommeil. Sa main est tombée sur la mienne. Ses doigts, même endormis, se sont refermés. Comme un réflexe. Une ancre. Elle ne m'avait pas lâchée. Même en dormant. Même dans cet appartement qui n'était pas chez elle, dans cette couverture qui n'était pas la sienne, dans cette vie qui n'était pas celle qu'elle avait prévue. Elle m'avait choisie. Sans le savoir. Sans le dire. Elle m'avait choisie, et elle s'était endormie sur cette choix comme on s'endort sur un oreiller neuf. Pas tout à fait à l'aise. Pas tout à fait confiant. Mais présent. Là. Avec moi.
+Malo a bougé dans son sommeil. Sa main est tombée sur la mienne. Ses doigts, même endormis, se sont refermés. Comme un réflexe. Une ancre. Elle ne m'avait pas lâchée. Même en dormant. Même dans cet appartement qui n'était pas chez elle, dans cette couverture qui n'était pas la sienne, dans cette vie qui n'était pas celle qu'elle avait prévue. Elle m'avait choisie, et elle s'était endormie sur ce choix comme on s'endort sur un oreiller neuf. Pas tout à fait à l'aise. Pas tout à fait confiante. Mais présente. Là. Avec moi.
 
-Puis il a parlé. Sans ouvrir les yeux. La voix des rêves, celle qui vient d'un endroit où la garde est baissée, où les filtres ont disparu. À mi-voix, les lèvres à peine ouvertes.
+Puis elle a parlé. Sans ouvrir les yeux. La voix des rêves, celle qui vient d'un endroit où la garde est baissée, où les filtres ont disparu. À mi-voix, les lèvres à peine ouvertes.
 
 — La dame blonde est venue la nuit. Elle avait un grand sac. Maman a dit de pas regarder.
 
-Les mots sont sortis comme des bulles. Fragiles. Presque rien. Un murmure de enfant à la frontière du sommeil, à demi effacé. Il ne savait pas qu'il parlait. Il ne savait pas que j'écoutais. Il ne savait pas que chaque mot tombait sur moi comme une pierre dans l'eau.
+Les mots sont sortis comme des bulles. Fragiles. Presque rien. Un murmure d'enfant à la frontière du sommeil, à demi effacé. Elle ne savait pas qu'elle parlait. Elle ne savait pas que j'écoutais. Elle ne savait pas que chaque mot tombait sur moi comme une pierre dans l'eau.
 
 La dame blonde. La nuit. Un grand sac.
 
@@ -4988,7 +4988,7 @@ Sa main a tremblé plus fort. Un instant. Puis elle s'est calmée.
 
 — Quoi en faire ? C'est un enfant, Charlotte. Pas un objet.
 
-— Je sais. C'est pour ça que je l'ai laissé avec toi. Parce que toi, tu sauras.
+— Je sais. C'est pour ça que je l'ai laissée avec toi. Parce que toi, tu sauras.
 
 Le « tu sauras » est resté dans l'air. Pas comme un compliment. Une condamnation. Comme si elle me transférait la garde, le fardeau, l'amour — tout ce qu'elle n'avait pas su porter. Comme si l'enfant était un relais qu'elle me passait, et que la course continuerait, avec moi, ailleurs, sous un autre ciel, dans une autre odeur.
 
@@ -4996,7 +4996,7 @@ J'ai quitté l'hôpital en début d'après-midi. Le soleil perçait enfin entre 
 
 Je ne savais pas encore que Malo m'attendait à la maison avec une question à laquelle je n'avais pas de réponse. Je ne savais pas que la nuit qui venait serait différente de toutes les autres. Je ne savais pas qu'en rentrant, je trouverais la cuisine vide, son carnet ouvert sur la table, et à l'intérieur, une seule phrase entourée trois fois au stylo rouge : *« est-ce qu'on peut revenir quand on a disparu ? »*
 
-Je suis montée. Il m'attendait.
+Je suis montée. Elle m'attendait.
 
 
 
@@ -5117,7 +5117,7 @@ Ses doigts étaient froids. Mais pour la première fois depuis des années, le c
 
 J'ai serré. Elle a serré. Faiblement. Comme on serre quand on n'a plus la force de lutter. Comme on serre quand on ne sait pas si on lâchera.
 
-— Prends soin de lui, a-t-elle dit.
+— Prends soin d'elle, a-t-elle dit.
 
 — Je te le promets.
 
@@ -5263,11 +5263,11 @@ J'ai raccroché. Je suis restée devant la fenêtre. Dehors, la rue pavée étai
 
 Malo est entrée dans une nouvelle école. L'institutrice m'a dit qu'elle était silencieuse mais qu'elle observait tout. Qu'elle dessinait beaucoup. Des maisons, des bateaux, des baleines. Toujours la mer, dans ses dessins. La mer qu'elle avait laissée derrière elle.
 
-La mer. Il la dessine bleue. Toujours bleue. Pas grise, comme elle est vraiment, par ici. Bleue. Le bleu de Bretagne. Le bleu de ce qu'on perd. Le bleu de ce qu'on invente pour ne pas oublier.
+La mer. Elle la dessine bleue. Toujours bleue. Pas grise, comme elle est vraiment, par ici. Bleue. Le bleu de Bretagne. Le bleu de ce qu'on perd. Le bleu de ce qu'on invente pour ne pas oublier.
 
-Il parle davantage. Pas beaucoup. Mais davantage. Des mots sortent, parfois, quand il ne s'y attend pas. Des phrases complètes. Des questions. Le soir, avant de dormir, il me demande des choses. Des choses d'enfant et des choses de vieillard.
+Elle parle davantage. Pas beaucoup. Mais davantage. Des mots sortent, parfois, quand elle ne s'y attend pas. Des phrases complètes. Des questions. Le soir, avant de dormir, elle me demande des choses. Des choses d'enfant et des choses de vieillard.
 
-Hier, il m'a demandé : « Est-ce que maman est une méchante ? »
+Hier, elle m'a demandé : « Est-ce que maman est une méchante ? »
 
 — Non, ai-je répondu. Elle est blessée.
 
@@ -5275,9 +5275,9 @@ Hier, il m'a demandé : « Est-ce que maman est une méchante ? »
 
 — Moi aussi. Mais on guérit.
 
-Il a semblé satisfait de la réponse. Il a hoché la tête, a fermé les yeux, et s'est endormi en moins de cinq minutes. Comme si ma réponse avait fermé une porte qu'il gardait ouverte depuis des mois.
+Elle a semblé satisfaite de la réponse. Elle a hoché la tête, a fermé les yeux, et s'est endormie en moins de cinq minutes. Comme si ma réponse avait fermé une porte qu'elle gardait ouverte depuis des mois.
 
-Je suis restée là, sur le bord de son lit. Je l'ai regardé dormir. Son souffle régulier. Ses cils. Sa main, qui tenait encore la baleine en peluche. Je me suis dit que c'était ça, le bonheur. Pas grand-chose. Un enfant qui dort. Une porte fermée. Une réponse qui suffit.
+Je suis restée là, sur le bord de son lit. Je l'ai regardée dormir. Son souffle régulier. Ses cils. Sa main, qui tenait encore la baleine en peluche. Je me suis dit que c'était ça, le bonheur. Pas grand-chose. Un enfant qui dort. Une porte fermée. Une réponse qui suffit.
 
 Charlotte est transférée dans un centre psychiatrique judiciaire la semaine prochaine. Je l'irai voir. Je lui raconterai Malo. Je lui dirai qu'elle dessine. Qu'elle aime les livres sur les baleines. Qu'elle commence à rire — un rire timide, qui ne dure pas, mais qui vient.
 
@@ -5333,7 +5333,7 @@ Ce soir, Malo a dessiné une maison. Une grande maison, avec un jardin, un arbre
 
 — C'est qui ? ai-je demandé.
 
-Il a haussé les épaules.
+Elle a haussé les épaules.
 
 — Je sais pas.
 
@@ -5341,13 +5341,13 @@ Il a haussé les épaules.
 
 — Non. Elles existent.
 
-Il a repris ses crayons. Il a continué à dessiner. Il a ajouté un troisième personnage. Petit. Derrière les deux femmes.
+Elle a repris ses crayons. Elle a continué à dessiner. Elle a ajouté un troisième personnage. Petit. Derrière les deux femmes.
 
 — Et ça, c'est qui ?
 
 — C'est moi. Je regarde.
 
-Je n'ai rien dit. Je l'ai regardé dessiner. La fumée. L'arbre. Le ciel.
+Je n'ai rien dit. Je l'ai regardée dessiner. La fumée. L'arbre. Le ciel.
 
 Quelque part, dans l'appartement du dessus, la femme a toussé. Le couple d'en bas a commencé à disputer. La vie continuait. Le monde tournait.
 
@@ -5355,9 +5355,9 @@ J'ai posé ma main sur la sienne.
 
 — On va bien, ai-je dit.
 
-— Oui, a-t-il répondu.
+— Oui, a-t-elle répondu.
 
-Il ne m'a pas regardé. Il regardait son dessin. Il a ajouté un détail. Au bout du chemin, devant la maison, il a dessiné une forme. Petite. Floue. Quelque chose qui n'avait pas encore de contour. Un détail qui n'avait pas encore de nom.
+Elle ne m'a pas regardée. Elle regardait son dessin. Elle a ajouté un détail. Au bout du chemin, devant la maison, elle a dessiné une forme. Petite. Floue. Quelque chose qui n'avait pas encore de contour. Un détail qui n'avait pas encore de nom.
 
 — C'est quoi ?
 
@@ -5365,7 +5365,7 @@ Il ne m'a pas regardé. Il regardait son dessin. Il a ajouté un détail. Au bou
 
 — Tu verras.
 
-Il a hoché la tête.
+Elle a hoché la tête.
 
 Moi aussi.
 
