@@ -173,7 +173,7 @@ Lucie est restée un moment, à me regarder finir mon café. Elle aurait pu ajou
 
 J'ai fermé l'écran.
 
-Le reste de la matinée, j'ai rangé. J'ai déplacé des livres d'une étagère à l'autre. J'ai épousseté des tranches jaunies. J'ai remis de l'ordre dans un monde qui, pour une fois, n'en demandait pas. Parce que c'était plus facile que de penser à Malo. Plus facile que de penser à Charlotte qui m'attendait quelque part, morte, dans un sac ou un tiroir, avec encore une dernière exigence. Et plus facile que de penser à moi, Clémence, debout dans une réserve de livres anciens, en train de répéter les mêmes gestes qu'une femme qui range un mort dans un tiroir, en attendant que quelque chose se passe, en sachant que un détail va se passer, parce que Charlotte avait décidé que ça se passerait.
+Le reste de la matinée, j'ai rangé. J'ai déplacé des livres d'une étagère à l'autre. J'ai épousseté des tranches jaunies. J'ai remis de l'ordre dans un monde qui, pour une fois, n'en demandait pas. Parce que c'était plus facile que de penser à Malo. Plus facile que de penser à Charlotte qui m'attendait quelque part, morte, dans un sac ou un tiroir, avec encore une dernière exigence. Et plus facile que de penser à moi, Clémence, debout dans une réserve de livres anciens, en train de répéter les mêmes gestes qu'une femme qui range un mort dans un tiroir, en attendant que quelque chose se passe, en sachant qu'il va se passer quelque chose, parce que Charlotte avait décidé que ça se passerait.
 
 À midi, je suis allée manger dans le petit parc derrière la bibliothèque. Il faisait froid. Un froid d'octobre, sec, qui pique les oreilles. J'ai mordu dans mon sandwich sans faim. Le pain était dur. Le jambon avait le goût du plastique. J'ai regardé une mère pousser une poussette sur le chemin gravillonné. L'enfant riait. La mère riait. Elles avaient l'air d'appartenir à une espèce que je n'avais jamais comprise. Une espèce qui ne se demande pas si elle est capable. Une espèce qui tient l'enfant sans crainte de le casser.
 
@@ -1499,7 +1499,7 @@ Je veux courir. Je ne peux pas. Mes pieds sont collés au sol. Mes orteils s'enf
 
 — Alors pourquoi tu as souri ?
 
-Je ne me souviens pas d'avoir souri. Mais le rêve me dit que oui. Le rêve me montre une image de moi, en bas, debout, le visage de travers, la lèvre relevée, et cette image dit : tu as souri quand elle est tombée. Tu as senti quelque chose comme de la satisfaction. Une chose comme de la justice. Un détail comme une dette enfin remboursée.
+Je ne me souviens pas d'avoir souri. Mais le rêve me dit que oui. Le rêve me montre une image de moi, en bas, debout, le visage de travers, la lèvre relevée, et cette image dit : tu as souri quand elle est tombée. Tu as senti quelque chose comme de la satisfaction. Une chose comme de la justice. Quelque chose comme une dette enfin remboursée.
 
 Je regarde en bas.
 
@@ -1604,7 +1604,7 @@ J'ai haussé les épaules.
 
 — Un peu.
 
-— C'est déjà énorme. Charlotte avait beaucoup de mal avec lui aussi, tu sais.
+— C'est déjà énorme. Charlotte avait beaucoup de mal avec elle aussi, tu sais.
 
 J'ai regardé Inès.
 
@@ -1704,7 +1704,7 @@ J'ai senti mon cœur s'arrêter une demi-seconde. Une demi-seconde. Le temps que
 
 — Des vêtements.
 
-— Que autre chose.
+— Quoi d'autre.
 
 Elle savait. Elle savait pour les perruques. Elle savait pour la boîte. Elle savait, parce qu'elle était Inès, et qu'Inès savait tout.
 
@@ -1734,7 +1734,7 @@ Inès a repris son sac. Elle a remis ses gants. Elle a fait un pas vers la porte
 
 — Charlotte n'était pas une femme paranoïaque, a-t-elle dit. Charlotte était une femme préparée. Ce n'est pas la même chose.
 
-Elle m'a regardée. Ses yeux étaient calmes, sereins, sans malice apparente. Mais sous le calme, sous la sérénité, il y avait autre chose. Quelque chose de dur, de tranchant, de patient. Un détail qui attendait.
+Elle m'a regardée. Ses yeux étaient calmes, sereins, sans malice apparente. Mais sous le calme, sous la sérénité, il y avait autre chose. Quelque chose de dur, de tranchant, de patient. Quelque chose qui attendait.
 
 — Bonne journée, Clémence.
 
@@ -1791,7 +1791,7 @@ Je l'ai lue à la cuisine, une main autour d'une tasse de thé froid. La feuille
 
 Je suis restée un moment à regarder cette liste.
 
-Le thé avait fini par refroidir complètement. Un film ambré s'était formé à la surface, comme une peau morte. Je ne l'ai pas bu. Je ne pouvais pas bouger. Mes yeux revenaient sur la quatrième ligne. *Embrasser maman au portail. Dire « je t'aime ».* Maman n'était plus là. Maman était sous terre, dans un cercueil en chêne verni, avec ses papiers et sa chevalière. Mais la liste, elle, restait. Gravée dans le papier un commandement.
+Le thé avait fini par refroidir complètement. Un film ambré s'était formé à la surface, comme une peau morte. Je ne l'ai pas bu. Je ne pouvais pas bouger. Mes yeux revenaient sur la quatrième ligne. *Embrasser maman au portail. Dire « je t'aime ».* Maman n'était plus là. Maman était sous terre, dans un cercueil en chêne verni, avec ses papiers et sa chevalière. Mais la liste, elle, restait. Gravée dans le papier comme un commandement.
 
 Charlotte avait tout calculé. Chaque minute de la journée de sa fille. Pas un espace pour l'improvisation. Pas un trou pour l'affection spontanée. Même les phrases étaient des instructions. Pas une seule fois le mot « bisous ». Pas une seule fois le mot « amour ».
 
@@ -1837,7 +1837,7 @@ J'ai cherché la recette sur mon téléphone. Farine, œufs, lait, sucre, beurre
 
 La pâte était trop épaisse, elle tenait à la cuillère comme du plâtre. J'ai ajouté du lait. Trop liquide, elle coulait comme de l'eau. J'ai rajouté de la farine. La texture est devenue granuleuse, pleine de petits grumeaux blancs que je n'arrivais pas à écraser. Le fouet cognait contre les parois du bol. Un bruit sourd, régulier, qui résonnait dans la cuisine vide.
 
-Malo me regardait faire, sérieuse. Comme une scientifique qui observe un cobaye faire n'importe quoi. Elle s'était assise sur le tabouret, les jambes pendant. Ses pieds ne touchaient pas le sol. Elle balançait ses chaussures invisibles dans le vide.
+Malo me regardait faire, sérieuse. Comme une scientifique qui observe un cobaye faire n'importe quoi. Elle s'était assise sur le tabouret, les jambes pendant. Ses pieds ne touchaient pas le sol. Elle balançait ses jambes dans le vide.
 
 — C'est pas comme ça que faisait maman, a-t-elle dit.
 
@@ -3806,7 +3806,7 @@ Inès a sonné à la porte vingt minutes après l'appel. Elle était pâle, les 
 
 — Et si je ne fais rien ?
 
-— Alors elle le tuera quand même. Ou elle le transformera.
+— Alors elle la tuera quand même. Ou elle la transformera.
 
 — En quoi ?
 
@@ -4377,7 +4377,7 @@ Je ne sais pas à qui je parlais. À elle. À moi. À quelqu'un qui n'était pas
 
 La porte d'entrée était restée ouverte. Le vent entrait par rafales. Il apportait l'odeur de la mer. Sel. Varech. Iode. Un parfum de Bretagne qui n'avait rien à faire ici, dans cette cuisine qui sentait le fer et la poudre.
 
-Ariane était assise contre le mur. Le pistolet, je l'avais repoussé du pied, loin d'elle. Elle n'avait pas bougé. Elle ne bougerait pas. Elle me regardait. Elle me regardait avec une intensité calme, presque douée. Comme si elle prenait des notes. Comme si elle apprenait. Comme si elle se souvenait de moi pour plus tard.
+Ariane était assise contre le mur. Le pistolet, je l'avais repoussé du pied, loin d'elle. Elle n'avait pas bougé. Elle ne bougerait pas. Elle me regardait. Elle me regardait avec une intensité calme, presque douce. Comme si elle prenait des notes. Comme si elle apprenait. Comme si elle se souvenait de moi pour plus tard.
 
 Ça m'a glacée. Plus que le sang. Plus que le froid. Ce regard.
 
@@ -4924,7 +4924,7 @@ L'hôpital sentait l'eau de Javel et le silence.
 
 Le matin était gris. Un de ces matins bretons où le ciel ne décide pas — ni pluie, ni soleil, ni nuage. Juste une lumière blanche, plate, qui tombe sur tout sans distinction. Comme si le monde avait perdu ses contrastes. Comme si quelqu'un avait baissé le contraste de la réalité et qu'il ne restait que des gris.
 
-L'hôpital était différent le jour. Moi étouffant. Les couloirs étaient encombrés de chariots, de blouses, de patients en peignoir qui marchaient lentement, tirant leurs perfusions comme des laissez-passer vers la vie. L'odeur de café tiède se mêlait au désinfectant. Le réfectoire au rez-de-chaussée crachait des odeurs de soupe et de pain grillé. L'hôpital vivait. La nuit, il ne faisait que survivre.
+L'hôpital était différent le jour. Moins étouffant. Les couloirs étaient encombrés de chariots, de blouses, de patients en peignoir qui marchaient lentement, tirant leurs perfusions comme des laissez-passer vers la vie. L'odeur de café tiède se mêlait au désinfectant. Le réfectoire au rez-de-chaussée crachait des odeurs de soupe et de pain grillé. L'hôpital vivait. La nuit, il ne faisait que survivre.
 
 Charlotte était dans une chambre individuelle au troisième étage. Un policier était posté devant la porte. Les bras croisés. Le visage fermé. Le type de policier qui ne dit pas bonjour, qui ne sourit pas, qui reste là comme un meuble. Il a vérifié mon identité, a sorti un carnet, a noté mon nom, l'heure, a regardé une photo dans le carnet — la mienne, probablement — puis m'a fait signe d'entrer. La porte s'est ouverte sans bruit. Un couloir d'air conditionné m'a frappé le visage.
 
@@ -5184,7 +5184,7 @@ Et Malo.
 
 Malo, avec son sac à dos trop grand pour elle. Malo, avec son doudou en forme de baleine, qu'elle ne lâchait plus. Malo, avec ses yeux noirs, ses yeux d'enfant, ses yeux qui avaient vu trop de choses, qui avaient compris trop de choses, qui ne posaient plus de questions parce qu'elle avait arrêté d'attendre des réponses. Malo, qui était la seule chose que je prenais qui ne rentrait pas dans un carton.
 
-Nous sommes montés dans le train direction Nantes. Pas trop loin, pas trop près. Une ville moyenne, ni trop grande pour se perdre, ni trop petite pour être trouvée. J'ai acheté deux billets au guichet. Le préposé n'a pas levé les yeux. Deux billets, un aller simple. Il a tapé sur son clavier, il a imprimé, il a tendu les tickets sans me regarder. J'ai payé en espèces. Je n'avais pas de carte. Je n'avais plus de compte. Je n'étais plus personne, administrativement. Je n'étais plus Charlotte. Je n'étais pas tout à fait Clémence. J'étais une femme avec un enfant, un sac, et deux tickets de train.
+Nous sommes montées dans le train direction Nantes. Pas trop loin, pas trop près. Une ville moyenne, ni trop grande pour se perdre, ni trop petite pour être trouvée. J'ai acheté deux billets au guichet. Le préposé n'a pas levé les yeux. Deux billets, un aller simple. Il a tapé sur son clavier, il a imprimé, il a tendu les tickets sans me regarder. J'ai payé en espèces. Je n'avais pas de carte. Je n'avais plus de compte. Je n'étais plus personne, administrativement. Je n'étais plus Charlotte. Je n'étais pas tout à fait Clémence. J'étais une femme avec un enfant, un sac, et deux tickets de train.
 
 Inès est venue nous dire au revoir sur le quai. Elle portait son manteau gris, celui qu'elle mettait toujours quand il faisait froid. Ses yeux étaient rouges mais elle ne pleurait pas. Inès ne pleurait jamais devant les gens. Elle pleurait après, seule, dans sa cuisine, devant un bol de tisane et la radio allumée.
 
@@ -5212,7 +5212,7 @@ Le train s'est mis en marche. Un sillage de ferraille et de vapeur. J'ai regard�
 
 Malo était assise à côté de moi. Son sac à dos posé sur les genoux. Sa baleine contre elle. Elle regardait par la fenêtre, elle aussi. Elle n'a pas dit au revoir. Pas à voix haute. Mais elle a levé la main. Une petite main plaquée contre la vitre. Un au revoir muet. Un au revoir d'enfant qui ne sait pas encore qu'on ne revient jamais vraiment.
 
-J'ai sorti la seconde lettre de mon sac. Je l'ai tournée entre mes doigts. Le papier était doux, usé par les anses. L'encre avait un peu pâli. J'ai regardé l'écriture de Charlotte. Cette écriture que je connaissais par cœur. Cette écriture qui était la mienne, presque. Presque.
+J'ai sorti la seconde lettre de mon sac. Je l'ai tournée entre mes doigts. Le papier était doux, usé par les ans. L'encre avait un peu pâli. J'ai regardé l'écriture de Charlotte. Cette écriture que je connaissais par cœur. Cette écriture qui était la mienne, presque. Presque.
 
 Je ne l'ai pas ouverte. Pas tout de suite.
 
