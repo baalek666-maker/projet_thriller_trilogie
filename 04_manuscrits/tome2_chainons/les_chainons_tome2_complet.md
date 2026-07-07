@@ -96,7 +96,7 @@ L'après-midi passe. Je m'assois. Je me relève. Je m'assois. Je regarde l'envel
 
 J'ouvre le placard de l'entrée. Je monte sur la pointe des pieds. Je tire la couverture. La boîte en métal est là. Elle est plus légère que dans mon souvenir. Plus légère, ou c'est moi qui suis plus lourde. Je ne sais pas. Je la pose sur la table, à côté de l'enveloppe. Je la regarde.
 
-C'est une boîte en métal de la marque *Biscuits Poulain*, modèle des années quatre-vingt. Bleu foncé, lettres dorées, legerment rouillé sur les bords. Charlotte la gardait depuis qu'on était enfants. Elle y rangeait des choses. Des choses qu'elle ne voulait pas qu'on touche. Des choses qu'elle appelait *les preuves*. Je n'ai jamais su ce qu'il y avait dedans. Je n'ai jamais osé ouvrir. C'était un pacte entre nous. La boîte était à Charlotte. Le monde était à moi.
+C'est une boîte en métal de la marque *Biscuits Poulain*, modèle des années quatre-vingt. Bleu foncé, lettres dorées, légèrement rouillé sur les bords. Charlotte la gardait depuis qu'on était enfants. Elle y rangeait des choses. Des choses qu'elle ne voulait pas qu'on touche. Des choses qu'elle appelait *les preuves*. Je n'ai jamais su ce qu'il y avait dedans. Je n'ai jamais osé ouvrir. C'était un pacte entre nous. La boîte était à Charlotte. Le monde était à moi.
 
 Le monde n'a plus l'air à moi.
 
@@ -173,7 +173,7 @@ Ce soir, j'irai.
 
 # CHAPITRE 3 — L'appel
 
-Malo rentre à seize heures trente. Il est en retard de quatre minutes. Il ne dit pas pourquoi. Il pose son cartable. Il enlève ses chaussures. Il vient s'asseoir à côté de moi, sur le canapé, et il ne parle pas.
+Malo rentre à seize heures trente. Il est en retard de quatre minutes. Il ne dit pas pourquoi. Il pose son cartable, enlève ses chaussures, et vient s'asseoir à côté de moi, sur le canapé. Il ne parle pas.
 
 Il ne parle jamais quand il est comme ça. Quand il est revenu de quelque part. Il faut attendre. Ne pas le brusquer. Lui laisser le temps de revenir dans l'appartement. Lui laisser le temps de vérifier que les murs sont toujours là, que la porte est toujours fermée, que la fenêtre du dernier étage, en face, est toujours allumée.
 
@@ -494,7 +494,7 @@ Je n'ai pas dormi. Je n'ai pas mangé. J'ai regardé la Bretagne défiler derri�
 
 Kerfany-Plage est à quarante minutes. Quarante minutes de départementale, à travers des villages que je connais par cœur, des villages dont je connais les noms, les panneaux, les virages, les crêperies fermées en plein semaine. Tout est pareil. Rien n'a changé en un mois. Le panneau *Kerfany-Plage — Population 340 habitants* est toujours là, cabossé, penché vers la droite. La mer apparaît après le dernier virage. Grise. Plate. Froide.
 
-Je gare la voiture sur le parking de la plage. Je ne vais pas à la maison. Pas encore. Je m'assois sur le muret, face à la mer, et je respire. L'air sent le sel, les algues, et quelque chose de sucré, quelque chose que je n'arrive pas à identifier, quelque chose qui n'est pas de ici, quelque chose qui vient d'ailleurs.
+Je gare la voiture sur le parking de la plage. Je ne vais pas à la maison. Pas encore. Je m'assois sur le muret, face à la mer, et je respire. L'air sent le sel, les algues, et quelque chose de sucré, quelque chose que je n'arrive pas à identifier, quelque chose qui n'est pas d'ici, quelque chose qui vient d'ailleurs.
 
 Il y a un homme sur la plage. Il marche, pieds nus, le long du bord. Il est loin. Je ne le vois pas bien. Il a un chapeau, un manteau long, une canne. Il marche lentement, comme quelqu'un qui cherche quelque chose. Il ne me voit pas. Ou il fait semblant.
 
@@ -561,7 +561,7 @@ Charlotte est assise dans un fauteuil, près de la fenêtre. Elle porte une chem
 
 — Charlotte, dis-je.
 
-Elle ne bouge pas. Elle ne tourne pas la tête. Elle ne me regarde pas. Elle continue à fixer la fenêtre, comme si je n'étais pas là, comme si je n'existais pas, comme si je n'avais jamais existé.
+Elle ne bouge pas. Elle ne tourne pas la tête. Elle ne me regarde pas. Elle continue à fixer la fenêtre, comme si je n'étais pas là, telle une ombre qu'elle aurait effacée, comme si je n'avais jamais existé.
 
 Je m'approche. Je m'assois sur la chaise, à côté d'elle. Je regarde ses mains. Elles sont fines. Trop fines. Les veules saillent. Les ongles sont rongés. Il y a un bracelet d'hôpital à son poignet gauche, avec son nom, sa date de naissance, et un code-barres.
 
@@ -706,7 +706,7 @@ Le four sonne. La tarte est cuite. Denise ne bouge pas. Elle me regarde. J'ai l'
 
 — Denise, dis-je. Est-ce que ma mère savait ?
 
-Elle ne répond pas tout de suite. Elle se lève. Elle éteint le four. Elle sort la tarte. La tarte est dorée, parfaite, comme si elle n'avait rien entendu, comme si rien ne s'était passé. Elle la pose sur le comptoir. Elle revient s'asseoir.
+Elle ne répond pas tout de suite. Elle se lève. Elle éteint le four. Elle sort la tarte. La tarte est dorée, parfaite, comme si elle n'avait rien entendu, on dirait que rien ne s'était passé. Elle la pose sur le comptoir. Elle revient s'asseoir.
 
 — Ta mère savait pour Ariane, dit-elle. Ta mère savait que quelque chose n'allait pas. Mais ta mère ne savait pas quoi. Ta mère n'avait pas le vocabulaire. Ta mère n'avait personne à qui parler. Ton père était déjà parti. Le curé ne comprenait rien. Et Denise — moi — j'étais là, mais ta mère ne me faisait pas confiance. Pas assez. Pas pour ça.
 
@@ -765,7 +765,7 @@ Je reste debout au milieu de la chambre de Charlotte. Je regarde le plafond. Il 
 
 Je déplace le fauteuil de la chambre. Je le mets sous la trappe. Je monte dessus. Je pousse la trappe. Elle résiste. Je pousse plus fort. Elle cède, avec un craquement sec. Un courant d'air froid descend du grenier. Il sent la poussière, le bois, et quelque chose d'autre. Du papier. Du vieux papier.
 
-Je reviens avec la lampe de poche du tiroir de la cuisine. Je me hisse dans le grenier. C'est un petit espace, sous les toits, avec des poutres apparentes, un sol en planches, et des caisses empilées contre le mur. Des caisses en carton, fermées par du scotch. Des caisses que je n'ai jamais vues. Des caisses qui ne sont pas de ici. Des caisses qui portent une étiquette, au feutre rouge, avec un seul mot :
+Je reviens avec la lampe de poche du tiroir de la cuisine. Je me hisse dans le grenier. C'est un petit espace, sous les toits, avec des poutres apparentes, un sol en planches, et des caisses empilées contre le mur. Des caisses en carton, fermées par du scotch. Des caisses que je n'ai jamais vues. Des caisses qui ne sont pas d'ici. Des caisses qui portent une étiquette, au feutre rouge, avec un seul mot :
 
 *ROUSSEL — DOSSIER TRANSIT.*
 
@@ -773,7 +773,7 @@ Mon cœur bat. Mon cœur tape contre mes côtes comme un poing contre une porte.
 
 Des dossiers. Des dizaines de dossiers. Des pochettes en carton, avec des noms, des dates, des lieux. Chaque pochette porte un numéro, de 1 à 47. Chaque pochette correspond à un chaînon. Chaque pochette contient : un acte de naissance, un dossier médical, un dossier scolaire, des photos, et une fiche de *placement* — la famille adoptive, le lieu, la date.
 
-Charlotte avait constitué un dossier pour chaque chaînon. Charlotte savait tout. Charlotte savait où étaient les 47 enfants. Charlotte savait qui les élevait, où ils allaient à l'école, ce qu'ils mangeaient, comment ils dormaient. Charlotte avait tout noté. Tout rassemblé. Tout classé. Pendant huit ans. En silence.
+Charlotte avait constitué un dossier pour chaque chaînon. Charlotte savait tout. Charlotte savait où étaient les 47 enfants. Charlotte savait qui les élevait, où ils allaient à l'école, ce qu'ils mangeaient, comment ils dormaient. Charlotte avait tout noté, tout rassemblé, tout classé. Pendant huit ans. En silence.
 
 J'ouvre la pochette numéro 1. Camille. Née le 14 mars 1989 à Quimper. Placée le 17 mars 1989 chez la famille *Le Gall, Yannick et Marie*, à Pont-l'Abbé. Adresse : 4, rue des Saules. Deux photos. Un bébé. Un nourrisson, nu, sur une balance, dans un hôpital. Le bébé a mon visage. Le bébé a le visage de Charlotte. Le bébé a mes yeux, mon nez, ma bouche. C'est moi sur la photo. Non, c'est Charlotte. Non, c'est Camille. Nous sommes identiques. Nous avons toujours été identiques. Trois fois le même visage. Trois fois le même corps. Trois fois le même sang.
 
@@ -787,7 +787,7 @@ J'ouvre d'autres pochettes. Le numéro 22. Lucie KERVADEC. Née le 9 avril 1991 
 
 Le numéro 42. Léo Roussel. Né le 3 juin 1996 à Quimper. Placé chez la famille *Roussel, Jean et Anne*. Léo n'a pas été placé. Léo est resté. Léo a été gardé par mes parents. Léo est un chaînon, comme moi, comme Charlotte, mais Léo n'a jamais été envoyé ailleurs. Léo a grandi dans la maison. Léo a grandi avec nous. Léo savait. Léo a toujours su.
 
-Je ferme les caisses. J'ai assez vu pour aujourd'hui. J'ai assez vu pour ne plus dormir pendant des semaines. Je descends du grenier. Je referme la trappe. Je remets le fauteuil en place. Je m'assois sur le lit de Charlotte.
+Je ferme les caisses. J'ai assez vu pour aujourd'hui. J'ai assez vu pour ne plus dormir pendant des semaines. Je descends du grenier, referme la trappe, remets le fauteuil en place, et je m'assois sur le lit de Charlotte.
 
 Mon téléphone vibre. Un SMS. D'un numéro inconnu.
 
@@ -1082,7 +1082,7 @@ Le numéro 3 me suit.
 
 # CHAPITRE 12 — Les dates
 
-Je rentre à la maison. Je ferme la porte à clé. Je tire les rideaux. Je m'assois à la table de la cuisine avec le carnet, un crayon, une feuille blanche, et une tasse de café que je ne boirai pas.
+Je rentre à la maison, je ferme la porte à clé, je tire les rideaux, et je m'assois à la table de la cuisine avec le carnet, un crayon, une feuille blanche, et une tasse de café que je ne boirai pas.
 
 Les 47 dates. Je les note, dans l'ordre, en face de chaque numéro. Le crayon grince sur le papier. Les chiffres s'alignent.
 
@@ -1133,11 +1133,11 @@ Le téléphone vibre. Un message. De Inès.
 
 Paul. Mon ex-mari. Le père de Malo. Paul qui était parti. Paul qui m'avait laissée. Paul qui ne savait rien de la Transit, de la chaîne, de Charlotte. Paul qui croyait que j'étais folle. Paul qui arrivait ce soir.
 
-Je plie les feuilles. Je les glisse dans le carnet. Je range le carnet dans ma poche intérieure. J'éteins la lumière de la cuisine. La maison sombre. Le parfum de Charlotte flotte encore, fantomatique.
+Je plie les feuilles, les glisse dans le carnet, range le carnet dans ma poche intérieure, et j'éteins la lumière de la cuisine. La maison sombre. Le parfum de Charlotte flotte encore, fantomatique.
 
 Je sors. La nuit est tombée. Les étoiles sont là, au-dessus de la mer, dures et froides. La lune éclaire la falaise. Et sur la plage, tout en bas, une silhouette. Pas l'homme au chapeau. Plus petite. Plus fine. Une femme. Elle regarde la maison. Elle ne bouge pas. Elle me regarde.
 
-Je ne descends pas. Je remonte dans la voiture. Je démarre. Les phares balaient la route. La silhouette disparaît dans le noir.
+Je ne descends pas. Je remonte dans la voiture et je démarre. Les phares balaient la route. La silhouette disparaît dans le noir.
 
 Je vais chez Inès. Il faut que je vois Paul. Il faut que je comprenne pourquoi il vient. Il faut que je comprenne ce qu'il sait.
 
@@ -1733,7 +1733,7 @@ Je regarde les étagères. 47 dossiers. 47 vies, documentées, archivées, écha
 
 Je l'ouvre. Les pages sont dactylographiées — tapées à la machine, pas à l'ordinateur. Ariane a commencé ça en 1989. Tout est sur papier. Tout est sur machine à écrire. Ariane n'a jamais informatisé les dossiers. Ariane n'a jamais fait confiance aux ordinateurs. Ariane est une femme d'une autre époque.
 
-Je feuillette le dossier de Gilles. Les résultats sanguins sont là — des chiffres, des taux, des valeurs que je ne comprends pas. Mais en marge, au crayon, l'écriture d'Ariane : *Forme aggressive. Transmission 100 %. Recommandation : retrait avant fermeture du cercle.*
+Je feuillette le dossier de Gilles. Les résultats sanguins sont là — des chiffres, des taux, des valeurs que je ne comprends pas. Mais en marge, au crayon, l'écriture d'Ariane : *Forme agressive. Transmission 100 %. Recommandation : retrait avant fermeture du cercle.*
 
 Retrait. Retrait. Le mot chirurgical. Le mot propre. Le mot qui ne dit pas *mort*. Le mot qui ne dit pas *meurtre*. *Retrait.* Comme un tirelire. Comme un boulon. Comme un maillon qu'on retire d'une chaîne avec une pince.
 
@@ -2306,7 +2306,7 @@ Trois jours. Joseph nous a donné une semaine. Il en reste cinq. C'est assez. Ç
 
 Paul part à Quimper. Il a un plan. Paul est architecte. Paul connaît des gens. Paul connaît un professeur de génétique à la faculté de médecine — un certain Pr. Malbranche, spécialiste des maladies héréditaires du sang. Paul va le voir. Paul va tout lui expliquer. Pas tout. Juste assez. Juste ce qu'il faut pour que le professeur accepte de regarder les échantillons. D'accélérer les résultats. De confirmer ce que nous espérons.
 
-Camille reste à la maison. Elle nettoie. Elle range. Elle fait du café. Elle s'occupe. Camille, qui n'a pas eu de maison depuis trente-deux ans, s'occupe de celle-ci comme si c'était la sienne. Comme si chaque mètre carré de cette maison de pêcheur était un morceau de la vie qu'on lui a volée.
+Camille reste à la maison. Elle nettoie. Elle range. Elle fait du café. Elle s'occupe. Camille, qui n'a pas eu de maison depuis trente-deux ans, s'occupe de celle-ci comme si c'était la sienne. Façon de se réapproprier chaque mètre carré de cette maison de pêcheur, pareil à un morceau de la vie qu'on lui a volée.
 
 Lucie dort. Lucie dort beaucoup. Sept mois de grossesse, un mois de cavale, la peur constante — Lucie est épuisée. Léo veille à côté d'elle. Léo ne dort plus. Léo fait des rondes. Léo vérifie les volets, la porte, le jardin. Léo est un garde. Léo est le 47e chaînon, et il garde le 22e, et ensemble ils attendent le 48e.
 
@@ -2330,7 +2330,7 @@ Jour trois. Jeudi.
 
 Gilles est retrouvé. Faustine m'appelle à six heures du matin. *Il est chez moi. Il est venu cette nuit. Il est dans la boulangerie. Il dort.*
 
-Je prends la voiture. Je roule dans la nuit. L'Île-Tudy à Kerfany, vingt minutes. La boulangerie est fermée. Je frappe à l'arrière. Faustine ouvre. Elle a les yeux rouges. Elle ne pleure pas. Faustine ne pleure pas. Faustine fait du pain.
+Je prends la voiture et je roule dans la nuit. L'Île-Tudy à Kerfany, vingt minutes. La boulangerie est fermée. Je frappe à l'arrière. Faustine ouvre. Elle a les yeux rouges. Elle ne pleure pas. Faustine ne pleure pas. Faustine fait du pain.
 
 Gilles est allongé sur un sac de farine, dans l'arrière-boutique. Il dort. Son visage est creusé, ses mains sont noires de cambouis, ses vêtements sentent le gasoil et le sel. Il a dormi sur son bateau pendant deux jours, caché dans la cale, sans manger, sans boire, sans bouger.
 
@@ -2626,7 +2626,7 @@ Charlotte, Camille, et moi. Nous nous plaçons autour du lit. Trois femmes. Troi
 
 Et quelque chose se passe.
 
-Je le sens. Pas dans ma tête. Dans mon corps. Dans mes veines. Un courant. Une chaleur. Un frisson. Comme si le sang accélérait, comme si le cœur battait plus fort, comme si quelque chose de très ancien, de très profond, se réveillait. Le cercle. Le cercle qui se ferme. Trois sources, réunies, autour d'un nouveau-né, dans un manoir aux corbeaux, au milieu de la nuit.
+Je le sens. Pas dans ma tête. Dans mon corps. Dans mes veines. Un courant. Une chaleur. Un frisson. Comme si le sang accélérait, tel un cœur qui battrait plus fort, comme si quelque chose de très ancien, de très profond, se réveillait. Le cercle. Le cercle qui se ferme. Trois sources, réunies, autour d'un nouveau-né, dans un manoir aux corbeaux, au milieu de la nuit.
 
 Lucie cesse de saigner.
 
@@ -2721,7 +2721,7 @@ Le téléphone vibre sur la table basse. Inès.
 
 *Clémence. Urgent. Viens à Kerfany. Denise est à l'hôpital. Elle a fait une crise cardiaque. C'est grave. Les médecins disent que c'est le cœur. Ils disent qu'elle a fait trois arrêts.*
 
-Denise. La voisine. La vieille femme qui connaissait tout, qui voyait tout, qui se taisait. Denise qui avait vu les triplées naître — trois bébés identiques dans une clinique de Quimper, un soir de novembre 1986. Denise qui avait gardé les secrets pendant trente ans, qui avait veillé sur la maison, sur l'enfant, sur la chaîne. Denise qui s'effondrait maintenant, au matin du cercle fermé, comme si sa mission était accomplie, comme si son cœur avait décidé que c'était fini.
+Denise. La voisine. La vieille femme qui connaissait tout, qui voyait tout, qui se taisait. Denise qui avait vu les triplées naître — trois bébés identiques dans une clinique de Quimper, un soir de novembre 1986. Denise qui avait gardé les secrets pendant trente ans, qui avait veillé sur la maison, sur l'enfant, sur la chaîne. Denise qui s'effondrait maintenant, au matin du cercle fermé, comme si sa mission était accomplie, on dirait que son cœur avait décidé que c'était fini.
 
 — Il faut y aller, dis-je. Denise.
 
@@ -3101,7 +3101,7 @@ Ma fille. Malo, six ans, qui dessine des fleurs.
 
 Malo est le vrai prix. Malo est le vrai otage. Malo est le chaînon que le prédateur attendait.
 
-Je prends la lettre. Je la froisse dans ma main. Je cours dehors. La mer gronde. Le vent hurle. La falaise veille.
+Je prends la lettre, la froisse dans ma main, et je cours dehors. La mer gronde. Le vent hurle. La falaise veille.
 
 Et Malo n'est nulle part.
 
@@ -3368,7 +3368,7 @@ La voiture dévie. Paul corrige. Ses mains tremblent sur le volant. Il vient de 
 
 — Non. J'ai des soupçons. Des coïncidences. Mon père était avec Madeleine la nuit de sa mort. Au manoir. Seul avec elle. Ariane n'était pas là. Denise n'était pas là. Personne. Mon père et Madeleine. Et le matin, Madeleine était morte.
 
-— Et Ariane ? Elle accepté ça ?
+— Et Ariane ? Elle a accepté ça ?
 
 — Ariane ne sait pas. Ariane ne sait pas pour mon père. Ariane pense que la chaîne est le projet de Madeleine. Ariane pense qu'elle est la gardienne du projet de Madeleine. Ariane ne sait pas que le projet vient de mon père. Que Madeleine n'était que l'exécutante. Que tout — les 47 chaînons, la dilution, le sang doré — tout vient d'un homme de quatre-vingt-douze ans qui vit dans une maison du Thabor à Rennes.
 
@@ -3580,7 +3580,7 @@ La police arrive. Sept voitures. Quinze gendarmes. Un commissaire de Rennes, deb
 
 Étienne Kervadec ne résiste pas. Il s'assoit dans son fauteuil, les mains croisées, le sourire aux lèvres. Il répond aux questions avec une politesse de professeur. *Non, je n'ai pas enlevé d'enfant. Non, je ne sais pas où est Malo Roussel. Non, je n'ai jamais tué personne. Madeleine Le Gac ? Une étudiante brillante. Décédée en 1984. Hémorragie. Tragique.* Mensonges, tous. Mais des mensonges habiles. Des mensonges d'avocat. Des mensonges de soixante-dix ans de carrière.
 
-Ils l'emmènent au commissariat. Le placement en garde à vue. Le vieux rapace dans une cellule de comissariat, entouré de gendarmes qui ne comprennent pas qui ils tiennent.
+Ils l'emmènent au commissariat. Le placement en garde à vue. Le vieux rapace dans une cellule de commissariat, entouré de gendarmes qui ne comprennent pas qui ils tiennent.
 
 Paul reste avec moi. Paul, le fils du fondateur. Paul, l'agent repenti. Paul, le mari traître. Les gendarmes le regardent avec méfiance. L'épouse d'un agent, le fils d'un kidnappeur — ils ne savent pas qui nous sommes. Ils ne savent pas que la chaîne traverse nos vies comme un fil rouge dans une toile.
 
@@ -3662,7 +3662,7 @@ Je raccroche. Je regarde Paul. Paul est assis sur une chaise du commissariat, la
 
 Paul relève la tête. Ses yeux sont rouges. Son visage est un masque de douleur. Il ouvre la bouche. Il la referme. Il hoche la tête.
 
-Il se lève. Il sort du commissariat. Il monte dans la voiture. Il part.
+Il se lève, sort du commissariat, monte dans la voiture et part.
 
 Et moi, je reste. Seule. Dans un commissariat de Rennes, la nuit, en novembre, avec un plan dangereux, un tube de sang doré, et trente minutes entre l'échange et l'assaut.
 
@@ -4413,7 +4413,7 @@ Le mot. *Sauvé*. Le mot qui change tout. Le mot qui transforme un abandon en un
 
 — Je m'en fous de ce qu'elle veut. C'est ma mère. Je vais la voir.
 
-Gilles se lève. Il retire les capteurs de son doigt. Il met son manteau. Il sort de la chambre. L'infirmière proteste. Gilles ne l'écoute pas. Gilles marche. Le couloir. L'ascenseur. Le hall. La sortie.
+Gilles se lève. Il retire les capteurs de son doigt, met son manteau, et sort de la chambre. L'infirmière proteste. Gilles ne l'écoute pas. Gilles marche. Le couloir. L'ascenseur. Le hall. La sortie.
 
 Et moi, je le suis. Parce que c'est Gilles. Parce que Gilles est le numéro 5. Le premier enfant placé. Le premier chaînon. Et parce que Gilles mérite sa mère.
 
