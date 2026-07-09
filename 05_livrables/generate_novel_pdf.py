@@ -79,15 +79,15 @@ css = """
 /* ── Page Setup ───────────────────────────────────────── */
 @page {
     size: 5.5in 8.5in;  /* Format KDP broché standard */
-    margin: 2cm 2.2cm 2.5cm 2.2cm;
+    margin: 2cm 2.2cm 2.8cm 2.2cm;  /* bottom 2.8cm = zone safe pour numéros de page */
     background: white;
-    
+
     @bottom-center {
         content: counter(page);
         font-family: 'Liberation Serif', 'Times New Roman', serif;
         font-size: 9pt;
         color: #999;
-        vertical-align: bottom;
+        padding-bottom: 0.5cm;  /* éloigne le n° de page du bord de 0.5cm (~14pts) */
     }
 }
 

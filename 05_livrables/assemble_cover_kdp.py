@@ -19,7 +19,7 @@ OUTPUT_PDF = "/home/ubuntu/projet_thriller_trilogie/05_livrables/Couverture_KDP_
 OUTPUT_PNG = "/home/ubuntu/projet_thriller_trilogie/05_livrables/cover_assembled.png"
 
 # ── KDP specs (mm) ─────────────────────────────────────────
-PAGES   = 331
+PAGES   = 342
 TRIM_W  = 139.7    # 5.5"
 TRIM_H  = 215.9    # 8.5"
 BLEED   = 3.2      # 0.125"
