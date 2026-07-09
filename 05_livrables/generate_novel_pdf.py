@@ -78,7 +78,7 @@ html_body = chapterize(body_text)
 css = """
 /* ── Page Setup ───────────────────────────────────────── */
 @page {
-    size: 140mm 210mm;  /* A5 — format roman français */
+    size: 5.5in 8.5in;  /* Format KDP broché standard */
     margin: 2cm 2.2cm 2.5cm 2.2cm;
     background: white;
     
