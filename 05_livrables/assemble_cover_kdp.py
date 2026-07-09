@@ -12,7 +12,7 @@ import os
 
 # ── Images source ──────────────────────────────────────────
 FRONT_IMG = "/home/ubuntu/.hermes/image_cache/img_df9b7ce9836a.png"
-BACK_IMG  = "/home/ubuntu/.hermes/image_cache/img_efc44f5e5445.png"
+BACK_IMG  = "/home/ubuntu/.hermes/image_cache/img_8153f4aa99dc.png"
 SPINE_IMG = "/home/ubuntu/.hermes/image_cache/img_34e0d0e6fa8d.png"
 
 OUTPUT_PDF = "/home/ubuntu/projet_thriller_trilogie/05_livrables/Couverture_KDP_Tome1.pdf"
